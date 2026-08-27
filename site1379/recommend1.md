@@ -1,7 +1,7 @@
 
 # 云南野人山野小说网 - 创意小说与文学作品分享平台
 
-更新时间：2026-08-27 03:37:06
+更新时间：2026-08-28 03:38:22
 
 欢迎来到云南野人山野小说网 - 专注于创意小说和文学作品分享的在线平台。探索精选的小说系列及文学佳作，加入我们，与众多才华横溢的作者交流心得，共同创造美好的阅读旅程。
 
@@ -145,10 +145,8 @@
 - [八零恶毒后妈杀疯了](https://www.ynyrsy.com/book/df8njj/)
 - [恶犬品德](https://www.ynyrsy.com/book/df8njd/)
 - [夜莺不渡](https://www.ynyrsy.com/book/df8nj7/)
-- [暗涌[破镜重圆]](https://www.ynyrsy.com/book/df8nim/)
 - [[娱乐圈]过分美丽的她](https://www.ynyrsy.com/book/df8nil/)
 - [七零捡漏日常](https://www.ynyrsy.com/book/df8nih/)
-- [喜恶同因[青梅竹马]](https://www.ynyrsy.com/book/df8nif/)
 - [朕看上的少年是侠女](https://www.ynyrsy.com/book/df8nhn/)
 - [金手指夫妻在六零](https://www.ynyrsy.com/book/df8ngi/)
 - [本官早知他是狐狸变的](https://www.ynyrsy.com/book/df8nfo/)

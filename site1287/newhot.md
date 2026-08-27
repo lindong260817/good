@@ -1,39 +1,31 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-27 03:22:58
+更新时间：2026-08-28 03:23:28
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
 - [随梦小说网](https://www.hzciic.com/)
 
 ## 最新小说
-- [你，后室管理员](https://www.hzciic.com/book/1sjvhkr/)
-- [星际团宠小人鱼](https://www.hzciic.com/book/1sjvhjj/)
-- [夺友妻（女尊）](https://www.hzciic.com/book/1sjvhja/)
-- [他要和我谈恋爱](https://www.hzciic.com/book/1sjvhj6/)
-- [[封神]圣人生欲](https://www.hzciic.com/book/1sjvhiu/)
-- [高调装神，猥琐发育](https://www.hzciic.com/book/1sjvhid/)
-- [直男咒术师的限制级游戏](https://www.hzciic.com/book/1sjvhgi/)
-- [从异世界穿回来后](https://www.hzciic.com/book/1sjvhf3/)
-- [纯爱宇智波基本恋爱法](https://www.hzciic.com/book/1sjvhd6/)
-- [我的老公是暴君](https://www.hzciic.com/book/1sjudnj/)
-- [某柯学的正义伙伴](https://www.hzciic.com/book/1sjsnuu/)
-- [五美元在哥谭活一月](https://www.hzciic.com/book/1sjsf8v/)
-- [我有嘉宾](https://www.hzciic.com/book/1sjs9l6/)
-- [沈助理又在隐藏他的超能力](https://www.hzciic.com/book/6221fh/)
-- [野比春子穿越事件簿](https://www.hzciic.com/book/621lu5/)
-- [[全职高手]问就是没钱](https://www.hzciic.com/book/621i7b/)
-- [绿叶](https://www.hzciic.com/book/621dh8/)
-- [作家与读者](https://www.hzciic.com/book/621c85/)
-- [简单罗曼史](https://www.hzciic.com/book/621a3d/)
-- [我与龙傲天寿命共享](https://www.hzciic.com/book/6218cj/)
-- [这谁的沙雕二次元心声！](https://www.hzciic.com/book/6216m6/)
-- [老公是松散生命体](https://www.hzciic.com/book/6213e5/)
-- [多梦你一会儿](https://www.hzciic.com/book/620qki/)
-- [拯救世界从扮演反派开始](https://www.hzciic.com/book/620ope/)
-- [[足球]罗蜜第一志愿](https://www.hzciic.com/book/620nqt/)
-- [和前女友的心上人he了](https://www.hzciic.com/book/620i86/)
+- [我在虫族监狱写小说](https://www.hzciic.com/book/1sjslnj/)
+- [[诡秘之主]乌鸦童话](https://www.hzciic.com/book/1sjs124/)
+- [我演的不是漂亮圣子攻吗?](https://www.hzciic.com/book/1sjrvd0/)
+- [错嫁春笼（先婚后爱）](https://www.hzciic.com/book/621tga/)
+- [迷雾求生，种田玩家也能当榜一？](https://www.hzciic.com/book/621qen/)
+- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.hzciic.com/book/621q2j/)
+- [与清冷O协议结婚后她失忆了](https://www.hzciic.com/book/621ok5/)
+- [被天使之王骗婚后[诡秘之主]](https://www.hzciic.com/book/621oh5/)
+- [闺蜜就不能是妻子吗](https://www.hzciic.com/book/621obl/)
+- [邻居小孩太有钱[快穿]](https://www.hzciic.com/book/621k7p/)
+- [宝儿楼](https://www.hzciic.com/book/621k6n/)
+- [全星际都想吃我做的菜](https://www.hzciic.com/book/621ggc/)
+- [重生后雌君追来了](https://www.hzciic.com/book/621ebh/)
+- [和饲养的黑蛇恋爱后](https://www.hzciic.com/book/621cm9/)
+- [我将双打队友护至身前，自己站桩躺赢](https://www.hzciic.com/book/6219g3/)
+- [骗失忆死对头修合欢道](https://www.hzciic.com/book/62170v/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.hzciic.com/book/620sb5/)
+- [海岛求生：生活玩家种田囤货](https://www.hzciic.com/book/1u388/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1287/index.md)

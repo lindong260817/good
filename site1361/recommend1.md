@@ -1,7 +1,7 @@
 
 # 情感小说-精彩小说推荐网,涵盖言情都市历史科幻等多种类型
 
-更新时间：2026-08-27 03:29:18
+更新时间：2026-08-28 03:29:59
 
 情感小说致力于为广大书友推荐各种类型好看的小说，包括但不限于言情、都市、历史、科幻、灵异、军事、悬疑、玄幻、武侠、末世等。看小说，找小说就上书格格小说推荐网！
 
@@ -81,7 +81,6 @@
 - [反派人生，易如反掌[快穿]](https://www.qinggan1687.com/book/3qc46fa/)
 - [高调装神，猥琐发育](https://www.qinggan1687.com/book/3qc401u/)
 - [禁止限制文主角转职龙傲天](https://www.qinggan1687.com/book/3qc3mva/)
-- [喜恶同因[青梅竹马]](https://www.qinggan1687.com/book/3qc3mj5/)
 - [[足球]替补门将](https://www.qinggan1687.com/book/3qc3l7i/)
 - [魅魔就不能打网球了吗？](https://www.qinggan1687.com/book/3qc3kt6/)
 - [捡了龙傲天金手指后](https://www.qinggan1687.com/book/3qc3k6m/)
@@ -115,7 +114,6 @@
 - [是NPC就来和玩家合影](https://www.qinggan1687.com/book/3qc1u5q/)
 - [掌中春莺](https://www.qinggan1687.com/book/3qc1sce/)
 - [绝对占有](https://www.qinggan1687.com/book/3qc1s51/)
-- [暗涌[破镜重圆]](https://www.qinggan1687.com/book/3qc1ogb/)
 - [人气反派的马甲演绎实录](https://www.qinggan1687.com/book/3qc1m6r/)
 - [[综崩铁]你怎么知道我是令使](https://www.qinggan1687.com/book/3qc1k5d/)
 - [道长在诡异世界捉诡](https://www.qinggan1687.com/book/3qc1k3r/)

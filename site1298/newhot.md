@@ -1,39 +1,31 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-08-27 03:25:43
+更新时间：2026-08-28 03:26:17
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
 - [笔趣屋](https://www.kmjike.com/)
 
 ## 最新小说
-- [[封神]圣人生欲](https://www.kmjike.com/book/4mlvlgr/)
-- [星际团宠小人鱼](https://www.kmjike.com/book/4mlvlgg/)
-- [夺友妻（女尊）](https://www.kmjike.com/book/4mlvlg2/)
-- [他要和我谈恋爱](https://www.kmjike.com/book/4mlvlg1/)
-- [你，后室管理员](https://www.kmjike.com/book/4mlvlep/)
-- [高调装神，猥琐发育](https://www.kmjike.com/book/4mlvlef/)
-- [纯爱宇智波基本恋爱法](https://www.kmjike.com/book/4mlvlde/)
-- [直男咒术师的限制级游戏](https://www.kmjike.com/book/4mlvld8/)
-- [从异世界穿回来后](https://www.kmjike.com/book/4mlvl9p/)
-- [我的老公是暴君](https://www.kmjike.com/book/4mluhke/)
-- [某柯学的正义伙伴](https://www.kmjike.com/book/4mlsscs/)
-- [五美元在哥谭活一月](https://www.kmjike.com/book/4mlsjcu/)
-- [我有嘉宾](https://www.kmjike.com/book/4mlsbre/)
-- [沈助理又在隐藏他的超能力](https://www.kmjike.com/book/f28hep/)
-- [野比春子穿越事件簿](https://www.kmjike.com/book/f2848m/)
-- [[全职高手]问就是没钱](https://www.kmjike.com/book/f27v0a/)
-- [作家与读者](https://www.kmjike.com/book/f27s6v/)
-- [绿叶](https://www.kmjike.com/book/f27os0/)
-- [我与龙傲天寿命共享](https://www.kmjike.com/book/f27mb1/)
-- [简单罗曼史](https://www.kmjike.com/book/f27kmk/)
-- [这谁的沙雕二次元心声！](https://www.kmjike.com/book/f27hnd/)
-- [老公是松散生命体](https://www.kmjike.com/book/f27hkv/)
-- [多梦你一会儿](https://www.kmjike.com/book/f2760j/)
-- [[足球]罗蜜第一志愿](https://www.kmjike.com/book/f274bp/)
-- [拯救世界从扮演反派开始](https://www.kmjike.com/book/f273b5/)
-- [和前女友的心上人he了](https://www.kmjike.com/book/f27285/)
+- [我在虫族监狱写小说](https://www.kmjike.com/book/4mlsqm7/)
+- [[诡秘之主]乌鸦童话](https://www.kmjike.com/book/4mls5o2/)
+- [我演的不是漂亮圣子攻吗?](https://www.kmjike.com/book/4mls5b8/)
+- [错嫁春笼（先婚后爱）](https://www.kmjike.com/book/f28a9e/)
+- [迷雾求生，种田玩家也能当榜一？](https://www.kmjike.com/book/f2881t/)
+- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.kmjike.com/book/f287oo/)
+- [与清冷O协议结婚后她失忆了](https://www.kmjike.com/book/f287db/)
+- [被天使之王骗婚后[诡秘之主]](https://www.kmjike.com/book/f2876m/)
+- [闺蜜就不能是妻子吗](https://www.kmjike.com/book/f286kc/)
+- [宝儿楼](https://www.kmjike.com/book/f280p0/)
+- [邻居小孩太有钱[快穿]](https://www.kmjike.com/book/f27ukd/)
+- [全星际都想吃我做的菜](https://www.kmjike.com/book/f27sqt/)
+- [重生后雌君追来了](https://www.kmjike.com/book/f27rne/)
+- [和饲养的黑蛇恋爱后](https://www.kmjike.com/book/f27ppr/)
+- [我将双打队友护至身前，自己站桩躺赢](https://www.kmjike.com/book/f27mm7/)
+- [骗失忆死对头修合欢道](https://www.kmjike.com/book/f27kpg/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.kmjike.com/book/f275tl/)
+- [海岛求生：生活玩家种田囤货](https://www.kmjike.com/book/1g706u/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1298/index.md)

@@ -1,7 +1,7 @@
 
 # 泡泡中文小说-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-08-27 03:36:02
+更新时间：2026-08-28 03:37:12
 
 泡泡中文小说是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -82,7 +82,6 @@
 - [高调装神，猥琐发育](https://www.xiaoshuo288.com/book/dm2dan/)
 - [魅魔就不能打网球了吗？](https://www.xiaoshuo288.com/book/dm23bt/)
 - [[足球]替补门将](https://www.xiaoshuo288.com/book/dm232r/)
-- [喜恶同因[青梅竹马]](https://www.xiaoshuo288.com/book/dm21ff/)
 - [捡了龙傲天金手指后](https://www.xiaoshuo288.com/book/dm21ep/)
 - [禁止限制文主角转职龙傲天](https://www.xiaoshuo288.com/book/dm20pg/)
 - [我演的不是漂亮圣子攻吗?](https://www.xiaoshuo288.com/book/dm1nvu/)
@@ -115,7 +114,6 @@
 - [是NPC就来和玩家合影](https://www.xiaoshuo288.com/book/dm09jm/)
 - [掌中春莺](https://www.xiaoshuo288.com/book/dm06sb/)
 - [绝对占有](https://www.xiaoshuo288.com/book/dm06m8/)
-- [暗涌[破镜重圆]](https://www.xiaoshuo288.com/book/dm03uj/)
 - [道长在诡异世界捉诡](https://www.xiaoshuo288.com/book/dm0208/)
 - [人气反派的马甲演绎实录](https://www.xiaoshuo288.com/book/dm014n/)
 - [趁她之危](https://www.xiaoshuo288.com/book/dlvu8e/)

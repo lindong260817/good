@@ -1,7 +1,7 @@
 
 # 漫话乐文小说-免费小说阅读,无弹窗,最新章节更新快
 
-更新时间：2026-08-27 03:27:11
+更新时间：2026-08-28 03:27:45
 
 漫话乐文小说是广大书友最值得收藏的网络小说阅读网，提供当前最火热的网络小说免费阅读服务，高质量的小说最新章节更新快速，适合所有网络小说爱好者。
 
@@ -81,7 +81,6 @@
 - [反派人生，易如反掌[快穿]](https://www.manhua958.com/book/17sbhge/)
 - [高调装神，猥琐发育](https://www.manhua958.com/book/17sbaq2/)
 - [捡了龙傲天金手指后](https://www.manhua958.com/book/17sb1s9/)
-- [喜恶同因[青梅竹马]](https://www.manhua958.com/book/17sb0jt/)
 - [禁止限制文主角转职龙傲天](https://www.manhua958.com/book/17sb0ce/)
 - [魅魔就不能打网球了吗？](https://www.manhua958.com/book/17savtc/)
 - [[足球]替补门将](https://www.manhua958.com/book/17savht/)
@@ -115,7 +114,6 @@
 - [京华无尽夏](https://www.manhua958.com/book/17s988k/)
 - [掌中春莺](https://www.manhua958.com/book/17s957t/)
 - [绝对占有](https://www.manhua958.com/book/17s94hu/)
-- [暗涌[破镜重圆]](https://www.manhua958.com/book/17s93rj/)
 - [[综崩铁]你怎么知道我是令使](https://www.manhua958.com/book/17s900h/)
 - [道长在诡异世界捉诡](https://www.manhua958.com/book/17s8vtu/)
 - [人气反派的马甲演绎实录](https://www.manhua958.com/book/17s8vfh/)

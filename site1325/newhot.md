@@ -1,39 +1,31 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-08-27 03:36:16
+更新时间：2026-08-28 03:37:26
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。
 
 - [炫书网](https://www.xqwz8bk.com/)
 
 ## 最新小说
-- [他要和我谈恋爱](https://www.xqwz8bk.com/book/1igm2uj/)
-- [星际团宠小人鱼](https://www.xqwz8bk.com/book/1igm2ui/)
-- [夺友妻（女尊）](https://www.xqwz8bk.com/book/1igm2u4/)
-- [你，后室管理员](https://www.xqwz8bk.com/book/1igm2tn/)
-- [[封神]圣人生欲](https://www.xqwz8bk.com/book/1igm2t8/)
-- [高调装神，猥琐发育](https://www.xqwz8bk.com/book/1igm2sj/)
-- [纯爱宇智波基本恋爱法](https://www.xqwz8bk.com/book/1igm2ok/)
-- [直男咒术师的限制级游戏](https://www.xqwz8bk.com/book/1igm2nn/)
-- [某柯学的正义伙伴](https://www.xqwz8bk.com/book/1igjaf1/)
-- [我的老公是暴君](https://www.xqwz8bk.com/book/1igj479/)
-- [五美元在哥谭活一月](https://www.xqwz8bk.com/book/1igius4/)
-- [我有嘉宾](https://www.xqwz8bk.com/book/1igiolo/)
-- [沈助理又在隐藏他的超能力](https://www.xqwz8bk.com/book/51nhdc/)
-- [野比春子穿越事件簿](https://www.xqwz8bk.com/book/51n2h7/)
-- [[全职高手]问就是没钱](https://www.xqwz8bk.com/book/51mvl4/)
-- [作家与读者](https://www.xqwz8bk.com/book/51mrjm/)
-- [绿叶](https://www.xqwz8bk.com/book/51mq28/)
-- [我与龙傲天寿命共享](https://www.xqwz8bk.com/book/51mp1f/)
-- [简单罗曼史](https://www.xqwz8bk.com/book/51mnog/)
-- [这谁的沙雕二次元心声！](https://www.xqwz8bk.com/book/51mm6d/)
-- [老公是松散生命体](https://www.xqwz8bk.com/book/51mj0i/)
-- [多梦你一会儿](https://www.xqwz8bk.com/book/51m9kq/)
-- [拯救世界从扮演反派开始](https://www.xqwz8bk.com/book/51m6sd/)
-- [[足球]罗蜜第一志愿](https://www.xqwz8bk.com/book/51m4qf/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.xqwz8bk.com/book/51m4lu/)
-- [和前女友的心上人he了](https://www.xqwz8bk.com/book/51lvtu/)
+- [我在虫族监狱写小说](https://www.xqwz8bk.com/book/1igj90l/)
+- [我演的不是漂亮圣子攻吗?](https://www.xqwz8bk.com/book/1igijpv/)
+- [[诡秘之主]乌鸦童话](https://www.xqwz8bk.com/book/1igigbq/)
+- [错嫁春笼（先婚后爱）](https://www.xqwz8bk.com/book/51nbpa/)
+- [被天使之王骗婚后[诡秘之主]](https://www.xqwz8bk.com/book/51n96t/)
+- [与清冷O协议结婚后她失忆了](https://www.xqwz8bk.com/book/51n90c/)
+- [闺蜜就不能是妻子吗](https://www.xqwz8bk.com/book/51n6o6/)
+- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.xqwz8bk.com/book/51n5ki/)
+- [迷雾求生，种田玩家也能当榜一？](https://www.xqwz8bk.com/book/51n5jm/)
+- [宝儿楼](https://www.xqwz8bk.com/book/51n1kd/)
+- [邻居小孩太有钱[快穿]](https://www.xqwz8bk.com/book/51mvsv/)
+- [重生后雌君追来了](https://www.xqwz8bk.com/book/51muul/)
+- [全星际都想吃我做的菜](https://www.xqwz8bk.com/book/51mtso/)
+- [和饲养的黑蛇恋爱后](https://www.xqwz8bk.com/book/51mrgu/)
+- [我将双打队友护至身前，自己站桩躺赢](https://www.xqwz8bk.com/book/51mpei/)
+- [骗失忆死对头修合欢道](https://www.xqwz8bk.com/book/51mlso/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.xqwz8bk.com/book/51m8ed/)
+- [海岛求生：生活玩家种田囤货](https://www.xqwz8bk.com/book/g59r1/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1325/index.md)

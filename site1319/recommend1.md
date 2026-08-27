@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-08-27 03:24:44
+更新时间：2026-08-28 03:25:17
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
@@ -81,18 +81,19 @@
 - [医学大佬在年代文[穿书]](https://www.kanshu666.com/book/8jv7i6l/)
 - [高调装神，猥琐发育](https://www.kanshu666.com/book/8jv7i6h/)
 - [假少爷不想活了](https://www.kanshu666.com/book/8jv7i6g/)
-- [千禧年，拆迁分了十栋楼！](https://www.kanshu666.com/book/8jv7i2a/)
 - [纯爱宇智波基本恋爱法](https://www.kanshu666.com/book/8jv7i22/)
 - [六零之成了卷王的妹妹](https://www.kanshu666.com/book/8jv7gqb/)
 - [道长他为何那样](https://www.kanshu666.com/book/8jv7gpo/)
 - [古代种田养娃日常](https://www.kanshu666.com/book/8jv6rmu/)
 - [恶犬品德](https://www.kanshu666.com/book/8jv6hkl/)
 - [被反派暴君听到心声后[穿书]](https://www.kanshu666.com/book/8jv6e80/)
-- [老公对不起](https://www.kanshu666.com/book/8jv64hl/)
 - [主角前任他分手分不掉了](https://www.kanshu666.com/book/8jv60jb/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kanshu666.com/book/8jv5l9q/)
 - [无限末日副本：我有移动安全屋](https://www.kanshu666.com/book/8jv5b8n/)
+- [我有特殊的升官技巧](https://www.kanshu666.com/book/8jv554c/)
 - [御兽师，我打工养你啊](https://www.kanshu666.com/book/8jv5382/)
+- [反派人生，易如反掌[快穿]](https://www.kanshu666.com/book/8jv51r2/)
+- [我真的只会Ctrl啊！！！](https://www.kanshu666.com/book/8jv4oud/)
 - [七零捡漏日常](https://www.kanshu666.com/book/8jv4os8/)
 - [穿成炮灰后我封神了［快穿］](https://www.kanshu666.com/book/8jv4os6/)
 - [日化人生[科研]](https://www.kanshu666.com/book/8jv4cp6/)
@@ -106,10 +107,8 @@
 - [我演的不是漂亮圣子攻吗?](https://www.kanshu666.com/book/8jv422l/)
 - [禁止限制文主角转职龙傲天](https://www.kanshu666.com/book/8jv410a/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.kanshu666.com/book/8jv40k7/)
+- [始皇闺女躺平失败的日子](https://www.kanshu666.com/book/8jv3tio/)
 - [渣攻必须he（快穿）](https://www.kanshu666.com/book/8jv3t0o/)
-- [她是反派的背景板母亲](https://www.kanshu666.com/book/rj66ej/)
-- [绿茶男来袭（快穿）](https://www.kanshu666.com/book/rj6279/)
-- [喜恶同因[青梅竹马]](https://www.kanshu666.com/book/rj6254/)
 - [星际第一女A[穿书]](https://www.kanshu666.com/book/rj61qt/)
 - [成为养成系练习生后](https://www.kanshu666.com/book/rj5tnq/)
 - [你对寡人的猫有什么意见？](https://www.kanshu666.com/book/rj5ras/)
@@ -122,7 +121,6 @@
 - [和冰山上司隐婚生崽了](https://www.kanshu666.com/book/rj5jvr/)
 - [邻居小孩太有钱[快穿]](https://www.kanshu666.com/book/rj5i9b/)
 - [壮受虫母今天也想逃](https://www.kanshu666.com/book/rj5i82/)
-- [贵族学院女保安竟是万人迷](https://www.kanshu666.com/book/rj5and/)
 - [夜偶](https://www.kanshu666.com/book/rj56t5/)
 - [是NPC就来和玩家合影](https://www.kanshu666.com/book/rj56ni/)
 - [绝对占有](https://www.kanshu666.com/book/rj56hs/)
@@ -131,9 +129,9 @@
 - [京华无尽夏](https://www.kanshu666.com/book/rj548a/)
 - [掌中春莺](https://www.kanshu666.com/book/rj50q8/)
 - [[希腊神话]基建拯救世界](https://www.kanshu666.com/book/rj5068/)
+- [将妹妹嫁给别人后](https://www.kanshu666.com/book/rj4uv5/)
 - [误入反派培养直播后](https://www.kanshu666.com/book/rj4tvr/)
 - [道长在诡异世界捉诡](https://www.kanshu666.com/book/rj4rpj/)
-- [暗涌[破镜重圆]](https://www.kanshu666.com/book/rj4reu/)
 - [惊！S级诡异竟是我自己](https://www.kanshu666.com/book/rj4q6u/)
 - [性转成真千金靠写文逆袭了](https://www.kanshu666.com/book/rj4q2v/)
 - [娶了女装心机太子](https://www.kanshu666.com/book/rj4nd7/)
@@ -147,10 +145,8 @@
 - [巴黎恋人](https://www.kanshu666.com/book/rj4doj/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.kanshu666.com/book/rj4c1p/)
 - [本官早知他是狐狸变的](https://www.kanshu666.com/book/rj492b/)
-- [与宿敌他哥契约成婚后](https://www.kanshu666.com/book/rj46qc/)
 - [区区精灵[西幻]](https://www.kanshu666.com/book/rj46oj/)
 - [我有一座安全城](https://www.kanshu666.com/book/2oa0r5/)
-- [完蛋！被恨孕男包围了！](https://www.kanshu666.com/book/2oa0h0/)
 - [穿到反派落魄时](https://www.kanshu666.com/book/2oa0ec/)
 - [95美国贵族高中模拟](https://www.kanshu666.com/book/2oa09b/)
 - [替嫁后咸鱼继母佛系日常](https://www.kanshu666.com/book/2oa02a/)
