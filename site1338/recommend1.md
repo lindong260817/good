@@ -1,14 +1,13 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-08-25 03:18:58
+更新时间：2026-08-27 03:21:02
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。
 
 - [笔下文学](https://www.fshxjd.com/)
 
 ## 最新小说
-- [养父](https://www.fshxjd.com/book/74i3cht/)
 - [人妻O救赎指南](https://www.fshxjd.com/book/74i3ccl/)
 - [师尊分裂成两个后天天醋自己](https://www.fshxjd.com/book/74i35md/)
 - [宿敌为我而死后](https://www.fshxjd.com/book/74i35mc/)
@@ -23,7 +22,7 @@
 - [李师傅拳打好莱坞[六零]](https://www.fshxjd.com/book/74i35lh/)
 - [恶犬品德](https://www.fshxjd.com/book/74i35lf/)
 - [海上求生:生活玩家战力爆表](https://www.fshxjd.com/book/74i35lc/)
-- [[综]成年人为什么会成为救世主](https://www.fshxjd.com/book/74i35lb/)
+- [[反穿]我的救世主生涯不对劲？](https://www.fshxjd.com/book/74i35lb/)
 - [漂亮男知青下乡后](https://www.fshxjd.com/book/74i35la/)
 - [开局忽悠煤老板拍偶像剧[九零]](https://www.fshxjd.com/book/74i35l9/)
 - [你，后室管理员](https://www.fshxjd.com/book/74i35l8/)
@@ -73,10 +72,10 @@
 - [[娱乐圈]重生之从编剧开始的快乐生活](https://www.fshxjd.com/book/74i35h9/)
 - [分手后与诱系妻子再度热恋](https://www.fshxjd.com/book/74i35h8/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.fshxjd.com/book/74i32tr/)
-- [暴君的赝品公主](https://www.fshxjd.com/book/74i32hm/)
 - [七零捡漏日常](https://www.fshxjd.com/book/74i30jo/)
-- [七零回城女知青[穿书]](https://www.fshxjd.com/book/74i2otk/)
 - [趁她之危](https://www.fshxjd.com/book/74i2odm/)
+- [完蛋！被恨孕男包围了！](https://www.fshxjd.com/book/74i2kha/)
+- [无限末日副本：我有移动安全屋](https://www.fshxjd.com/book/74i2jnn/)
 - [假少爷不想活了](https://www.fshxjd.com/book/74i2abl/)
 - [十九世纪贵族厨房（美食）](https://www.fshxjd.com/book/74i1tu2/)
 - [高调装神，猥琐发育](https://www.fshxjd.com/book/74i1qt1/)
@@ -86,20 +85,17 @@
 - [[足球]替补门将](https://www.fshxjd.com/book/74i1mbv/)
 - [捡了龙傲天金手指后](https://www.fshxjd.com/book/74i1lcn/)
 - [千禧年，拆迁分了十栋楼！](https://www.fshxjd.com/book/74i1jr3/)
-- [前女友孩子三岁了](https://www.fshxjd.com/book/74i1jea/)
 - [被反派暴君听到心声后[穿书]](https://www.fshxjd.com/book/74i1j78/)
 - [绝色美人模拟器](https://www.fshxjd.com/book/74i1j0a/)
 - [我演的不是漂亮圣子攻吗?](https://www.fshxjd.com/book/74i1grc/)
 - [喜恶同因[青梅竹马]](https://www.fshxjd.com/book/74i1crm/)
 - [[希腊神话]基建拯救世界](https://www.fshxjd.com/book/74i18qa/)
-- [九零首富的替嫁小甜妻](https://www.fshxjd.com/book/74i13mv/)
+- [九零首富的替嫁小媳妇](https://www.fshxjd.com/book/74i13mv/)
 - [渣攻必须he（快穿）](https://www.fshxjd.com/book/74i13kh/)
 - [为诡异打工，但反封建迷信](https://www.fshxjd.com/book/74i12vd/)
 - [星际第一女A[穿书]](https://www.fshxjd.com/book/74i103m/)
 - [绿茶男来袭（快穿）](https://www.fshxjd.com/book/74i0vrn/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.fshxjd.com/book/74i0tqb/)
 - [你对寡人的猫有什么意见？](https://www.fshxjd.com/book/74i0s2k/)
-- [废太子联盟](https://www.fshxjd.com/book/74i0r36/)
 - [在民俗惊悚片被诸神庇护](https://www.fshxjd.com/book/74i0pok/)
 - [我是封建大爹的好孕小娇妻](https://www.fshxjd.com/book/74i0p4m/)
 - [闺蜜就不能是妻子吗](https://www.fshxjd.com/book/74i0onk/)
@@ -112,6 +108,7 @@
 - [他要和我谈恋爱](https://www.fshxjd.com/book/74i0cqp/)
 - [邻居小孩太有钱[快穿]](https://www.fshxjd.com/book/74i0ccn/)
 - [壮受虫母今天也想逃](https://www.fshxjd.com/book/74i0ca8/)
+- [贵族学院女保安竟是万人迷](https://www.fshxjd.com/book/74i0bos/)
 - [八零恶毒后妈杀疯了](https://www.fshxjd.com/book/74i08g8/)
 - [星露谷，但大秦帝国](https://www.fshxjd.com/book/74i0626/)
 - [[封神]圣人生欲](https://www.fshxjd.com/book/74i053h/)
@@ -126,6 +123,7 @@
 - [暗涌[破镜重圆]](https://www.fshxjd.com/book/74hvoki/)
 - [道长在诡异世界捉诡](https://www.fshxjd.com/book/74hvo02/)
 - [人气反派的马甲演绎实录](https://www.fshxjd.com/book/74hvl5q/)
+- [娶了女装心机太子](https://www.fshxjd.com/book/74hvjlk/)
 - [雇佣毛茸茸开农场](https://www.fshxjd.com/book/74hvjgj/)
 - [惊！S级诡异竟是我自己](https://www.fshxjd.com/book/74hvicd/)
 - [性转成真千金靠写文逆袭了](https://www.fshxjd.com/book/74hvi8h/)
@@ -139,7 +137,7 @@
 - [魏尔伦猫猫能有什么坏心思呢](https://www.fshxjd.com/book/74hv5su/)
 - [区区精灵[西幻]](https://www.fshxjd.com/book/74hv2qh/)
 - [嘲讽力拉满的我该如何在异世界生活](https://www.fshxjd.com/book/74hv1bg/)
-- [和八个男人身陷瘟疫之地](https://www.fshxjd.com/book/74hv16v/)
+- [与宿敌他哥契约成婚后](https://www.fshxjd.com/book/74hv18k/)
 - [本官早知他是狐狸变的](https://www.fshxjd.com/book/74hv0i8/)
 - [道长他为何那样](https://www.fshxjd.com/book/74huurn/)
 - [救命！白无常每天都在钓我](https://www.fshxjd.com/book/74huumq/)

@@ -1,7 +1,7 @@
 
 # 唯我小说网-最新小说在线阅读,好看小说全文阅读
 
-更新时间：2026-08-25 03:20:35
+更新时间：2026-08-27 03:22:41
 
 唯我小说网提供最新最热门的小说在线阅读服务，包括但不限于各类好看的小说全文内容，满足广大读者的需求。
 
@@ -14,23 +14,26 @@
 - [夺友妻（女尊）](https://www.hkffbw.com/book/4nr5rdu/)
 - [他要和我谈恋爱](https://www.hkffbw.com/book/4nr5rdr/)
 - [高调装神，猥琐发育](https://www.hkffbw.com/book/4nr5rcf/)
+- [直男咒术师的限制级游戏](https://www.hkffbw.com/book/4nr5r9h/)
 - [纯爱宇智波基本恋爱法](https://www.hkffbw.com/book/4nr5r9a/)
-- [高嫁之后](https://www.hkffbw.com/book/4nr5r93/)
-- [[希腊神话]蛇蛇神生美妙](https://www.hkffbw.com/book/4nr5r7m/)
+- [从异世界穿回来后](https://www.hkffbw.com/book/4nr5r7l/)
+- [我的老公是暴君](https://www.hkffbw.com/book/4nr4nhb/)
 - [某柯学的正义伙伴](https://www.hkffbw.com/book/4nr31f2/)
-- [[足球]最佳前锋](https://www.hkffbw.com/book/f5v1b1/)
-- [伪装纨绔，怎么成了名相](https://www.hkffbw.com/book/f5uuss/)
+- [五美元在哥谭活一月](https://www.hkffbw.com/book/4nr2o9m/)
+- [我有嘉宾](https://www.hkffbw.com/book/4nr2j3l/)
+- [沈助理又在隐藏他的超能力](https://www.hkffbw.com/book/f5vf27/)
+- [野比春子穿越事件簿](https://www.hkffbw.com/book/f5v30j/)
+- [[全职高手]问就是没钱](https://www.hkffbw.com/book/f5v0el/)
+- [作家与读者](https://www.hkffbw.com/book/f5uqif/)
+- [绿叶](https://www.hkffbw.com/book/f5uq5t/)
+- [我与龙傲天寿命共享](https://www.hkffbw.com/book/f5uoav/)
 - [简单罗曼史](https://www.hkffbw.com/book/f5ukmq/)
 - [这谁的沙雕二次元心声！](https://www.hkffbw.com/book/f5uk4n/)
 - [老公是松散生命体](https://www.hkffbw.com/book/f5uhrl/)
-- [一枝枝怨](https://www.hkffbw.com/book/f5uhoq/)
-- [在魔法世界屯田争霸](https://www.hkffbw.com/book/f5ucfl/)
+- [多梦你一会儿](https://www.hkffbw.com/book/f5u911/)
 - [[足球]罗蜜第一志愿](https://www.hkffbw.com/book/f5u6mh/)
 - [拯救世界从扮演反派开始](https://www.hkffbw.com/book/f5u20n/)
 - [和前女友的心上人he了](https://www.hkffbw.com/book/f5tv67/)
-- [在民俗惊悚片被诸神庇护](https://www.hkffbw.com/book/f5trkv/)
-- [哥你不能不要我](https://www.hkffbw.com/book/f5tj2g/)
-- [被奇犽告白以后](https://www.hkffbw.com/book/1git5n/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1304/index.md)

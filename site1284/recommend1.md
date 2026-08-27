@@ -1,14 +1,13 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-08-25 03:24:41
+更新时间：2026-08-27 03:26:53
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
 - [爱你中文网](https://www.longjiangstone.com/)
 
 ## 最新小说
-- [养父](https://www.longjiangstone.com/book/34b4iv/)
 - [原配夫人](https://www.longjiangstone.com/book/34b4it/)
 - [病弱世子娇养手札](https://www.longjiangstone.com/book/34b4is/)
 - [虫族雌兄，你好香啊](https://www.longjiangstone.com/book/34b4ir/)
@@ -26,7 +25,7 @@
 - [越界沉溺](https://www.longjiangstone.com/book/34b4ie/)
 - [我和马甲真没在一起](https://www.longjiangstone.com/book/34b4id/)
 - [[足球]小甜饼](https://www.longjiangstone.com/book/34b4ic/)
-- [九零首富的替嫁小甜妻](https://www.longjiangstone.com/book/34b4ib/)
+- [九零首富的替嫁小媳妇](https://www.longjiangstone.com/book/34b4ib/)
 - [当咒术高专来了个杀鬼道士](https://www.longjiangstone.com/book/34b4ia/)
 - [玄意未尽时 [穿书]](https://www.longjiangstone.com/book/34b4i9/)
 - [救命！白无常每天都在钓我](https://www.longjiangstone.com/book/34b4i8/)
@@ -53,7 +52,7 @@
 - [在尤文图斯养超巨[足球]](https://www.longjiangstone.com/book/34b4hi/)
 - [断供留子，老公赛级白男](https://www.longjiangstone.com/book/34b4hh/)
 - [[西幻]玛赫里魔药店经营实录](https://www.longjiangstone.com/book/34b4hg/)
-- [[综]成年人为什么会成为救世主](https://www.longjiangstone.com/book/34b4hf/)
+- [[反穿]我的救世主生涯不对劲？](https://www.longjiangstone.com/book/34b4hf/)
 - [神之子严胜](https://www.longjiangstone.com/book/34b4hd/)
 - [朕看上的少年是侠女](https://www.longjiangstone.com/book/34b4hc/)
 - [被天龙人圈养的老实人](https://www.longjiangstone.com/book/34b4hb/)
@@ -81,11 +80,9 @@
 - [被偏执混血daddy盯上了](https://www.longjiangstone.com/book/34b4gj/)
 - [李师傅拳打好莱坞[六零]](https://www.longjiangstone.com/book/34b4gi/)
 - [高调装神，猥琐发育](https://www.longjiangstone.com/book/34b4gf/)
-- [暴君的赝品公主](https://www.longjiangstone.com/book/34b4ge/)
 - [假少爷不想活了](https://www.longjiangstone.com/book/34b4gd/)
 - [千禧年，拆迁分了十栋楼！](https://www.longjiangstone.com/book/34b4fj/)
 - [纯爱宇智波基本恋爱法](https://www.longjiangstone.com/book/34b4f0/)
-- [和八个男人身陷瘟疫之地](https://www.longjiangstone.com/book/34b3jg/)
 - [道长他为何那样](https://www.longjiangstone.com/book/34b349/)
 - [六零之成了卷王的妹妹](https://www.longjiangstone.com/book/34b33b/)
 - [古代种田养娃日常](https://www.longjiangstone.com/book/34ae5u/)
@@ -94,7 +91,7 @@
 - [老公对不起](https://www.longjiangstone.com/book/349vpi/)
 - [主角前任他分手分不掉了](https://www.longjiangstone.com/book/3499el/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.longjiangstone.com/book/34941d/)
-- [七零回城女知青[穿书]](https://www.longjiangstone.com/book/3492jd/)
+- [无限末日副本：我有移动安全屋](https://www.longjiangstone.com/book/348tuc/)
 - [御兽师，我打工养你啊](https://www.longjiangstone.com/book/348llu/)
 - [七零捡漏日常](https://www.longjiangstone.com/book/348bg2/)
 - [穿成炮灰后我封神了［快穿］](https://www.longjiangstone.com/book/348bd0/)
@@ -110,15 +107,12 @@
 - [禁止限制文主角转职龙傲天](https://www.longjiangstone.com/book/347krs/)
 - [我演的不是漂亮圣子攻吗?](https://www.longjiangstone.com/book/347k8b/)
 - [渣攻必须he（快穿）](https://www.longjiangstone.com/book/347f7u/)
-- [前女友孩子三岁了](https://www.longjiangstone.com/book/a3ed0/)
 - [她是反派的背景板母亲](https://www.longjiangstone.com/book/a3c91/)
 - [绿茶男来袭（快穿）](https://www.longjiangstone.com/book/a3904/)
 - [喜恶同因[青梅竹马]](https://www.longjiangstone.com/book/a384h/)
 - [星际第一女A[穿书]](https://www.longjiangstone.com/book/a359h/)
 - [成为养成系练习生后](https://www.longjiangstone.com/book/a33dg/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.longjiangstone.com/book/a3211/)
 - [你对寡人的猫有什么意见？](https://www.longjiangstone.com/book/a314c/)
-- [废太子联盟](https://www.longjiangstone.com/book/a304h/)
 - [迷雾求生，种田玩家也能当榜一？](https://www.longjiangstone.com/book/a2t74/)
 - [为诡异打工，但反封建迷信](https://www.longjiangstone.com/book/a2t15/)
 - [木叶RPG，恋爱系物语](https://www.longjiangstone.com/book/a2sgu/)
@@ -128,6 +122,7 @@
 - [太宗今天又哭了吗](https://www.longjiangstone.com/book/a2p5h/)
 - [壮受虫母今天也想逃](https://www.longjiangstone.com/book/a2mg5/)
 - [邻居小孩太有钱[快穿]](https://www.longjiangstone.com/book/a2m9f/)
+- [贵族学院女保安竟是万人迷](https://www.longjiangstone.com/book/a2ia3/)
 - [绝对占有](https://www.longjiangstone.com/book/a2c79/)
 - [至尊法师克拉克[综英美]](https://www.longjiangstone.com/book/a2bum/)
 - [夜偶](https://www.longjiangstone.com/book/a2brp/)
@@ -141,6 +136,7 @@
 - [道长在诡异世界捉诡](https://www.longjiangstone.com/book/a21en/)
 - [惊！S级诡异竟是我自己](https://www.longjiangstone.com/book/a1va4/)
 - [性转成真千金靠写文逆袭了](https://www.longjiangstone.com/book/a1v2m/)
+- [娶了女装心机太子](https://www.longjiangstone.com/book/a1ss5/)
 - [雇佣毛茸茸开农场](https://www.longjiangstone.com/book/a1s2o/)
 - [美人魔头绑定龙傲天系统后](https://www.longjiangstone.com/book/a1pua/)
 - [在赛博世界手搓一座城](https://www.longjiangstone.com/book/a1ppu/)
@@ -151,6 +147,7 @@
 - [在民俗惊悚片被诸神庇护](https://www.longjiangstone.com/book/a1j3e/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.longjiangstone.com/book/a1gqq/)
 - [区区精灵[西幻]](https://www.longjiangstone.com/book/a1e96/)
+- [与宿敌他哥契约成婚后](https://www.longjiangstone.com/book/a1coq/)
 - [本官早知他是狐狸变的](https://www.longjiangstone.com/book/a1bju/)
 - [捡了龙傲天金手指后](https://www.longjiangstone.com/book/104js/)
 - [海岛求生：生活玩家种田囤货](https://www.longjiangstone.com/book/104eg/)
@@ -165,6 +162,7 @@
 - [替嫁后咸鱼继母佛系日常](https://www.longjiangstone.com/book/102o0/)
 - [猫猫也要养家糊口](https://www.longjiangstone.com/book/102lt/)
 - [我真不是算命的！[香江]](https://www.longjiangstone.com/book/102l8/)
+- [完蛋！被恨孕男包围了！](https://www.longjiangstone.com/book/102if/)
 - [穿到反派落魄时](https://www.longjiangstone.com/book/102id/)
 - [95美国贵族高中模拟](https://www.longjiangstone.com/book/37e9/)
 - [全民求生:从小木屋到魔法农场](https://www.longjiangstone.com/book/3771/)
