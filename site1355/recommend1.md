@@ -1,16 +1,15 @@
 
 # 梦翔橙子小说网-全本小说最值得收藏的在线阅读平台
 
-更新时间：2026-08-25 03:25:13
+更新时间：2026-08-27 03:27:25
 
 梦翔橙子小说网为您提供最新、最热门的小说资源，拥有全网最全面的小说库。无论是全本还是连载中，都能在这里找到。是解决书荒问题的理想选择，让您的阅读体验更加流畅愉快。
 
 - [梦翔橙子小说网](https://www.mengxiang668.com/)
 
 ## 最新小说
-- [养父](https://www.mengxiang668.com/book/2nrpeke/)
 - [人妻O救赎指南](https://www.mengxiang668.com/book/2nrpejl/)
-- [七零回城女知青[穿书]](https://www.mengxiang668.com/book/2nrp91i/)
+- [无限末日副本：我有移动安全屋](https://www.mengxiang668.com/book/2nrp4ge/)
 - [窃春欢](https://www.mengxiang668.com/book/2nrorpq/)
 - [[娱乐圈]重生之从编剧开始的快乐生活](https://www.mengxiang668.com/book/2nrorpo/)
 - [老公你人设是不是崩了](https://www.mengxiang668.com/book/2nrorph/)
@@ -71,13 +70,13 @@
 - [冥王陛下今天睡醒了吗[综英美]](https://www.mengxiang668.com/book/2nrorg7/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.mengxiang668.com/book/2nrorfs/)
 - [宿敌为我而死后](https://www.mengxiang668.com/book/2nrorfm/)
-- [[综]成年人为什么会成为救世主](https://www.mengxiang668.com/book/2nrorfl/)
+- [[反穿]我的救世主生涯不对劲？](https://www.mengxiang668.com/book/2nrorfl/)
 - [小白花是黑暗向导](https://www.mengxiang668.com/book/2nrorfa/)
 - [朕看上的少年是侠女](https://www.mengxiang668.com/book/2nrorf0/)
 - [夜莺不渡](https://www.mengxiang668.com/book/2nroren/)
 - [虫族雌兄，你好香啊](https://www.mengxiang668.com/book/2nrorej/)
 - [神之子严胜](https://www.mengxiang668.com/book/2nrorei/)
-- [暴君的赝品公主](https://www.mengxiang668.com/book/2nrokm7/)
+- [完蛋！被恨孕男包围了！](https://www.mengxiang668.com/book/2nrokl3/)
 - [高调装神，猥琐发育](https://www.mengxiang668.com/book/2nrokhd/)
 - [魅魔就不能打网球了吗？](https://www.mengxiang668.com/book/2nrobh2/)
 - [捡了龙傲天金手指后](https://www.mengxiang668.com/book/2nrobga/)
@@ -86,14 +85,13 @@
 - [禁止限制文主角转职龙傲天](https://www.mengxiang668.com/book/2nro8v7/)
 - [我演的不是漂亮圣子攻吗?](https://www.mengxiang668.com/book/2nro23r/)
 - [[希腊神话]基建拯救世界](https://www.mengxiang668.com/book/2nrnuub/)
-- [九零首富的替嫁小甜妻](https://www.mengxiang668.com/book/2nrnsc2/)
+- [九零首富的替嫁小媳妇](https://www.mengxiang668.com/book/2nrnsc2/)
 - [为诡异打工，但反封建迷信](https://www.mengxiang668.com/book/2nrnlrj/)
 - [渣攻必须he（快穿）](https://www.mengxiang668.com/book/2nrnksl/)
 - [在民俗惊悚片被诸神庇护](https://www.mengxiang668.com/book/2nrnhva/)
 - [星际第一女A[穿书]](https://www.mengxiang668.com/book/2nrnhit/)
 - [绿茶男来袭（快穿）](https://www.mengxiang668.com/book/2nrngp9/)
 - [你对寡人的猫有什么意见？](https://www.mengxiang668.com/book/2nrnfgo/)
-- [废太子联盟](https://www.mengxiang668.com/book/2nrneup/)
 - [闺蜜就不能是妻子吗](https://www.mengxiang668.com/book/2nrnbm0/)
 - [我是封建大爹的好孕小娇妻](https://www.mengxiang668.com/book/2nrn8tp/)
 - [木叶RPG，恋爱系物语](https://www.mengxiang668.com/book/2nrn759/)
@@ -108,6 +106,7 @@
 - [壮受虫母今天也想逃](https://www.mengxiang668.com/book/2nrmvfg/)
 - [八零恶毒后妈杀疯了](https://www.mengxiang668.com/book/2nrmtt1/)
 - [夜偶](https://www.mengxiang668.com/book/2nrmsap/)
+- [贵族学院女保安竟是万人迷](https://www.mengxiang668.com/book/2nrmqf2/)
 - [星露谷，但大秦帝国](https://www.mengxiang668.com/book/2nrmogo/)
 - [至尊法师克拉克[综英美]](https://www.mengxiang668.com/book/2nrmk0r/)
 - [是NPC就来和玩家合影](https://www.mengxiang668.com/book/2nrmjk6/)
@@ -119,6 +118,7 @@
 - [[综崩铁]你怎么知道我是令使](https://www.mengxiang668.com/book/2nrm9ri/)
 - [人气反派的马甲演绎实录](https://www.mengxiang668.com/book/2nrm958/)
 - [性转成真千金靠写文逆袭了](https://www.mengxiang668.com/book/2nrm42h/)
+- [娶了女装心机太子](https://www.mengxiang668.com/book/2nrm41l/)
 - [惊！S级诡异竟是我自己](https://www.mengxiang668.com/book/2nrm3qi/)
 - [雇佣毛茸茸开农场](https://www.mengxiang668.com/book/2nrm3nb/)
 - [在赛博世界手搓一座城](https://www.mengxiang668.com/book/2nrm1dt/)
@@ -134,7 +134,7 @@
 - [救命！白无常每天都在钓我](https://www.mengxiang668.com/book/2nrljgt/)
 - [区区精灵[西幻]](https://www.mengxiang668.com/book/2nrlj9u/)
 - [[西幻]玛赫里魔药店经营实录](https://www.mengxiang668.com/book/2nrlj4g/)
-- [和八个男人身陷瘟疫之地](https://www.mengxiang668.com/book/2nrlir3/)
+- [与宿敌他哥契约成婚后](https://www.mengxiang668.com/book/2nrlhb1/)
 - [道长他为何那样](https://www.mengxiang668.com/book/2nrlep1/)
 - [我真不是算命的！[香江]](https://www.mengxiang668.com/book/2nrkmbp/)
 - [警察，但犯罪大师系统[刑侦]](https://www.mengxiang668.com/book/2nrkmb2/)
@@ -145,7 +145,6 @@
 - [穿成炮灰后我封神了［快穿］](https://www.mengxiang668.com/book/2nrklvn/)
 - [海岛求生：生活玩家种田囤货](https://www.mengxiang668.com/book/2nrklou/)
 - [太宗今天又哭了吗](https://www.mengxiang668.com/book/2nrklmo/)
-- [前女友孩子三岁了](https://www.mengxiang668.com/book/2nrklml/)
 - [巨物致富：回乡开钓场](https://www.mengxiang668.com/book/2nrklaj/)
 - [95美国贵族高中模拟](https://www.mengxiang668.com/book/2nrklag/)
 - [纯爱宇智波基本恋爱法](https://www.mengxiang668.com/book/2nrklae/)
@@ -163,7 +162,6 @@
 - [全民求生:从小木屋到魔法农场](https://www.mengxiang668.com/book/2nrkk5p/)
 - [五十年代港城日常](https://www.mengxiang668.com/book/2nrkjjj/)
 - [日化人生[科研]](https://www.mengxiang668.com/book/2nrkjib/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.mengxiang668.com/book/2nrkjg7/)
 - [老公对不起](https://www.mengxiang668.com/book/2nrkje5/)
 - [我是唯一地上神国](https://www.mengxiang668.com/book/2nrkj84/)
 - [如何扮演源氏重宝](https://www.mengxiang668.com/book/2nrkj7t/)

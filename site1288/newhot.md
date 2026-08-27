@@ -1,7 +1,7 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-25 03:30:20
+更新时间：2026-08-27 03:32:56
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
@@ -15,22 +15,26 @@
 - [星际团宠小人鱼](https://www.tiananfoundry.com/book/1ol4mol/)
 - [高调装神，猥琐发育](https://www.tiananfoundry.com/book/1ol4moe/)
 - [纯爱宇智波基本恋爱法](https://www.tiananfoundry.com/book/1ol4mnj/)
-- [[希腊神话]蛇蛇神生美妙](https://www.tiananfoundry.com/book/1ol4mm5/)
-- [高嫁之后](https://www.tiananfoundry.com/book/1ol4mj8/)
+- [直男咒术师的限制级游戏](https://www.tiananfoundry.com/book/1ol4mn6/)
+- [从异世界穿回来后](https://www.tiananfoundry.com/book/1ol4mkp/)
+- [我的老公是暴君](https://www.tiananfoundry.com/book/1ol3iv7/)
 - [某柯学的正义伙伴](https://www.tiananfoundry.com/book/1ol1shv/)
-- [伪装纨绔，怎么成了名相](https://www.tiananfoundry.com/book/5lbl9f/)
-- [[足球]最佳前锋](https://www.tiananfoundry.com/book/5lbj50/)
+- [五美元在哥谭活一月](https://www.tiananfoundry.com/book/1ol1itc/)
+- [我有嘉宾](https://www.tiananfoundry.com/book/1ol1dej/)
+- [沈助理又在隐藏他的超能力](https://www.tiananfoundry.com/book/5lc6gu/)
+- [野比春子穿越事件簿](https://www.tiananfoundry.com/book/5lbq3n/)
+- [[全职高手]问就是没钱](https://www.tiananfoundry.com/book/5lbnul/)
+- [作家与读者](https://www.tiananfoundry.com/book/5lbgcn/)
+- [绿叶](https://www.tiananfoundry.com/book/5lbftp/)
+- [我与龙傲天寿命共享](https://www.tiananfoundry.com/book/5lbcv4/)
 - [这谁的沙雕二次元心声！](https://www.tiananfoundry.com/book/5lbbn6/)
 - [简单罗曼史](https://www.tiananfoundry.com/book/5lbbal/)
-- [一枝枝怨](https://www.tiananfoundry.com/book/5lb8ua/)
 - [老公是松散生命体](https://www.tiananfoundry.com/book/5lb7v6/)
-- [在魔法世界屯田争霸](https://www.tiananfoundry.com/book/5lb0pg/)
+- [多梦你一会儿](https://www.tiananfoundry.com/book/5lauo5/)
 - [[足球]罗蜜第一志愿](https://www.tiananfoundry.com/book/5lateh/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.tiananfoundry.com/book/5latee/)
 - [拯救世界从扮演反派开始](https://www.tiananfoundry.com/book/5laood/)
 - [和前女友的心上人he了](https://www.tiananfoundry.com/book/5lan55/)
-- [在民俗惊悚片被诸神庇护](https://www.tiananfoundry.com/book/5lagim/)
-- [哥你不能不要我](https://www.tiananfoundry.com/book/5la9h8/)
-- [被奇犽告白以后](https://www.tiananfoundry.com/book/i45ki/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1288/index.md)

@@ -1,16 +1,15 @@
 
 # 看剧文学网 - 书友最值得收藏的小说阅读网
 
-更新时间：2026-08-25 03:22:18
+更新时间：2026-08-27 03:24:30
 
 看剧文学网，精选最好看的小说推荐给大家在线阅读。这里有网络小说大全，包括最火、最热门的小说最新章节，是书友最值得收藏的免费小说阅读网。
 
 - [看剧文学网](https://www.kanju788.com/)
 
 ## 最新小说
-- [养父](https://www.kanju788.com/book/to46dk/)
 - [人妻O救赎指南](https://www.kanju788.com/book/to4691/)
-- [七零回城女知青[穿书]](https://www.kanju788.com/book/to40bt/)
+- [无限末日副本：我有移动安全屋](https://www.kanju788.com/book/to3rlh/)
 - [夜莺不渡](https://www.kanju788.com/book/to3jpk/)
 - [小寡夫女装直播捞到了封建亡夫](https://www.kanju788.com/book/to3jpg/)
 - [主角前任他分手分不掉了](https://www.kanju788.com/book/to3jpe/)
@@ -18,7 +17,7 @@
 - [医学大佬在年代文[穿书]](https://www.kanju788.com/book/to3jp9/)
 - [巫女的乱世逃荒记](https://www.kanju788.com/book/to3jp6/)
 - [[综英美]穿过你的黑发我的手](https://www.kanju788.com/book/to3jov/)
-- [[综]成年人为什么会成为救世主](https://www.kanju788.com/book/to3joh/)
+- [[反穿]我的救世主生涯不对劲？](https://www.kanju788.com/book/to3joh/)
 - [奉旨怼人](https://www.kanju788.com/book/to3joe/)
 - [林中的黑巫师](https://www.kanju788.com/book/to3job/)
 - [万人嫌他真不想掉马](https://www.kanju788.com/book/to3jo8/)
@@ -77,8 +76,8 @@
 - [我靠卖盲盒复苏华夏神灵](https://www.kanju788.com/book/to3je8/)
 - [我家刀男不可能是诡异BOSS](https://www.kanju788.com/book/to3je6/)
 - [云深不知处](https://www.kanju788.com/book/to3je5/)
+- [完蛋！被恨孕男包围了！](https://www.kanju788.com/book/to3cm1/)
 - [高调装神，猥琐发育](https://www.kanju788.com/book/to3ckd/)
-- [暴君的赝品公主](https://www.kanju788.com/book/to3ci4/)
 - [喜恶同因[青梅竹马]](https://www.kanju788.com/book/to31tg/)
 - [[足球]替补门将](https://www.kanju788.com/book/to30on/)
 - [禁止限制文主角转职龙傲天](https://www.kanju788.com/book/to30at/)
@@ -86,13 +85,12 @@
 - [魅魔就不能打网球了吗？](https://www.kanju788.com/book/to2vqe/)
 - [我演的不是漂亮圣子攻吗?](https://www.kanju788.com/book/to2n7a/)
 - [[希腊神话]基建拯救世界](https://www.kanju788.com/book/to2l4c/)
-- [九零首富的替嫁小甜妻](https://www.kanju788.com/book/to2i6g/)
+- [九零首富的替嫁小媳妇](https://www.kanju788.com/book/to2i6g/)
 - [为诡异打工，但反封建迷信](https://www.kanju788.com/book/to2d0n/)
 - [渣攻必须he（快穿）](https://www.kanju788.com/book/to2c0l/)
 - [星际第一女A[穿书]](https://www.kanju788.com/book/to2ah6/)
 - [在民俗惊悚片被诸神庇护](https://www.kanju788.com/book/to292n/)
 - [你对寡人的猫有什么意见？](https://www.kanju788.com/book/to28at/)
-- [废太子联盟](https://www.kanju788.com/book/to26ms/)
 - [绿茶男来袭（快穿）](https://www.kanju788.com/book/to26kc/)
 - [闺蜜就不能是妻子吗](https://www.kanju788.com/book/to25d4/)
 - [我是封建大爹的好孕小娇妻](https://www.kanju788.com/book/to21f9/)
@@ -108,6 +106,7 @@
 - [壮受虫母今天也想逃](https://www.kanju788.com/book/to1lsc/)
 - [八零恶毒后妈杀疯了](https://www.kanju788.com/book/to1kpb/)
 - [夜偶](https://www.kanju788.com/book/to1hub/)
+- [贵族学院女保安竟是万人迷](https://www.kanju788.com/book/to1hs1/)
 - [星露谷，但大秦帝国](https://www.kanju788.com/book/to1gt0/)
 - [至尊法师克拉克[综英美]](https://www.kanju788.com/book/to1bts/)
 - [是NPC就来和玩家合影](https://www.kanju788.com/book/to1ab9/)
@@ -120,6 +119,7 @@
 - [趁她之危](https://www.kanju788.com/book/to0ure/)
 - [雇佣毛茸茸开农场](https://www.kanju788.com/book/to0sd3/)
 - [[综崩铁]你怎么知道我是令使](https://www.kanju788.com/book/to0scl/)
+- [娶了女装心机太子](https://www.kanju788.com/book/to0s85/)
 - [惊！S级诡异竟是我自己](https://www.kanju788.com/book/to0qu8/)
 - [性转成真千金靠写文逆袭了](https://www.kanju788.com/book/to0qc6/)
 - [立海大的水仙赛季](https://www.kanju788.com/book/to0obo/)
@@ -131,8 +131,8 @@
 - [在尤文图斯养超巨[足球]](https://www.kanju788.com/book/to0bst/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.kanju788.com/book/to0bnl/)
 - [本官早知他是狐狸变的](https://www.kanju788.com/book/to0bin/)
+- [与宿敌他哥契约成婚后](https://www.kanju788.com/book/to0a34/)
 - [区区精灵[西幻]](https://www.kanju788.com/book/to08vb/)
-- [和八个男人身陷瘟疫之地](https://www.kanju788.com/book/to08u9/)
 - [救命！白无常每天都在钓我](https://www.kanju788.com/book/to08bp/)
 - [[西幻]玛赫里魔药店经营实录](https://www.kanju788.com/book/to08bc/)
 - [道长他为何那样](https://www.kanju788.com/book/to07hs/)
@@ -142,7 +142,6 @@
 - [我有一座安全城](https://www.kanju788.com/book/tnvcrk/)
 - [成为养成系练习生后](https://www.kanju788.com/book/tnvcll/)
 - [被反派暴君听到心声后[穿书]](https://www.kanju788.com/book/tnvclk/)
-- [前女友孩子三岁了](https://www.kanju788.com/book/tnvch9/)
 - [纯爱宇智波基本恋爱法](https://www.kanju788.com/book/tnvcdv/)
 - [大瑛弟国](https://www.kanju788.com/book/tnvcct/)
 - [千禧年，拆迁分了十栋楼！](https://www.kanju788.com/book/tnvc36/)
@@ -167,7 +166,6 @@
 - [95美国贵族高中模拟](https://www.kanju788.com/book/tnvafg/)
 - [全民求生:从小木屋到魔法农场](https://www.kanju788.com/book/tnvaes/)
 - [高门小婢](https://www.kanju788.com/book/tnvae0/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.kanju788.com/book/tnvaap/)
 - [卧底后被港岛大小姐缠上了](https://www.kanju788.com/book/tnvaa4/)
 - [老公对不起](https://www.kanju788.com/book/tnva98/)
 ## 相关内容

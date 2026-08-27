@@ -1,16 +1,15 @@
 
 # 燃文故事小说网 - 无弹窗全本小说免费阅读
 
-更新时间：2026-08-25 03:20:08
+更新时间：2026-08-27 03:22:14
 
 燃文故事小说网提供无弹窗干扰的小说阅读体验，支持全本小说在线免费阅读。
 
 - [燃文故事小说网](https://www.gushi687.com/)
 
 ## 最新小说
-- [养父](https://www.gushi687.com/book/63qukke/)
 - [人妻O救赎指南](https://www.gushi687.com/book/63qukiu/)
-- [七零回城女知青[穿书]](https://www.gushi687.com/book/63quf2r/)
+- [无限末日副本：我有移动安全屋](https://www.gushi687.com/book/63quafo/)
 - [从死亡开始的猎人笔记](https://www.gushi687.com/book/63qu1n2/)
 - [[足球]如此足球，怎能不恨](https://www.gushi687.com/book/63qu1n1/)
 - [咖啡大亨模拟经营指南](https://www.gushi687.com/book/63qu1mq/)
@@ -42,7 +41,7 @@
 - [恶犬品德](https://www.gushi687.com/book/63qu1i4/)
 - [当咒术高专来了个杀鬼道士](https://www.gushi687.com/book/63qu1ht/)
 - [冥王陛下今天睡醒了吗[综英美]](https://www.gushi687.com/book/63qu1hq/)
-- [[综]成年人为什么会成为救世主](https://www.gushi687.com/book/63qu1ho/)
+- [[反穿]我的救世主生涯不对劲？](https://www.gushi687.com/book/63qu1ho/)
 - [始乱终弃清冷首辅后](https://www.gushi687.com/book/63qu1hn/)
 - [你，后室管理员](https://www.gushi687.com/book/63qu1hk/)
 - [我家刀男不可能是诡异BOSS](https://www.gushi687.com/book/63qu1hf/)
@@ -78,7 +77,7 @@
 - [老公你人设是不是崩了](https://www.gushi687.com/book/63qu1ch/)
 - [被天龙人圈养的老实人](https://www.gushi687.com/book/63qu1cc/)
 - [高调装神，猥琐发育](https://www.gushi687.com/book/63qtqic/)
-- [暴君的赝品公主](https://www.gushi687.com/book/63qtqhj/)
+- [完蛋！被恨孕男包围了！](https://www.gushi687.com/book/63qtqdm/)
 - [魅魔就不能打网球了吗？](https://www.gushi687.com/book/63qth17/)
 - [[足球]替补门将](https://www.gushi687.com/book/63qtgp0/)
 - [喜恶同因[青梅竹马]](https://www.gushi687.com/book/63qtga5/)
@@ -86,12 +85,11 @@
 - [捡了龙傲天金手指后](https://www.gushi687.com/book/63qtf86/)
 - [我演的不是漂亮圣子攻吗?](https://www.gushi687.com/book/63qt668/)
 - [[希腊神话]基建拯救世界](https://www.gushi687.com/book/63qt58s/)
-- [九零首富的替嫁小甜妻](https://www.gushi687.com/book/63qt1kk/)
+- [九零首富的替嫁小媳妇](https://www.gushi687.com/book/63qt1kk/)
 - [为诡异打工，但反封建迷信](https://www.gushi687.com/book/63qsru6/)
 - [渣攻必须he（快穿）](https://www.gushi687.com/book/63qsqp0/)
 - [在民俗惊悚片被诸神庇护](https://www.gushi687.com/book/63qson5/)
 - [星际第一女A[穿书]](https://www.gushi687.com/book/63qsodq/)
-- [废太子联盟](https://www.gushi687.com/book/63qsm2s/)
 - [绿茶男来袭（快穿）](https://www.gushi687.com/book/63qslnv/)
 - [你对寡人的猫有什么意见？](https://www.gushi687.com/book/63qskr8/)
 - [闺蜜就不能是妻子吗](https://www.gushi687.com/book/63qshta/)
@@ -108,6 +106,7 @@
 - [八零恶毒后妈杀疯了](https://www.gushi687.com/book/63qs4ur/)
 - [壮受虫母今天也想逃](https://www.gushi687.com/book/63qs4dj/)
 - [夜偶](https://www.gushi687.com/book/63qs268/)
+- [贵族学院女保安竟是万人迷](https://www.gushi687.com/book/63qs1gl/)
 - [星露谷，但大秦帝国](https://www.gushi687.com/book/63qrvmt/)
 - [至尊法师克拉克[综英美]](https://www.gushi687.com/book/63qrqrn/)
 - [是NPC就来和玩家合影](https://www.gushi687.com/book/63qrpre/)
@@ -118,6 +117,7 @@
 - [[综崩铁]你怎么知道我是令使](https://www.gushi687.com/book/63qrgsq/)
 - [道长在诡异世界捉诡](https://www.gushi687.com/book/63qrgaa/)
 - [人气反派的马甲演绎实录](https://www.gushi687.com/book/63qreob/)
+- [娶了女装心机太子](https://www.gushi687.com/book/63qra01/)
 - [惊！S级诡异竟是我自己](https://www.gushi687.com/book/63qr99c/)
 - [性转成真千金靠写文逆袭了](https://www.gushi687.com/book/63qr8ss/)
 - [雇佣毛茸茸开农场](https://www.gushi687.com/book/63qr8hb/)
@@ -132,11 +132,10 @@
 - [本官早知他是狐狸变的](https://www.gushi687.com/book/63qqpvj/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.gushi687.com/book/63qqpm9/)
 - [区区精灵[西幻]](https://www.gushi687.com/book/63qqp64/)
-- [和八个男人身陷瘟疫之地](https://www.gushi687.com/book/63qqo7l/)
+- [与宿敌他哥契约成婚后](https://www.gushi687.com/book/63qqp38/)
 - [[西幻]玛赫里魔药店经营实录](https://www.gushi687.com/book/63qqnnr/)
 - [救命！白无常每天都在钓我](https://www.gushi687.com/book/63qqndd/)
 - [道长他为何那样](https://www.gushi687.com/book/63qqm8l/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.gushi687.com/book/63qpsam/)
 - [全民求生:从小木屋到魔法农场](https://www.gushi687.com/book/63qps90/)
 - [大瑛弟国](https://www.gushi687.com/book/63qps8r/)
 - [巨物致富：回乡开钓场](https://www.gushi687.com/book/63qps7u/)
@@ -156,7 +155,6 @@
 - [猫猫也要养家糊口](https://www.gushi687.com/book/63qpqmo/)
 - [我是唯一地上神国](https://www.gushi687.com/book/63qpqir/)
 - [我有一座安全城](https://www.gushi687.com/book/63qpqi3/)
-- [前女友孩子三岁了](https://www.gushi687.com/book/63qpqfk/)
 - [海岛求生：生活玩家种田囤货](https://www.gushi687.com/book/63qpq56/)
 - [千禧年，拆迁分了十栋楼！](https://www.gushi687.com/book/63qpq53/)
 - [太宗今天又哭了吗](https://www.gushi687.com/book/63qpps6/)

@@ -1,7 +1,7 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-08-25 03:24:41
+更新时间：2026-08-27 03:26:53
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
@@ -15,22 +15,24 @@
 - [夺友妻（女尊）](https://www.longjiangstone.com/book/34b4gu/)
 - [高调装神，猥琐发育](https://www.longjiangstone.com/book/34b4gf/)
 - [纯爱宇智波基本恋爱法](https://www.longjiangstone.com/book/34b4f0/)
-- [[希腊神话]蛇蛇神生美妙](https://www.longjiangstone.com/book/34b4eb/)
-- [高嫁之后](https://www.longjiangstone.com/book/34b4e7/)
+- [直男咒术师的限制级游戏](https://www.longjiangstone.com/book/34b4cq/)
 - [某柯学的正义伙伴](https://www.longjiangstone.com/book/348c4v/)
-- [[足球]最佳前锋](https://www.longjiangstone.com/book/a2oc2/)
-- [伪装纨绔，怎么成了名相](https://www.longjiangstone.com/book/a2mct/)
+- [我的老公是暴君](https://www.longjiangstone.com/book/3486jh/)
+- [五美元在哥谭活一月](https://www.longjiangstone.com/book/3481g7/)
+- [我有嘉宾](https://www.longjiangstone.com/book/347r4j/)
+- [沈助理又在隐藏他的超能力](https://www.longjiangstone.com/book/a3a1f/)
+- [野比春子穿越事件簿](https://www.longjiangstone.com/book/a2rs0/)
+- [[全职高手]问就是没钱](https://www.longjiangstone.com/book/a2mi1/)
+- [绿叶](https://www.longjiangstone.com/book/a2i62/)
+- [作家与读者](https://www.longjiangstone.com/book/a2fk4/)
 - [简单罗曼史](https://www.longjiangstone.com/book/a2d38/)
-- [一枝枝怨](https://www.longjiangstone.com/book/a2cbi/)
+- [我与龙傲天寿命共享](https://www.longjiangstone.com/book/a2cti/)
 - [这谁的沙雕二次元心声！](https://www.longjiangstone.com/book/a2c9m/)
 - [老公是松散生命体](https://www.longjiangstone.com/book/a2a1j/)
-- [在魔法世界屯田争霸](https://www.longjiangstone.com/book/a2535/)
+- [多梦你一会儿](https://www.longjiangstone.com/book/a1vpn/)
 - [拯救世界从扮演反派开始](https://www.longjiangstone.com/book/a1rdl/)
 - [[足球]罗蜜第一志愿](https://www.longjiangstone.com/book/a1rb2/)
 - [和前女友的心上人he了](https://www.longjiangstone.com/book/a1mbg/)
-- [在民俗惊悚片被诸神庇护](https://www.longjiangstone.com/book/a1j3e/)
-- [哥你不能不要我](https://www.longjiangstone.com/book/a1apr/)
-- [被奇犽告白以后](https://www.longjiangstone.com/book/aa0/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1284/index.md)
