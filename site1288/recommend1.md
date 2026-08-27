@@ -1,7 +1,7 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-27 03:32:56
+更新时间：2026-08-28 03:33:55
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
@@ -109,7 +109,6 @@
 - [我演的不是漂亮圣子攻吗?](https://www.tiananfoundry.com/book/1ol13r8/)
 - [始皇闺女躺平失败的日子](https://www.tiananfoundry.com/book/1ol11if/)
 - [渣攻必须he（快穿）](https://www.tiananfoundry.com/book/1ol10j5/)
-- [喜恶同因[青梅竹马]](https://www.tiananfoundry.com/book/5lc7er/)
 - [星际第一女A[穿书]](https://www.tiananfoundry.com/book/5lc624/)
 - [成为养成系练习生后](https://www.tiananfoundry.com/book/5lc45p/)
 - [你对寡人的猫有什么意见？](https://www.tiananfoundry.com/book/5lc011/)
@@ -133,7 +132,6 @@
 - [掌中春莺](https://www.tiananfoundry.com/book/5lb1m1/)
 - [惊！S级诡异竟是我自己](https://www.tiananfoundry.com/book/5lb0is/)
 - [误入反派培养直播后](https://www.tiananfoundry.com/book/5lb05p/)
-- [暗涌[破镜重圆]](https://www.tiananfoundry.com/book/5lautn/)
 - [道长在诡异世界捉诡](https://www.tiananfoundry.com/book/5laufs/)
 - [娶了女装心机太子](https://www.tiananfoundry.com/book/5lasb9/)
 - [性转成真千金靠写文逆袭了](https://www.tiananfoundry.com/book/5larhq/)

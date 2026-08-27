@@ -1,7 +1,7 @@
 
 # 爱阅读-最新优质免费无弹窗小说在线阅读
 
-更新时间：2026-08-27 03:37:51
+更新时间：2026-08-28 03:39:06
 
 爱阅读提供清爽干净、页面整洁没弹窗的网络小说阅读体验。这里有大量的免费小说、完本小说供您选择，包括热门言情小说、玄幻小说、仙侠小说等多种类型。是广大书友必备的纯绿色小说阅读网站。
 
@@ -83,7 +83,6 @@
 - [[足球]替补门将](https://www.yuedu788.com/book/1on5f39/)
 - [捡了龙傲天金手指后](https://www.yuedu788.com/book/1on5f1e/)
 - [魅魔就不能打网球了吗？](https://www.yuedu788.com/book/1on5e56/)
-- [喜恶同因[青梅竹马]](https://www.yuedu788.com/book/1on5d8f/)
 - [禁止限制文主角转职龙傲天](https://www.yuedu788.com/book/1on5d0g/)
 - [我演的不是漂亮圣子攻吗?](https://www.yuedu788.com/book/1on55rd/)
 - [[希腊神话]基建拯救世界](https://www.yuedu788.com/book/1on5162/)
@@ -115,7 +114,6 @@
 - [京华无尽夏](https://www.yuedu788.com/book/1on3m50/)
 - [绝对占有](https://www.yuedu788.com/book/1on3kli/)
 - [掌中春莺](https://www.yuedu788.com/book/1on3itr/)
-- [暗涌[破镜重圆]](https://www.yuedu788.com/book/1on3g81/)
 - [道长在诡异世界捉诡](https://www.yuedu788.com/book/1on3f26/)
 - [人气反派的马甲演绎实录](https://www.yuedu788.com/book/1on3djl/)
 - [[综崩铁]你怎么知道我是令使](https://www.yuedu788.com/book/1on3cg4/)

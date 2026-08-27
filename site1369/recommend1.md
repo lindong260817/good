@@ -1,7 +1,7 @@
 
 # 武侠文学网 - 值得收藏的小说阅读平台
 
-更新时间：2026-08-27 03:35:17
+更新时间：2026-08-28 03:36:27
 
 武侠文学网为您提供丰富多样的小说资源，在这里您可以找到最新最热门的小说作品。无论是经典文学还是现代流行小说，都是您值得收藏的阅读选择。
 
@@ -81,7 +81,6 @@
 - [反派人生，易如反掌[快穿]](https://www.wuxia988.com/book/1ms1s5c/)
 - [高调装神，猥琐发育](https://www.wuxia988.com/book/1ms1lnv/)
 - [捡了龙傲天金手指后](https://www.wuxia988.com/book/1ms1c70/)
-- [喜恶同因[青梅竹马]](https://www.wuxia988.com/book/1ms1c67/)
 - [禁止限制文主角转职龙傲天](https://www.wuxia988.com/book/1ms1bft/)
 - [[足球]替补门将](https://www.wuxia988.com/book/1ms1b79/)
 - [魅魔就不能打网球了吗？](https://www.wuxia988.com/book/1ms1alk/)
@@ -115,7 +114,6 @@
 - [是NPC就来和玩家合影](https://www.wuxia988.com/book/1mrvk7l/)
 - [绝对占有](https://www.wuxia988.com/book/1mrvhkp/)
 - [掌中春莺](https://www.wuxia988.com/book/1mrvhj9/)
-- [暗涌[破镜重圆]](https://www.wuxia988.com/book/1mrve5d/)
 - [道长在诡异世界捉诡](https://www.wuxia988.com/book/1mrvcab/)
 - [[综崩铁]你怎么知道我是令使](https://www.wuxia988.com/book/1mrvbr1/)
 - [人气反派的马甲演绎实录](https://www.wuxia988.com/book/1mrv9gt/)

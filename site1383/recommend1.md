@@ -1,21 +1,22 @@
 
 # 紫竹原始小说 - 最新最全的小说文学网站
 
-更新时间：2026-08-27 03:19:37
+更新时间：2026-08-28 03:19:59
 
 紫竹原始小说是一个专注于分享最新、最全的小说文学作品的网站。我们致力于为读者带来全新的阅读体验，欢迎访问我们的网站，尽情享受文学的魅力。
 
 - [紫竹原始小说](https://www.cnysxc.com/)
 
 ## 最新小说
+- [我真的只会Ctrl啊！！！](https://www.cnysxc.com/book/8edvfvk/)
+- [反派人生，易如反掌[快穿]](https://www.cnysxc.com/book/8edvfr6/)
+- [我有特殊的升官技巧](https://www.cnysxc.com/book/8edvfnk/)
 - [无限末日副本：我有移动安全屋](https://www.cnysxc.com/book/8edv96i/)
-- [完蛋！被恨孕男包围了！](https://www.cnysxc.com/book/8eduamc/)
-- [贵族学院女保安竟是万人迷](https://www.cnysxc.com/book/8edtjls/)
+- [始皇闺女躺平失败的日子](https://www.cnysxc.com/book/8eduit5/)
+- [将妹妹嫁给别人后](https://www.cnysxc.com/book/8edtjk4/)
 - [娶了女装心机太子](https://www.cnysxc.com/book/8edsosd/)
-- [与宿敌他哥契约成婚后](https://www.cnysxc.com/book/8eds774/)
 - [人妻O救赎指南](https://www.cnysxc.com/book/8eds6pp/)
 - [金手指夫妻在六零](https://www.cnysxc.com/book/8edrccr/)
-- [她是反派的背景板母亲](https://www.cnysxc.com/book/8edrccq/)
 - [我演的不是漂亮圣子攻吗?](https://www.cnysxc.com/book/8edrcck/)
 - [在赛博世界手搓一座城](https://www.cnysxc.com/book/8edrcc7/)
 - [区区精灵[西幻]](https://www.cnysxc.com/book/8edrcbt/)
@@ -28,7 +29,6 @@
 - [[足球]如此足球，怎能不恨](https://www.cnysxc.com/book/8edrc7t/)
 - [[西幻]玛赫里魔药店经营实录](https://www.cnysxc.com/book/8edrc6f/)
 - [绝色美人模拟器](https://www.cnysxc.com/book/8edrc5m/)
-- [喜恶同因[青梅竹马]](https://www.cnysxc.com/book/8edrc5l/)
 - [越界沉溺](https://www.cnysxc.com/book/8edrc4m/)
 - [闺蜜就不能是妻子吗](https://www.cnysxc.com/book/8edrc3k/)
 - [禁止限制文主角转职龙傲天](https://www.cnysxc.com/book/8edrc2d/)
@@ -61,7 +61,6 @@
 - [原配夫人](https://www.cnysxc.com/book/8edrbe8/)
 - [夺养媳](https://www.cnysxc.com/book/8edrbd8/)
 - [窃春欢](https://www.cnysxc.com/book/8edrbco/)
-- [千禧年，拆迁分了十栋楼！](https://www.cnysxc.com/book/8edrbci/)
 - [海岛求生：生活玩家种田囤货](https://www.cnysxc.com/book/8edrbas/)
 - [迷雾求生，种田玩家也能当榜一？](https://www.cnysxc.com/book/8edrban/)
 - [小寡夫女装直播捞到了封建亡夫](https://www.cnysxc.com/book/8edrb9t/)
@@ -81,7 +80,6 @@
 - [你，后室管理员](https://www.cnysxc.com/book/8edrauk/)
 - [小可怜替嫁给豪门古板Daddy后](https://www.cnysxc.com/book/8edrats/)
 - [巨物致富：回乡开钓场](https://www.cnysxc.com/book/8edrat5/)
-- [绿茶男来袭（快穿）](https://www.cnysxc.com/book/8edras2/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.cnysxc.com/book/8edraru/)
 - [[封神]圣人生欲](https://www.cnysxc.com/book/8edrare/)
 - [[反穿]我的救世主生涯不对劲？](https://www.cnysxc.com/book/8edraqb/)
@@ -106,7 +104,6 @@
 - [我靠卖盲盒复苏华夏神灵](https://www.cnysxc.com/book/8edracd/)
 - [我有一座安全城](https://www.cnysxc.com/book/8edrac5/)
 - [星际第一女A[穿书]](https://www.cnysxc.com/book/8edrabk/)
-- [老公对不起](https://www.cnysxc.com/book/8edraba/)
 - [从死亡开始的猎人笔记](https://www.cnysxc.com/book/8edrab9/)
 - [我真不是算命的！[香江]](https://www.cnysxc.com/book/8edraap/)
 - [主角前任他分手分不掉了](https://www.cnysxc.com/book/8edraam/)
@@ -155,7 +152,6 @@
 - [趁她之危](https://www.cnysxc.com/book/8edr9ce/)
 - [医学大佬在年代文[穿书]](https://www.cnysxc.com/book/8edr9c9/)
 - [本官早知他是狐狸变的](https://www.cnysxc.com/book/8edr9bl/)
-- [暗涌[破镜重圆]](https://www.cnysxc.com/book/8edr9b0/)
 - [被偏执混血daddy盯上了](https://www.cnysxc.com/book/8edr9au/)
 - [绝对占有](https://www.cnysxc.com/book/8edr99s/)
 - [为诡异打工，但反封建迷信](https://www.cnysxc.com/book/8edr993/)

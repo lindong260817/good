@@ -1,20 +1,32 @@
 
 # 曹操SPA小说 - 小说的海洋，文学的殿堂 | 在线阅读与下载原创小说
 
-更新时间：2026-08-27 03:18:42
+更新时间：2026-08-28 03:18:57
 
 曹操SPA小说是一个专注于优质小说和文学创作的网站，这里是书迷们的天堂，提供丰富的原创网络小说、经典文学作品在线阅读与下载，致力于打造一个充满灵感与创意的文学世界。
 
 - [曹操SPA小说](https://www.caocaospa.com/)
 
 ## 最新小说
-- [[封神]圣人生欲](https://www.caocaospa.com/book/8q1p7n1/)
-- [夺友妻（女尊）](https://www.caocaospa.com/book/8q1p78l/)
-- [纯爱宇智波基本恋爱法](https://www.caocaospa.com/book/8q1p74a/)
-- [你，后室管理员](https://www.caocaospa.com/book/8q1p6sv/)
-- [他要和我谈恋爱](https://www.caocaospa.com/book/8q1p5vq/)
-- [星际团宠小人鱼](https://www.caocaospa.com/book/8q1p5tj/)
-- [高调装神，猥琐发育](https://www.caocaospa.com/book/8q1p4kh/)
+- [[诡秘之主]乌鸦童话](https://www.caocaospa.com/book/8q1sge4/)
+- [被天使之王骗婚后[诡秘之主]](https://www.caocaospa.com/book/8q1s636/)
+- [骗失忆死对头修合欢道](https://www.caocaospa.com/book/8q1s4pm/)
+- [就算是龙傲天也不可以[快穿]](https://www.caocaospa.com/book/8q1s4g7/)
+- [重生后雌君追来了](https://www.caocaospa.com/book/8q1s3n7/)
+- [错嫁春笼（先婚后爱）](https://www.caocaospa.com/book/8q1rr78/)
+- [与清冷O协议结婚后她失忆了](https://www.caocaospa.com/book/8q1rnrb/)
+- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.caocaospa.com/book/8q1rnlj/)
+- [侯府打工人](https://www.caocaospa.com/book/8q1rmh5/)
+- [宝儿楼](https://www.caocaospa.com/book/8q1rk8p/)
+- [全星际都想吃我做的菜](https://www.caocaospa.com/book/8q1rjhd/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.caocaospa.com/book/8q1rhm8/)
+- [和饲养的黑蛇恋爱后](https://www.caocaospa.com/book/8q1rb1n/)
+- [我将双打队友护至身前，自己站桩躺赢](https://www.caocaospa.com/book/8q1r8m5/)
+- [我演的不是漂亮圣子攻吗?](https://www.caocaospa.com/book/8q1p6sg/)
+- [闺蜜就不能是妻子吗](https://www.caocaospa.com/book/8q1p6iv/)
+- [邻居小孩太有钱[快穿]](https://www.caocaospa.com/book/8q1p6fp/)
+- [迷雾求生，种田玩家也能当榜一？](https://www.caocaospa.com/book/8q1p6ci/)
+- [海岛求生：生活玩家种田囤货](https://www.caocaospa.com/book/8q1p5cq/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1401/index.md)

@@ -1,7 +1,7 @@
 
 # 小顽童寻书网-最热门的免费小说阅读平台|全本玄幻言情网游穿越都市小说在线阅读
 
-更新时间：2026-08-27 03:36:34
+更新时间：2026-08-28 03:37:44
 
 小顽童寻书网提供一个无广告、无弹窗干扰的环境，让您享受纯净的小说阅读体验。涵盖玄幻、网游、言情、穿越、都市等多种类型的小说资源，在这里可以找到最新的章节更新以及完整的书籍内容。
 
@@ -152,7 +152,6 @@
 - [娶了女装心机太子](https://www.xwt999.com/book/1u5ieka/)
 - [人妻O救赎指南](https://www.xwt999.com/book/1u5iek8/)
 - [至尊法师克拉克[综英美]](https://www.xwt999.com/book/1u5iek6/)
-- [暗涌[破镜重圆]](https://www.xwt999.com/book/1u5ieim/)
 - [被反派暴君听到心声后[穿书]](https://www.xwt999.com/book/1u5iei3/)
 - [当咒术高专来了个杀鬼道士](https://www.xwt999.com/book/1u5iehs/)
 - [高门小婢](https://www.xwt999.com/book/1u5iegm/)
@@ -162,7 +161,6 @@
 - [我演的不是漂亮圣子攻吗?](https://www.xwt999.com/book/1u5ieeq/)
 - [星际团宠小人鱼](https://www.xwt999.com/book/1u5ieem/)
 - [[希腊神话]基建拯救世界](https://www.xwt999.com/book/1u5ieeh/)
-- [喜恶同因[青梅竹马]](https://www.xwt999.com/book/1u5iee7/)
 - [夜莺不渡](https://www.xwt999.com/book/1u5iee4/)
 - [[娱乐圈]重生之从编剧开始的快乐生活](https://www.xwt999.com/book/1u5iedn/)
 - [与冷脸糙汉相亲后](https://www.xwt999.com/book/1u5iech/)

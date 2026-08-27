@@ -1,7 +1,7 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-08-27 03:28:22
+更新时间：2026-08-28 03:29:03
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。
 
@@ -89,7 +89,6 @@
 - [绝色美人模拟器](https://www.pusytgp.com/book/7pbmrms/)
 - [被反派暴君听到心声后[穿书]](https://www.pusytgp.com/book/7pbmrd8/)
 - [我演的不是漂亮圣子攻吗?](https://www.pusytgp.com/book/7pbmo83/)
-- [喜恶同因[青梅竹马]](https://www.pusytgp.com/book/7pbmmob/)
 - [[希腊神话]基建拯救世界](https://www.pusytgp.com/book/7pbmhk8/)
 - [始皇闺女躺平失败的日子](https://www.pusytgp.com/book/7pbmgev/)
 - [九零首富的替嫁小媳妇](https://www.pusytgp.com/book/7pbmdh9/)
@@ -121,7 +120,6 @@
 - [绝对占有](https://www.pusytgp.com/book/7pbl83h/)
 - [被四皇错看成小动物后](https://www.pusytgp.com/book/7pbl7v1/)
 - [掌中春莺](https://www.pusytgp.com/book/7pbl3ng/)
-- [暗涌[破镜重圆]](https://www.pusytgp.com/book/7pbl2o8/)
 - [道长在诡异世界捉诡](https://www.pusytgp.com/book/7pbl0s7/)
 - [人气反派的马甲演绎实录](https://www.pusytgp.com/book/7pbktql/)
 - [娶了女装心机太子](https://www.pusytgp.com/book/7pbksac/)

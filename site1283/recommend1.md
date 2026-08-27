@@ -1,7 +1,7 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-08-27 03:19:19
+更新时间：2026-08-28 03:19:41
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
@@ -81,18 +81,19 @@
 - [十九世纪贵族厨房（美食）](https://www.cialisgs.com/book/89ru3eg/)
 - [高调装神，猥琐发育](https://www.cialisgs.com/book/89ru3ed/)
 - [假少爷不想活了](https://www.cialisgs.com/book/89ru3db/)
-- [千禧年，拆迁分了十栋楼！](https://www.cialisgs.com/book/89ru3d7/)
 - [纯爱宇智波基本恋爱法](https://www.cialisgs.com/book/89ru3bi/)
 - [六零之成了卷王的妹妹](https://www.cialisgs.com/book/89ru24b/)
 - [道长他为何那样](https://www.cialisgs.com/book/89ru23d/)
 - [古代种田养娃日常](https://www.cialisgs.com/book/89rtcav/)
 - [恶犬品德](https://www.cialisgs.com/book/89rt1pc/)
 - [被反派暴君听到心声后[穿书]](https://www.cialisgs.com/book/89rsv63/)
-- [老公对不起](https://www.cialisgs.com/book/89rsl9m/)
 - [主角前任他分手分不掉了](https://www.cialisgs.com/book/89rsdit/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.cialisgs.com/book/89rs6tq/)
 - [无限末日副本：我有移动安全屋](https://www.cialisgs.com/book/89rrrpk/)
+- [我有特殊的升官技巧](https://www.cialisgs.com/book/89rrlkm/)
 - [御兽师，我打工养你啊](https://www.cialisgs.com/book/89rrjhn/)
+- [反派人生，易如反掌[快穿]](https://www.cialisgs.com/book/89rri20/)
+- [我真的只会Ctrl啊！！！](https://www.cialisgs.com/book/89rr9e0/)
 - [穿成炮灰后我封神了［快穿］](https://www.cialisgs.com/book/89rr9c1/)
 - [七零捡漏日常](https://www.cialisgs.com/book/89rr9bc/)
 - [日化人生[科研]](https://www.cialisgs.com/book/89rqtj1/)
@@ -105,12 +106,10 @@
 - [人妻O救赎指南](https://www.cialisgs.com/book/89rqmf5/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.cialisgs.com/book/89rqjp6/)
 - [我演的不是漂亮圣子攻吗?](https://www.cialisgs.com/book/89rqhek/)
+- [始皇闺女躺平失败的日子](https://www.cialisgs.com/book/89rqf5l/)
 - [禁止限制文主角转职龙傲天](https://www.cialisgs.com/book/89rqehj/)
 - [渣攻必须he（快穿）](https://www.cialisgs.com/book/89rqcru/)
-- [她是反派的背景板母亲](https://www.cialisgs.com/book/qirkuq/)
 - [星际第一女A[穿书]](https://www.cialisgs.com/book/qiria5/)
-- [绿茶男来袭（快穿）](https://www.cialisgs.com/book/qirhe6/)
-- [喜恶同因[青梅竹马]](https://www.cialisgs.com/book/qirfo3/)
 - [成为养成系练习生后](https://www.cialisgs.com/book/qireut/)
 - [你对寡人的猫有什么意见？](https://www.cialisgs.com/book/qirc5r/)
 - [闺蜜就不能是妻子吗](https://www.cialisgs.com/book/qir9fa/)
@@ -122,7 +121,6 @@
 - [太宗今天又哭了吗](https://www.cialisgs.com/book/qir1hu/)
 - [我是封建大爹的好孕小娇妻](https://www.cialisgs.com/book/qir152/)
 - [壮受虫母今天也想逃](https://www.cialisgs.com/book/qiqvjg/)
-- [贵族学院女保安竟是万人迷](https://www.cialisgs.com/book/qiqp4i/)
 - [至尊法师克拉克[综英美]](https://www.cialisgs.com/book/qiqna6/)
 - [京华无尽夏](https://www.cialisgs.com/book/qiqmh1/)
 - [星露谷，但大秦帝国](https://www.cialisgs.com/book/qiqjjd/)
@@ -130,9 +128,9 @@
 - [夜偶](https://www.cialisgs.com/book/qiqj6u/)
 - [是NPC就来和玩家合影](https://www.cialisgs.com/book/qiqine/)
 - [掌中春莺](https://www.cialisgs.com/book/qiqdln/)
+- [将妹妹嫁给别人后](https://www.cialisgs.com/book/qiqctg/)
 - [[希腊神话]基建拯救世界](https://www.cialisgs.com/book/qiqcsq/)
 - [道长在诡异世界捉诡](https://www.cialisgs.com/book/qiqb84/)
-- [暗涌[破镜重圆]](https://www.cialisgs.com/book/qiqb6r/)
 - [惊！S级诡异竟是我自己](https://www.cialisgs.com/book/qiqad3/)
 - [误入反派培养直播后](https://www.cialisgs.com/book/qiq9o8/)
 - [性转成真千金靠写文逆袭了](https://www.cialisgs.com/book/qiq81h/)
@@ -148,7 +146,6 @@
 - [魏尔伦猫猫能有什么坏心思呢](https://www.cialisgs.com/book/qipp5g/)
 - [区区精灵[西幻]](https://www.cialisgs.com/book/qipnf0/)
 - [本官早知他是狐狸变的](https://www.cialisgs.com/book/qipnej/)
-- [与宿敌他哥契约成婚后](https://www.cialisgs.com/book/qipl2v/)
 - [95美国贵族高中模拟](https://www.cialisgs.com/book/2l2i4n/)
 - [大瑛弟国](https://www.cialisgs.com/book/2l2i2f/)
 - [警察，但犯罪大师系统[刑侦]](https://www.cialisgs.com/book/2l2hlk/)
@@ -165,7 +162,6 @@
 - [穿到反派落魄时](https://www.cialisgs.com/book/8g8bd/)
 - [全民求生:从小木屋到魔法农场](https://www.cialisgs.com/book/8g8bb/)
 - [高门小婢](https://www.cialisgs.com/book/8g8am/)
-- [完蛋！被恨孕男包围了！](https://www.cialisgs.com/book/8g88j/)
 - [替嫁后咸鱼继母佛系日常](https://www.cialisgs.com/book/8g875/)
 - [我有一座安全城](https://www.cialisgs.com/book/8g823/)
 ## 相关内容

@@ -1,7 +1,7 @@
 
 # 生活文学小说-质感小说文学网站|高质量文学作品与创作交流平台
 
-更新时间：2026-08-27 03:30:26
+更新时间：2026-08-28 03:31:06
 
 生活文学小说是一个专注于提供质感小说文学的网站，致力于为文学爱好者打造一个高质量的文学作品和创作交流平台，在这里可以享受到独特的夜间文学之美。
 
@@ -82,7 +82,6 @@
 - [高调装神，猥琐发育](https://www.shenghuo988.com/book/86g9kll/)
 - [禁止限制文主角转职龙傲天](https://www.shenghuo988.com/book/86g9bn7/)
 - [捡了龙傲天金手指后](https://www.shenghuo988.com/book/86g9bh2/)
-- [喜恶同因[青梅竹马]](https://www.shenghuo988.com/book/86g9asm/)
 - [魅魔就不能打网球了吗？](https://www.shenghuo988.com/book/86g9a99/)
 - [[足球]替补门将](https://www.shenghuo988.com/book/86g99h7/)
 - [我演的不是漂亮圣子攻吗?](https://www.shenghuo988.com/book/86g91qb/)
@@ -115,7 +114,6 @@
 - [京华无尽夏](https://www.shenghuo988.com/book/86g7hkc/)
 - [掌中春莺](https://www.shenghuo988.com/book/86g7f02/)
 - [绝对占有](https://www.shenghuo988.com/book/86g7eep/)
-- [暗涌[破镜重圆]](https://www.shenghuo988.com/book/86g7doq/)
 - [道长在诡异世界捉诡](https://www.shenghuo988.com/book/86g7b6j/)
 - [人气反派的马甲演绎实录](https://www.shenghuo988.com/book/86g79cj/)
 - [[综崩铁]你怎么知道我是令使](https://www.shenghuo988.com/book/86g78vv/)

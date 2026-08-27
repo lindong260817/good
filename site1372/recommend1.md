@@ -1,7 +1,7 @@
 
 # 落秋文学网 - 免费全本小说阅读,最新章节更新,无弹窗广告
 
-更新时间：2026-08-27 03:34:04
+更新时间：2026-08-28 03:35:15
 
 落秋文学网提供最快最新的网络小说更新服务，推荐最好看的网络小说排行榜。全站支持无弹窗广告阅读体验，全本小说均可免费在线阅读。
 
@@ -84,7 +84,6 @@
 - [魅魔就不能打网球了吗？](https://www.wenxue868.com/book/rlapor/)
 - [捡了龙傲天金手指后](https://www.wenxue868.com/book/rlapnp/)
 - [[足球]替补门将](https://www.wenxue868.com/book/rlape9/)
-- [喜恶同因[青梅竹马]](https://www.wenxue868.com/book/rlaokp/)
 - [我演的不是漂亮圣子攻吗?](https://www.wenxue868.com/book/rlah39/)
 - [[希腊神话]基建拯救世界](https://www.wenxue868.com/book/rlaf9q/)
 - [九零首富的替嫁小媳妇](https://www.wenxue868.com/book/rlacav/)
@@ -115,7 +114,6 @@
 - [是NPC就来和玩家合影](https://www.wenxue868.com/book/rl9116/)
 - [绝对占有](https://www.wenxue868.com/book/rl8v0b/)
 - [掌中春莺](https://www.wenxue868.com/book/rl8ud2/)
-- [暗涌[破镜重圆]](https://www.wenxue868.com/book/rl8qve/)
 - [[综崩铁]你怎么知道我是令使](https://www.wenxue868.com/book/rl8pdk/)
 - [人气反派的马甲演绎实录](https://www.wenxue868.com/book/rl8ob5/)
 - [道长在诡异世界捉诡](https://www.wenxue868.com/book/rl8o80/)
