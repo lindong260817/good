@@ -1,39 +1,31 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-08-27 03:29:32
+更新时间：2026-08-28 03:30:13
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
 - [笔趣阁啦](https://www.qingyuchun.com/)
 
 ## 最新小说
-- [[封神]圣人生欲](https://www.qingyuchun.com/book/10578eh/)
-- [星际团宠小人鱼](https://www.qingyuchun.com/book/10578e2/)
-- [他要和我谈恋爱](https://www.qingyuchun.com/book/10578dt/)
-- [你，后室管理员](https://www.qingyuchun.com/book/10578dr/)
-- [夺友妻（女尊）](https://www.qingyuchun.com/book/10578dh/)
-- [高调装神，猥琐发育](https://www.qingyuchun.com/book/10578ce/)
-- [直男咒术师的限制级游戏](https://www.qingyuchun.com/book/105789t/)
-- [纯爱宇智波基本恋爱法](https://www.qingyuchun.com/book/105788k/)
-- [某柯学的正义伙伴](https://www.qingyuchun.com/book/1054fqs/)
-- [我的老公是暴君](https://www.qingyuchun.com/book/10548h1/)
-- [五美元在哥谭活一月](https://www.qingyuchun.com/book/10544ti/)
-- [我有嘉宾](https://www.qingyuchun.com/book/1053upq/)
-- [沈助理又在隐藏他的超能力](https://www.qingyuchun.com/book/36vlen/)
-- [野比春子穿越事件簿](https://www.qingyuchun.com/book/36vava/)
-- [[全职高手]问就是没钱](https://www.qingyuchun.com/book/36v46a/)
-- [作家与读者](https://www.qingyuchun.com/book/36uuk1/)
-- [绿叶](https://www.qingyuchun.com/book/36usge/)
-- [简单罗曼史](https://www.qingyuchun.com/book/36urem/)
-- [我与龙傲天寿命共享](https://www.qingyuchun.com/book/36uqil/)
-- [这谁的沙雕二次元心声！](https://www.qingyuchun.com/book/36uon7/)
-- [老公是松散生命体](https://www.qingyuchun.com/book/36umob/)
-- [多梦你一会儿](https://www.qingyuchun.com/book/36ub5l/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.qingyuchun.com/book/36uahu/)
-- [拯救世界从扮演反派开始](https://www.qingyuchun.com/book/36u8kj/)
-- [[足球]罗蜜第一志愿](https://www.qingyuchun.com/book/36u8i7/)
-- [和前女友的心上人he了](https://www.qingyuchun.com/book/36u78u/)
+- [我在虫族监狱写小说](https://www.qingyuchun.com/book/1054dpo/)
+- [我演的不是漂亮圣子攻吗?](https://www.qingyuchun.com/book/1053p58/)
+- [[诡秘之主]乌鸦童话](https://www.qingyuchun.com/book/1053opf/)
+- [错嫁春笼（先婚后爱）](https://www.qingyuchun.com/book/36vfqc/)
+- [与清冷O协议结婚后她失忆了](https://www.qingyuchun.com/book/36vd6m/)
+- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.qingyuchun.com/book/36vckv/)
+- [迷雾求生，种田玩家也能当榜一？](https://www.qingyuchun.com/book/36vch7/)
+- [被天使之王骗婚后[诡秘之主]](https://www.qingyuchun.com/book/36vcbu/)
+- [闺蜜就不能是妻子吗](https://www.qingyuchun.com/book/36vbf8/)
+- [宝儿楼](https://www.qingyuchun.com/book/36v89m/)
+- [邻居小孩太有钱[快穿]](https://www.qingyuchun.com/book/36v55j/)
+- [重生后雌君追来了](https://www.qingyuchun.com/book/36v1p9/)
+- [全星际都想吃我做的菜](https://www.qingyuchun.com/book/36v0o6/)
+- [和饲养的黑蛇恋爱后](https://www.qingyuchun.com/book/36uvbs/)
+- [我将双打队友护至身前，自己站桩躺赢](https://www.qingyuchun.com/book/36urpq/)
+- [骗失忆死对头修合欢道](https://www.qingyuchun.com/book/36uqqh/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.qingyuchun.com/book/36uate/)
+- [海岛求生：生活玩家种田囤货](https://www.qingyuchun.com/book/a9b8t/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1291/index.md)

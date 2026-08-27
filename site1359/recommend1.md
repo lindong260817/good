@@ -1,15 +1,17 @@
 
 # 笔架中文小说_书友必备的无弹窗小说阅读网
 
-更新时间：2026-08-27 03:18:29
+更新时间：2026-08-28 03:18:43
 
 笔架中文小说致力于打造国内最权威免费小说阅读网, 提供小说在线阅读, 小说TXT下载, 网站页面清爽简洁是广大网络小说爱好者必备的小说阅读网。
 
 - [笔架中文小说](https://www.bijia188.com/)
 
 ## 最新小说
+- [我真的只会Ctrl啊！！！](https://www.bijia188.com/book/6tol7s0/)
 - [人妻O救赎指南](https://www.bijia188.com/book/6toku07/)
 - [无限末日副本：我有移动安全屋](https://www.bijia188.com/book/6tokjkf/)
+- [我有特殊的升官技巧](https://www.bijia188.com/book/6tokdoh/)
 - [小白花是黑暗向导](https://www.bijia188.com/book/6tokb3p/)
 - [医学大佬在年代文[穿书]](https://www.bijia188.com/book/6tokb3d/)
 - [云深不知处](https://www.bijia188.com/book/6tokb36/)
@@ -76,9 +78,8 @@
 - [高三一班[无限]](https://www.bijia188.com/book/6tokap5/)
 - [分手后与诱系妻子再度热恋](https://www.bijia188.com/book/6tokap2/)
 - [主角前任他分手分不掉了](https://www.bijia188.com/book/6tokaok/)
+- [反派人生，易如反掌[快穿]](https://www.bijia188.com/book/6tokabm/)
 - [高调装神，猥琐发育](https://www.bijia188.com/book/6tok3td/)
-- [完蛋！被恨孕男包围了！](https://www.bijia188.com/book/6tok3ta/)
-- [喜恶同因[青梅竹马]](https://www.bijia188.com/book/6tojqrb/)
 - [[足球]替补门将](https://www.bijia188.com/book/6tojqf1/)
 - [捡了龙傲天金手指后](https://www.bijia188.com/book/6tojq5m/)
 - [魅魔就不能打网球了吗？](https://www.bijia188.com/book/6tojpp4/)
@@ -86,11 +87,11 @@
 - [我演的不是漂亮圣子攻吗?](https://www.bijia188.com/book/6tojhdg/)
 - [[希腊神话]基建拯救世界](https://www.bijia188.com/book/6tojern/)
 - [九零首富的替嫁小媳妇](https://www.bijia188.com/book/6tojbm7/)
+- [始皇闺女躺平失败的日子](https://www.bijia188.com/book/6toj9p8/)
 - [为诡异打工，但反封建迷信](https://www.bijia188.com/book/6toj56f/)
 - [渣攻必须he（快穿）](https://www.bijia188.com/book/6toj467/)
 - [星际第一女A[穿书]](https://www.bijia188.com/book/6toj3ep/)
 - [在民俗惊悚片被诸神庇护](https://www.bijia188.com/book/6toj33m/)
-- [绿茶男来袭（快穿）](https://www.bijia188.com/book/6toj0el/)
 - [你对寡人的猫有什么意见？](https://www.bijia188.com/book/6toivfj/)
 - [闺蜜就不能是妻子吗](https://www.bijia188.com/book/6toispm/)
 - [我是封建大爹的好孕小娇妻](https://www.bijia188.com/book/6toioj5/)
@@ -106,14 +107,13 @@
 - [八零恶毒后妈杀疯了](https://www.bijia188.com/book/6toidef/)
 - [壮受虫母今天也想逃](https://www.bijia188.com/book/6toideb/)
 - [夜偶](https://www.bijia188.com/book/6toibok/)
-- [贵族学院女保安竟是万人迷](https://www.bijia188.com/book/6toia9u/)
+- [将妹妹嫁给别人后](https://www.bijia188.com/book/6toiasj/)
 - [星露谷，但大秦帝国](https://www.bijia188.com/book/6toi77n/)
 - [至尊法师克拉克[综英美]](https://www.bijia188.com/book/6toi5dl/)
 - [京华无尽夏](https://www.bijia188.com/book/6toi14k/)
 - [是NPC就来和玩家合影](https://www.bijia188.com/book/6toi0fv/)
 - [掌中春莺](https://www.bijia188.com/book/6tohvcu/)
 - [绝对占有](https://www.bijia188.com/book/6tohv6j/)
-- [暗涌[破镜重圆]](https://www.bijia188.com/book/6tohrnu/)
 - [道长在诡异世界捉诡](https://www.bijia188.com/book/6tohpdl/)
 - [[综崩铁]你怎么知道我是令使](https://www.bijia188.com/book/6tohoct/)
 - [人气反派的马甲演绎实录](https://www.bijia188.com/book/6toho2d/)
@@ -132,12 +132,10 @@
 - [在尤文图斯养超巨[足球]](https://www.bijia188.com/book/6toh4tk/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.bijia188.com/book/6toh47a/)
 - [[西幻]玛赫里魔药店经营实录](https://www.bijia188.com/book/6toh2b8/)
-- [与宿敌他哥契约成婚后](https://www.bijia188.com/book/6toh1id/)
 - [救命！白无常每天都在钓我](https://www.bijia188.com/book/6toh1eh/)
 - [区区精灵[西幻]](https://www.bijia188.com/book/6toh16t/)
 - [道长他为何那样](https://www.bijia188.com/book/6toh02f/)
 - [海岛求生：生活玩家种田囤货](https://www.bijia188.com/book/6tog5ji/)
-- [老公对不起](https://www.bijia188.com/book/6tog5hp/)
 - [穿成炮灰后我封神了［快穿］](https://www.bijia188.com/book/6tog5gb/)
 - [[娱乐圈]过分美丽的她](https://www.bijia188.com/book/6tog56i/)
 - [纯爱宇智波基本恋爱法](https://www.bijia188.com/book/6tog53m/)
@@ -160,8 +158,6 @@
 - [日化人生[科研]](https://www.bijia188.com/book/6tog3d1/)
 - [95美国贵族高中模拟](https://www.bijia188.com/book/6tog3ch/)
 - [大瑛弟国](https://www.bijia188.com/book/6tog3aa/)
-- [千禧年，拆迁分了十栋楼！](https://www.bijia188.com/book/6tog35s/)
-- [她是反派的背景板母亲](https://www.bijia188.com/book/6tog2t2/)
 - [被反派暴君听到心声后[穿书]](https://www.bijia188.com/book/6tog2o8/)
 - [高门小婢](https://www.bijia188.com/book/6tog2n0/)
 - [如何扮演源氏重宝](https://www.bijia188.com/book/6tog2l3/)

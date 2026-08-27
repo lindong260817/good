@@ -1,39 +1,31 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-08-27 03:29:50
+更新时间：2026-08-28 03:30:31
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
 - [七步阁](https://www.revwarny.com/)
 
 ## 最新小说
-- [星际团宠小人鱼](https://www.revwarny.com/book/3sgl7kn/)
-- [[封神]圣人生欲](https://www.revwarny.com/book/3sgl7k8/)
-- [夺友妻（女尊）](https://www.revwarny.com/book/3sgl7k5/)
-- [你，后室管理员](https://www.revwarny.com/book/3sgl7j5/)
-- [他要和我谈恋爱](https://www.revwarny.com/book/3sgl7it/)
-- [高调装神，猥琐发育](https://www.revwarny.com/book/3sgl7ih/)
-- [直男咒术师的限制级游戏](https://www.revwarny.com/book/3sgl7hr/)
-- [纯爱宇智波基本恋爱法](https://www.revwarny.com/book/3sgl7go/)
-- [从异世界穿回来后](https://www.revwarny.com/book/3sgl7dp/)
-- [我的老公是暴君](https://www.revwarny.com/book/3sgk3n8/)
-- [某柯学的正义伙伴](https://www.revwarny.com/book/3sgiemk/)
-- [五美元在哥谭活一月](https://www.revwarny.com/book/3sgi460/)
-- [我有嘉宾](https://www.revwarny.com/book/3sghtti/)
-- [沈助理又在隐藏他的超能力](https://www.revwarny.com/book/ceh0li/)
-- [野比春子穿越事件簿](https://www.revwarny.com/book/cegli0/)
-- [[全职高手]问就是没钱](https://www.revwarny.com/book/cegg42/)
-- [作家与读者](https://www.revwarny.com/book/cegcap/)
-- [绿叶](https://www.revwarny.com/book/ceg9le/)
-- [简单罗曼史](https://www.revwarny.com/book/ceg7ce/)
-- [我与龙傲天寿命共享](https://www.revwarny.com/book/ceg6pa/)
-- [老公是松散生命体](https://www.revwarny.com/book/ceg48f/)
-- [这谁的沙雕二次元心声！](https://www.revwarny.com/book/ceg3rf/)
-- [多梦你一会儿](https://www.revwarny.com/book/cefnl1/)
-- [[足球]罗蜜第一志愿](https://www.revwarny.com/book/cefn53/)
-- [拯救世界从扮演反派开始](https://www.revwarny.com/book/cefn31/)
-- [和前女友的心上人he了](https://www.revwarny.com/book/cefj2g/)
+- [我在虫族监狱写小说](https://www.revwarny.com/book/3sgiclh/)
+- [[诡秘之主]乌鸦童话](https://www.revwarny.com/book/3sghoc8/)
+- [我演的不是漂亮圣子攻吗?](https://www.revwarny.com/book/3sghmuh/)
+- [错嫁春笼（先婚后爱）](https://www.revwarny.com/book/cegr3g/)
+- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.revwarny.com/book/cegqjf/)
+- [迷雾求生，种田玩家也能当榜一？](https://www.revwarny.com/book/cegp32/)
+- [闺蜜就不能是妻子吗](https://www.revwarny.com/book/cegoug/)
+- [被天使之王骗婚后[诡秘之主]](https://www.revwarny.com/book/cegnv4/)
+- [与清冷O协议结婚后她失忆了](https://www.revwarny.com/book/cegnsq/)
+- [宝儿楼](https://www.revwarny.com/book/cegk6t/)
+- [邻居小孩太有钱[快穿]](https://www.revwarny.com/book/ceggth/)
+- [重生后雌君追来了](https://www.revwarny.com/book/cegdri/)
+- [全星际都想吃我做的菜](https://www.revwarny.com/book/cegdlk/)
+- [和饲养的黑蛇恋爱后](https://www.revwarny.com/book/ceg9ej/)
+- [我将双打队友护至身前，自己站桩躺赢](https://www.revwarny.com/book/ceg8ip/)
+- [骗失忆死对头修合欢道](https://www.revwarny.com/book/ceg75u/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.revwarny.com/book/cefq58/)
+- [海岛求生：生活玩家种田囤货](https://www.revwarny.com/book/17r2la/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1302/index.md)

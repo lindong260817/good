@@ -1,7 +1,7 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-08-27 03:29:32
+更新时间：2026-08-28 03:30:13
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
@@ -109,7 +109,6 @@
 - [漂亮小瞎子捡到直男龙傲天](https://www.qingyuchun.com/book/1053ncu/)
 - [始皇闺女躺平失败的日子](https://www.qingyuchun.com/book/1053kr1/)
 - [渣攻必须he（快穿）](https://www.qingyuchun.com/book/1053h8b/)
-- [喜恶同因[青梅竹马]](https://www.qingyuchun.com/book/36vlbl/)
 - [星际第一女A[穿书]](https://www.qingyuchun.com/book/36vh98/)
 - [成为养成系练习生后](https://www.qingyuchun.com/book/36vh1f/)
 - [你对寡人的猫有什么意见？](https://www.qingyuchun.com/book/36vd9b/)
@@ -131,7 +130,6 @@
 - [掌中春莺](https://www.qingyuchun.com/book/36uh4e/)
 - [将妹妹嫁给别人后](https://www.qingyuchun.com/book/36ugnh/)
 - [[希腊神话]基建拯救世界](https://www.qingyuchun.com/book/36uge3/)
-- [暗涌[破镜重圆]](https://www.qingyuchun.com/book/36ufnp/)
 - [误入反派培养直播后](https://www.qingyuchun.com/book/36ufnk/)
 - [道长在诡异世界捉诡](https://www.qingyuchun.com/book/36uffv/)
 - [惊！S级诡异竟是我自己](https://www.qingyuchun.com/book/36ubf8/)

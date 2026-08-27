@@ -1,7 +1,7 @@
 
 # 湾里早市时间小说网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-08-27 03:34:33
+更新时间：2026-08-28 03:35:43
 
 湾里早市时间小说网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
@@ -29,7 +29,6 @@
 - [开局忽悠煤老板拍偶像剧[九零]](https://www.wlzssj.com/book/4pma0qp/)
 - [大瑛弟国](https://www.wlzssj.com/book/4pma0qd/)
 - [他要和我谈恋爱](https://www.wlzssj.com/book/4pma0q8/)
-- [暗涌[破镜重圆]](https://www.wlzssj.com/book/4pma0q4/)
 - [我真不是算命的！[香江]](https://www.wlzssj.com/book/4pma0pa/)
 - [海岛求生：生活玩家种田囤货](https://www.wlzssj.com/book/4pma0ol/)
 - [咖啡大亨模拟经营指南](https://www.wlzssj.com/book/4pma0nr/)
@@ -157,7 +156,6 @@
 - [在柯学世界装路人失败后](https://www.wlzssj.com/book/4pm9u0j/)
 - [渣攻必须he（快穿）](https://www.wlzssj.com/book/4pm9u0h/)
 - [全民求生:从小木屋到魔法农场](https://www.wlzssj.com/book/4pm9tvh/)
-- [喜恶同因[青梅竹马]](https://www.wlzssj.com/book/4pm9tva/)
 - [我和马甲真没在一起](https://www.wlzssj.com/book/4pm9tv1/)
 - [你对寡人的猫有什么意见？](https://www.wlzssj.com/book/4pm9ttu/)
 - [恶犬品德](https://www.wlzssj.com/book/4pm9tst/)

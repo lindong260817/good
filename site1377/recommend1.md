@@ -1,17 +1,21 @@
 
 # 牛魔王JJ电子书 - 小说阅读网, 全本免费完结小说在线阅读及下载
 
-更新时间：2026-08-27 03:27:51
+更新时间：2026-08-28 03:28:26
 
 牛魔王JJ电子书提供精彩小说阅读服务，包括各种类型的小说排行榜、免费好看的小说等。涵盖穿越小说、都市小说、言情小说、玄幻小说等多种类别，支持全本全集完结小说在线阅读以及TXT下载。
 
 - [牛魔王JJ电子书](https://www.nmwjj.com/)
 
 ## 最新小说
+- [我真的只会Ctrl啊！！！](https://www.nmwjj.com/book/18cinuf/)
 - [无限末日副本：我有移动安全屋](https://www.nmwjj.com/book/18cihbh/)
+- [我有特殊的升官技巧](https://www.nmwjj.com/book/18cielu/)
+- [反派人生，易如反掌[快穿]](https://www.nmwjj.com/book/18cib4g/)
 - [人妻O救赎指南](https://www.nmwjj.com/book/18ci35m/)
+- [始皇闺女躺平失败的日子](https://www.nmwjj.com/book/18chb3p/)
+- [将妹妹嫁给别人后](https://www.nmwjj.com/book/18cgdap/)
 - [娶了女装心机太子](https://www.nmwjj.com/book/18cfie6/)
-- [与宿敌他哥契约成婚后](https://www.nmwjj.com/book/18cf160/)
 - [道长他为何那样](https://www.nmwjj.com/book/18cev4f/)
 - [你，后室管理员](https://www.nmwjj.com/book/18ce6ep/)
 - [我演的不是漂亮圣子攻吗?](https://www.nmwjj.com/book/18ce6el/)
@@ -20,7 +24,6 @@
 - [[综英美]穿过你的黑发我的手](https://www.nmwjj.com/book/18ce6cp/)
 - [捡了龙傲天金手指后](https://www.nmwjj.com/book/18ce6cf/)
 - [假道姑也要被真强取豪夺吗](https://www.nmwjj.com/book/18ce6b9/)
-- [老公对不起](https://www.nmwjj.com/book/18ce6b2/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.nmwjj.com/book/18ce68s/)
 - [为诡异打工，但反封建迷信](https://www.nmwjj.com/book/18ce68a/)
 - [断供留子，老公赛级白男](https://www.nmwjj.com/book/18ce67e/)
@@ -48,14 +51,11 @@
 - [宿敌为我而死后](https://www.nmwjj.com/book/18ce5qg/)
 - [人气反派的马甲演绎实录](https://www.nmwjj.com/book/18ce5pf/)
 - [[封神]圣人生欲](https://www.nmwjj.com/book/18ce5p4/)
-- [千禧年，拆迁分了十栋楼！](https://www.nmwjj.com/book/18ce5p0/)
 - [[足球]如此足球，怎能不恨](https://www.nmwjj.com/book/18ce5om/)
 - [夜莺不渡](https://www.nmwjj.com/book/18ce5nv/)
 - [原配夫人](https://www.nmwjj.com/book/18ce5no/)
 - [救命！白无常每天都在钓我](https://www.nmwjj.com/book/18ce5nb/)
 - [纯爱宇智波基本恋爱法](https://www.nmwjj.com/book/18ce5ls/)
-- [完蛋！被恨孕男包围了！](https://www.nmwjj.com/book/18ce5l3/)
-- [贵族学院女保安竟是万人迷](https://www.nmwjj.com/book/18ce5kq/)
 - [御兽师，我打工养你啊](https://www.nmwjj.com/book/18ce5k2/)
 - [病弱世子娇养手札](https://www.nmwjj.com/book/18ce5j4/)
 - [趁她之危](https://www.nmwjj.com/book/18ce5ie/)
@@ -91,7 +91,6 @@
 - [我家刀男不可能是诡异BOSS](https://www.nmwjj.com/book/18ce53v/)
 - [木叶RPG，恋爱系物语](https://www.nmwjj.com/book/18ce537/)
 - [星际团宠小人鱼](https://www.nmwjj.com/book/18ce52v/)
-- [绿茶男来袭（快穿）](https://www.nmwjj.com/book/18ce529/)
 - [夜偶](https://www.nmwjj.com/book/18ce523/)
 - [朕看上的少年是侠女](https://www.nmwjj.com/book/18ce51i/)
 - [你对寡人的猫有什么意见？](https://www.nmwjj.com/book/18ce50s/)
@@ -130,7 +129,6 @@
 - [高门小婢](https://www.nmwjj.com/book/18ce4b2/)
 - [京华无尽夏](https://www.nmwjj.com/book/18ce4aa/)
 - [清澈女大的六零年代](https://www.nmwjj.com/book/18ce491/)
-- [喜恶同因[青梅竹马]](https://www.nmwjj.com/book/18ce48m/)
 - [渣攻必须he（快穿）](https://www.nmwjj.com/book/18ce48j/)
 - [是NPC就来和玩家合影](https://www.nmwjj.com/book/18ce47u/)
 - [成为养成系练习生后](https://www.nmwjj.com/book/18ce478/)
@@ -141,14 +139,12 @@
 - [越界沉溺](https://www.nmwjj.com/book/18ce42h/)
 - [禁止限制文主角转职龙傲天](https://www.nmwjj.com/book/18ce41f/)
 - [[足球]替补门将](https://www.nmwjj.com/book/18ce3uu/)
-- [她是反派的背景板母亲](https://www.nmwjj.com/book/18ce3s7/)
 - [五十年代港城日常](https://www.nmwjj.com/book/18ce3ok/)
 - [和冰山上司隐婚生崽了](https://www.nmwjj.com/book/18ce3o7/)
 - [金手指夫妻在六零](https://www.nmwjj.com/book/18ce3nr/)
 - [海上求生:生活玩家战力爆表](https://www.nmwjj.com/book/18ce3nf/)
 - [海岛求生：生活玩家种田囤货](https://www.nmwjj.com/book/18ce3m7/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.nmwjj.com/book/18ce3lv/)
-- [暗涌[破镜重圆]](https://www.nmwjj.com/book/18ce3kj/)
 - [六零之成了卷王的妹妹](https://www.nmwjj.com/book/18ce3kb/)
 - [我有一座安全城](https://www.nmwjj.com/book/18ce3jr/)
 - [迷雾求生，种田玩家也能当榜一？](https://www.nmwjj.com/book/18ce3hi/)

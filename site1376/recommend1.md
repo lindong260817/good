@@ -1,17 +1,21 @@
 
 # 零点看书吧-书友最值得收藏的网络小说阅读网
 
-更新时间：2026-08-27 03:21:17
+更新时间：2026-08-28 03:21:41
 
 零点看书吧是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节。作为无弹窗的小说阅读平台，零点看书吧成为网络小说爱好者必备的选择。
 
 - [零点看书吧](https://www.gjnbgb.com/)
 
 ## 最新小说
+- [我真的只会Ctrl啊！！！](https://www.gjnbgb.com/book/2s9sbm4/)
 - [无限末日副本：我有移动安全屋](https://www.gjnbgb.com/book/2s9s53e/)
+- [我有特殊的升官技巧](https://www.gjnbgb.com/book/2s9s2be/)
+- [反派人生，易如反掌[快穿]](https://www.gjnbgb.com/book/2s9ruvt/)
 - [人妻O救赎指南](https://www.gjnbgb.com/book/2s9rn1g/)
+- [始皇闺女躺平失败的日子](https://www.gjnbgb.com/book/2s9r0k1/)
+- [将妹妹嫁给别人后](https://www.gjnbgb.com/book/2s9q1tn/)
 - [娶了女装心机太子](https://www.gjnbgb.com/book/2s9p6es/)
-- [与宿敌他哥契约成婚后](https://www.gjnbgb.com/book/2s9omp3/)
 - [道长他为何那样](https://www.gjnbgb.com/book/2s9ojho/)
 - [云深不知处](https://www.gjnbgb.com/book/2s9nqb4/)
 - [成为养成系练习生后](https://www.gjnbgb.com/book/2s9nqb0/)
@@ -27,7 +31,6 @@
 - [当咒术高专来了个杀鬼道士](https://www.gjnbgb.com/book/2s9nq38/)
 - [壮受虫母今天也想逃](https://www.gjnbgb.com/book/2s9nq31/)
 - [金手指夫妻在六零](https://www.gjnbgb.com/book/2s9nq0v/)
-- [绿茶男来袭（快穿）](https://www.gjnbgb.com/book/2s9nq0b/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.gjnbgb.com/book/2s9npvq/)
 - [[娱乐圈]重生之从编剧开始的快乐生活](https://www.gjnbgb.com/book/2s9npv2/)
 - [[西幻]玛赫里魔药店经营实录](https://www.gjnbgb.com/book/2s9npu7/)
@@ -37,10 +40,7 @@
 - [在柯学世界装路人失败后](https://www.gjnbgb.com/book/2s9nps4/)
 - [为诡异打工，但反封建迷信](https://www.gjnbgb.com/book/2s9nprd/)
 - [[希腊神话]基建拯救世界](https://www.gjnbgb.com/book/2s9nppd/)
-- [贵族学院女保安竟是万人迷](https://www.gjnbgb.com/book/2s9npoj/)
-- [喜恶同因[青梅竹马]](https://www.gjnbgb.com/book/2s9npof/)
 - [本官早知他是狐狸变的](https://www.gjnbgb.com/book/2s9npnr/)
-- [老公对不起](https://www.gjnbgb.com/book/2s9npnn/)
 - [夺养媳](https://www.gjnbgb.com/book/2s9npn1/)
 - [邻居小孩太有钱[快穿]](https://www.gjnbgb.com/book/2s9npm3/)
 - [始乱终弃清冷首辅后](https://www.gjnbgb.com/book/2s9nplu/)
@@ -53,7 +53,6 @@
 - [禁止限制文主角转职龙傲天](https://www.gjnbgb.com/book/2s9npff/)
 - [人气反派的马甲演绎实录](https://www.gjnbgb.com/book/2s9npf9/)
 - [与冷脸糙汉相亲后](https://www.gjnbgb.com/book/2s9npf4/)
-- [完蛋！被恨孕男包围了！](https://www.gjnbgb.com/book/2s9npf3/)
 - [掌中春莺](https://www.gjnbgb.com/book/2s9npe2/)
 - [[反穿]我的救世主生涯不对劲？](https://www.gjnbgb.com/book/2s9npe1/)
 - [把讨厌的师兄写进限制文后](https://www.gjnbgb.com/book/2s9npdn/)
@@ -108,12 +107,10 @@
 - [越界沉溺](https://www.gjnbgb.com/book/2s9nogo/)
 - [太宗今天又哭了吗](https://www.gjnbgb.com/book/2s9noga/)
 - [[足球]小甜饼](https://www.gjnbgb.com/book/2s9nofo/)
-- [千禧年，拆迁分了十栋楼！](https://www.gjnbgb.com/book/2s9nofc/)
 - [红楼之玉成佳事](https://www.gjnbgb.com/book/2s9nodo/)
 - [被反派暴君听到心声后[穿书]](https://www.gjnbgb.com/book/2s9nodi/)
 - [美人魔头绑定龙傲天系统后](https://www.gjnbgb.com/book/2s9noca/)
 - [荒滩种田记](https://www.gjnbgb.com/book/2s9noac/)
-- [暗涌[破镜重圆]](https://www.gjnbgb.com/book/2s9noa5/)
 - [我有一座安全城](https://www.gjnbgb.com/book/2s9no9u/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.gjnbgb.com/book/2s9no9h/)
 - [玄意未尽时 [穿书]](https://www.gjnbgb.com/book/2s9no94/)
@@ -145,7 +142,6 @@
 - [我是封建大爹的好孕小娇妻](https://www.gjnbgb.com/book/2s9nnn6/)
 - [咖啡大亨模拟经营指南](https://www.gjnbgb.com/book/2s9nnm0/)
 - [[足球]替补门将](https://www.gjnbgb.com/book/2s9nnlp/)
-- [她是反派的背景板母亲](https://www.gjnbgb.com/book/2s9nnli/)
 - [你，后室管理员](https://www.gjnbgb.com/book/2s9nnk3/)
 - [我家刀男不可能是诡异BOSS](https://www.gjnbgb.com/book/2s9nnjd/)
 - [清澈女大的六零年代](https://www.gjnbgb.com/book/2s9nnjc/)
