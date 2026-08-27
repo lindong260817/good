@@ -1,7 +1,7 @@
 
 # 新乐文小说 - 最热门免费在线阅读平台 | 玄幻、网游、言情、穿越、都市全本小说
 
-更新时间：2026-08-25 03:23:48
+更新时间：2026-08-27 03:26:01
 
 新乐文小说为您提供一个无广告无弹窗的纯净阅读环境，专注于玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读体验。在这里可以找到最新最热的小说章节更新，享受舒适的阅读时光。
 
@@ -14,23 +14,27 @@
 - [夺友妻（女尊）](https://www.ksqinlida.com/book/1svdoba/)
 - [星际团宠小人鱼](https://www.ksqinlida.com/book/1svdob0/)
 - [高调装神，猥琐发育](https://www.ksqinlida.com/book/1svdoah/)
-- [高嫁之后](https://www.ksqinlida.com/book/1svdo9q/)
-- [[希腊神话]蛇蛇神生美妙](https://www.ksqinlida.com/book/1svdo8l/)
+- [直男咒术师的限制级游戏](https://www.ksqinlida.com/book/1svdo8f/)
 - [纯爱宇智波基本恋爱法](https://www.ksqinlida.com/book/1svdo7f/)
+- [从异世界穿回来后](https://www.ksqinlida.com/book/1svdo6r/)
+- [我的老公是暴君](https://www.ksqinlida.com/book/1svckgj/)
 - [某柯学的正义伙伴](https://www.ksqinlida.com/book/1svavfs/)
-- [伪装纨绔，怎么成了名相](https://www.ksqinlida.com/book/6365pk/)
-- [[足球]最佳前锋](https://www.ksqinlida.com/book/63654f/)
+- [五美元在哥谭活一月](https://www.ksqinlida.com/book/1svaimm/)
+- [我有嘉宾](https://www.ksqinlida.com/book/1svacf0/)
+- [沈助理又在隐藏他的超能力](https://www.ksqinlida.com/book/636mq8/)
+- [野比春子穿越事件簿](https://www.ksqinlida.com/book/636bdc/)
+- [[全职高手]问就是没钱](https://www.ksqinlida.com/book/6363u1/)
+- [作家与读者](https://www.ksqinlida.com/book/636109/)
+- [绿叶](https://www.ksqinlida.com/book/635v59/)
+- [我与龙傲天寿命共享](https://www.ksqinlida.com/book/635rjc/)
 - [简单罗曼史](https://www.ksqinlida.com/book/635r67/)
 - [老公是松散生命体](https://www.ksqinlida.com/book/635qo7/)
-- [一枝枝怨](https://www.ksqinlida.com/book/635qcj/)
 - [这谁的沙雕二次元心声！](https://www.ksqinlida.com/book/635pmh/)
-- [在魔法世界屯田争霸](https://www.ksqinlida.com/book/635ikv/)
+- [多梦你一会儿](https://www.ksqinlida.com/book/635cmb/)
 - [[足球]罗蜜第一志愿](https://www.ksqinlida.com/book/635bun/)
 - [拯救世界从扮演反派开始](https://www.ksqinlida.com/book/635bf7/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.ksqinlida.com/book/635a8t/)
 - [和前女友的心上人he了](https://www.ksqinlida.com/book/63581s/)
-- [在民俗惊悚片被诸神庇护](https://www.ksqinlida.com/book/63539f/)
-- [哥你不能不要我](https://www.ksqinlida.com/book/634pd9/)
-- [被奇犽告白以后](https://www.ksqinlida.com/book/jgf9k/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1328/index.md)

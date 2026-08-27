@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-08-25 03:17:04
+更新时间：2026-08-27 03:19:02
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -14,23 +14,26 @@
 - [你，后室管理员](https://www.chuangyi1687.com/book/1hvgop8/)
 - [他要和我谈恋爱](https://www.chuangyi1687.com/book/1hvgop7/)
 - [高调装神，猥琐发育](https://www.chuangyi1687.com/book/1hvgooe/)
+- [从异世界穿回来后](https://www.chuangyi1687.com/book/1hvgoo4/)
 - [纯爱宇智波基本恋爱法](https://www.chuangyi1687.com/book/1hvgojv/)
-- [[希腊神话]蛇蛇神生美妙](https://www.chuangyi1687.com/book/1hvgojp/)
-- [高嫁之后](https://www.chuangyi1687.com/book/1hvgoje/)
+- [直男咒术师的限制级游戏](https://www.chuangyi1687.com/book/1hvgojn/)
+- [我的老公是暴君](https://www.chuangyi1687.com/book/1hvfktl/)
 - [某柯学的正义伙伴](https://www.chuangyi1687.com/book/1hve06a/)
-- [[足球]最佳前锋](https://www.chuangyi1687.com/book/5002re/)
-- [伪装纨绔，怎么成了名相](https://www.chuangyi1687.com/book/5000q9/)
+- [五美元在哥谭活一月](https://www.chuangyi1687.com/book/1hvdiup/)
+- [我有嘉宾](https://www.chuangyi1687.com/book/1hvdfa8/)
+- [沈助理又在隐藏他的超能力](https://www.chuangyi1687.com/book/500j2q/)
+- [野比春子穿越事件簿](https://www.chuangyi1687.com/book/5006n1/)
+- [[全职高手]问就是没钱](https://www.chuangyi1687.com/book/5001su/)
+- [作家与读者](https://www.chuangyi1687.com/book/4vvu1c/)
+- [绿叶](https://www.chuangyi1687.com/book/4vvt09/)
+- [我与龙傲天寿命共享](https://www.chuangyi1687.com/book/4vvpqr/)
 - [简单罗曼史](https://www.chuangyi1687.com/book/4vvncn/)
-- [一枝枝怨](https://www.chuangyi1687.com/book/4vvn1b/)
 - [这谁的沙雕二次元心声！](https://www.chuangyi1687.com/book/4vvm7l/)
 - [老公是松散生命体](https://www.chuangyi1687.com/book/4vvljq/)
-- [在魔法世界屯田争霸](https://www.chuangyi1687.com/book/4vvevl/)
+- [多梦你一会儿](https://www.chuangyi1687.com/book/4vvakb/)
 - [[足球]罗蜜第一志愿](https://www.chuangyi1687.com/book/4vv7ka/)
 - [拯救世界从扮演反派开始](https://www.chuangyi1687.com/book/4vv7fs/)
 - [和前女友的心上人he了](https://www.chuangyi1687.com/book/4vv2v2/)
-- [在民俗惊悚片被诸神庇护](https://www.chuangyi1687.com/book/4vutmn/)
-- [哥你不能不要我](https://www.chuangyi1687.com/book/4vumbd/)
-- [被奇犽告白以后](https://www.chuangyi1687.com/book/1j6ar/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1316/index.md)

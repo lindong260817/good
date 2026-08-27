@@ -1,39 +1,40 @@
 
 # 零点看书吧-书友最值得收藏的网络小说阅读网
 
-更新时间：2026-08-25 03:19:12
+更新时间：2026-08-27 03:21:17
 
 零点看书吧是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节。作为无弹窗的小说阅读平台，零点看书吧成为网络小说爱好者必备的选择。
 
 - [零点看书吧](https://www.gjnbgb.com/)
 
 ## 最新小说
-- [失而复得的白月光[快穿]](https://www.gjnbgb.com/book/2s9rctv/)
-- [[希腊神话]蛇蛇神生美妙](https://www.gjnbgb.com/book/2s9raf4/)
-- [如何正确哄睡暴君](https://www.gjnbgb.com/book/2s9r6me/)
-- [被鬼怪宠爱的漂亮书生](https://www.gjnbgb.com/book/2s9r5j3/)
+- [我的老公是暴君](https://www.gjnbgb.com/book/2s9s6cb/)
+- [五美元在哥谭活一月](https://www.gjnbgb.com/book/2s9rdvd/)
+- [我与龙傲天寿命共享](https://www.gjnbgb.com/book/2s9rbvk/)
+- [绿叶](https://www.gjnbgb.com/book/2s9r80c/)
 - [我不可能舔一个漂亮捞子](https://www.gjnbgb.com/book/2s9qvvp/)
 - [老公是松散生命体](https://www.gjnbgb.com/book/2s9qtd5/)
 - [简单罗曼史](https://www.gjnbgb.com/book/2s9qs8d/)
 - [微臣怜惜公主](https://www.gjnbgb.com/book/2s9qo7e/)
-- [高嫁之后](https://www.gjnbgb.com/book/2s9qn2n/)
-- [哥你不能不要我](https://www.gjnbgb.com/book/2s9qisr/)
-- [被奇犽告白以后](https://www.gjnbgb.com/book/2s9qgtd/)
+- [沈助理又在隐藏他的超能力](https://www.gjnbgb.com/book/2s9ql97/)
+- [同时扮演贵族学院F4和平民校花](https://www.gjnbgb.com/book/2s9qks1/)
+- [大美人beta带球跑了](https://www.gjnbgb.com/book/2s9qei1/)
+- [直男咒术师的限制级游戏](https://www.gjnbgb.com/book/2s9qdut/)
+- [野比春子穿越事件簿](https://www.gjnbgb.com/book/2s9q95q/)
 - [穿为清冷影后的污点A](https://www.gjnbgb.com/book/2s9q94g/)
-- [炮灰的我该如何上位？](https://www.gjnbgb.com/book/2s9q87b/)
-- [在魔法世界屯田争霸](https://www.gjnbgb.com/book/2s9q7vr/)
-- [[足球]最佳前锋](https://www.gjnbgb.com/book/2s9q7lg/)
+- [多梦你一会儿](https://www.gjnbgb.com/book/2s9q82r/)
 - [这谁的沙雕二次元心声！](https://www.gjnbgb.com/book/2s9q7c0/)
-- [伪装纨绔，怎么成了名相](https://www.gjnbgb.com/book/2s9q66b/)
-- [我司艺人永不塌房](https://www.gjnbgb.com/book/2s9q5rp/)
 - [拯救世界从扮演反派开始](https://www.gjnbgb.com/book/2s9q2ep/)
+- [作家与读者](https://www.gjnbgb.com/book/2s9q2ck/)
 - [井闼山经理每天都被挖墙脚](https://www.gjnbgb.com/book/2s9q1ub/)
 - [和前女友的心上人he了](https://www.gjnbgb.com/book/2s9q12n/)
+- [[全职高手]问就是没钱](https://www.gjnbgb.com/book/2s9q0sp/)
 - [[足球]罗蜜第一志愿](https://www.gjnbgb.com/book/2s9ptsc/)
-- [一枝枝怨](https://www.gjnbgb.com/book/2s9psl7/)
 - [某柯学的正义伙伴](https://www.gjnbgb.com/book/2s9prst/)
-- [幼崽假少爷选择回归寒门](https://www.gjnbgb.com/book/2s9ppev/)
-- [在民俗惊悚片被诸神庇护](https://www.gjnbgb.com/book/2s9nq7m/)
+- [[足球]小小鸟堂堂来袭](https://www.gjnbgb.com/book/2s9pml6/)
+- [法外狂猫](https://www.gjnbgb.com/book/2s9pip8/)
+- [好兄弟暴富后非要跟我结婚](https://www.gjnbgb.com/book/2s9phnb/)
+- [和室友他爸恋爱后](https://www.gjnbgb.com/book/2s9pc8e/)
 - [纯爱宇智波基本恋爱法](https://www.gjnbgb.com/book/2s9np8v/)
 - [高调装神，猥琐发育](https://www.gjnbgb.com/book/2s9np4t/)
 - [他要和我谈恋爱](https://www.gjnbgb.com/book/2s9nool/)

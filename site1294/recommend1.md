@@ -1,14 +1,13 @@
 
 # 思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-08-25 03:15:44
+更新时间：2026-08-27 03:17:37
 
 思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。
 
 - [思路客](https://www.968577.com/)
 
 ## 最新小说
-- [养父](https://www.968577.com/book/1b28mau/)
 - [继兄怀孕，孩子是我的](https://www.968577.com/book/1b28mas/)
 - [医学大佬在年代文[穿书]](https://www.968577.com/book/1b28mar/)
 - [嘲讽力拉满的我该如何在异世界生活](https://www.968577.com/book/1b28maq/)
@@ -26,7 +25,7 @@
 - [小可怜替嫁给豪门古板Daddy后](https://www.968577.com/book/1b28mad/)
 - [李师傅拳打好莱坞[六零]](https://www.968577.com/book/1b28mac/)
 - [与冷脸糙汉相亲后](https://www.968577.com/book/1b28mab/)
-- [九零首富的替嫁小甜妻](https://www.968577.com/book/1b28maa/)
+- [九零首富的替嫁小媳妇](https://www.968577.com/book/1b28maa/)
 - [我不是正夫吗？](https://www.968577.com/book/1b28ma9/)
 - [把讨厌的师兄写进限制文后](https://www.968577.com/book/1b28ma8/)
 - [冥王陛下今天睡醒了吗[综英美]](https://www.968577.com/book/1b28ma7/)
@@ -69,7 +68,7 @@
 - [荒滩种田记](https://www.968577.com/book/1b28m8v/)
 - [[综英美]在综恐世界逃生](https://www.968577.com/book/1b28m8u/)
 - [神之子严胜](https://www.968577.com/book/1b28m8t/)
-- [[综]成年人为什么会成为救世主](https://www.968577.com/book/1b28m8s/)
+- [[反穿]我的救世主生涯不对劲？](https://www.968577.com/book/1b28m8s/)
 - [从死亡开始的猎人笔记](https://www.968577.com/book/1b28m8r/)
 - [师尊分裂成两个后天天醋自己](https://www.968577.com/book/1b28m8q/)
 - [奉旨怼人](https://www.968577.com/book/1b28m8p/)
@@ -81,11 +80,9 @@
 - [我家刀男不可能是诡异BOSS](https://www.968577.com/book/1b28m8i/)
 - [十九世纪贵族厨房（美食）](https://www.968577.com/book/1b28m8h/)
 - [高调装神，猥琐发育](https://www.968577.com/book/1b28m8g/)
-- [暴君的赝品公主](https://www.968577.com/book/1b28m8f/)
 - [假少爷不想活了](https://www.968577.com/book/1b28m8c/)
 - [千禧年，拆迁分了十栋楼！](https://www.968577.com/book/1b28m88/)
 - [纯爱宇智波基本恋爱法](https://www.968577.com/book/1b28m3q/)
-- [和八个男人身陷瘟疫之地](https://www.968577.com/book/1b28lbf/)
 - [道长他为何那样](https://www.968577.com/book/1b28kri/)
 - [六零之成了卷王的妹妹](https://www.968577.com/book/1b28krb/)
 - [古代种田养娃日常](https://www.968577.com/book/1b27vim/)
@@ -94,7 +91,7 @@
 - [老公对不起](https://www.968577.com/book/1b2784b/)
 - [主角前任他分手分不掉了](https://www.968577.com/book/1b273ti/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.968577.com/book/1b26ofq/)
-- [七零回城女知青[穿书]](https://www.968577.com/book/1b26jj6/)
+- [无限末日副本：我有移动安全屋](https://www.968577.com/book/1b26f2q/)
 - [御兽师，我打工养你啊](https://www.968577.com/book/1b266l3/)
 - [穿成炮灰后我封神了［快穿］](https://www.968577.com/book/1b25snp/)
 - [七零捡漏日常](https://www.968577.com/book/1b25slp/)
@@ -110,14 +107,11 @@
 - [我演的不是漂亮圣子攻吗?](https://www.968577.com/book/1b256sm/)
 - [禁止限制文主角转职龙傲天](https://www.968577.com/book/1b251kh/)
 - [渣攻必须he（快穿）](https://www.968577.com/book/1b24var/)
-- [前女友孩子三岁了](https://www.968577.com/book/49spu5/)
 - [她是反派的背景板母亲](https://www.968577.com/book/49smnp/)
 - [星际第一女A[穿书]](https://www.968577.com/book/49sjr4/)
 - [喜恶同因[青梅竹马]](https://www.968577.com/book/49sjle/)
 - [绿茶男来袭（快穿）](https://www.968577.com/book/49si2h/)
 - [成为养成系练习生后](https://www.968577.com/book/49se9s/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.968577.com/book/49sdm0/)
-- [废太子联盟](https://www.968577.com/book/49sdho/)
 - [闺蜜就不能是妻子吗](https://www.968577.com/book/49safg/)
 - [为诡异打工，但反封建迷信](https://www.968577.com/book/49sa31/)
 - [你对寡人的猫有什么意见？](https://www.968577.com/book/49s9vb/)
@@ -128,6 +122,7 @@
 - [和冰山上司隐婚生崽了](https://www.968577.com/book/49s5f3/)
 - [我是封建大爹的好孕小娇妻](https://www.968577.com/book/49s3h6/)
 - [壮受虫母今天也想逃](https://www.968577.com/book/49s0f0/)
+- [贵族学院女保安竟是万人迷](https://www.968577.com/book/49rsmn/)
 - [夜偶](https://www.968577.com/book/49rms6/)
 - [星露谷，但大秦帝国](https://www.968577.com/book/49rmqe/)
 - [绝对占有](https://www.968577.com/book/49rm6h/)
@@ -141,6 +136,7 @@
 - [道长在诡异世界捉诡](https://www.968577.com/book/49rc0r/)
 - [惊！S级诡异竟是我自己](https://www.968577.com/book/49rban/)
 - [性转成真千金靠写文逆袭了](https://www.968577.com/book/49r92l/)
+- [娶了女装心机太子](https://www.968577.com/book/49r7vs/)
 - [雇佣毛茸茸开农场](https://www.968577.com/book/49r7m0/)
 - [在赛博世界手搓一座城](https://www.968577.com/book/49r4h9/)
 - [立海大的水仙赛季](https://www.968577.com/book/49r4c6/)
@@ -151,6 +147,7 @@
 - [在民俗惊悚片被诸神庇护](https://www.968577.com/book/49qt65/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.968577.com/book/49qrpu/)
 - [区区精灵[西幻]](https://www.968577.com/book/49qot8/)
+- [与宿敌他哥契约成婚后](https://www.968577.com/book/49qo4c/)
 - [本官早知他是狐狸变的](https://www.968577.com/book/49qmv2/)
 - [穿到反派落魄时](https://www.968577.com/book/dp2e3/)
 - [我有一座安全城](https://www.968577.com/book/dp27s/)
@@ -170,6 +167,7 @@
 - [如何扮演源氏重宝](https://www.968577.com/book/1c3nk/)
 - [替嫁后咸鱼继母佛系日常](https://www.968577.com/book/1c3hl/)
 - [全民求生:从小木屋到魔法农场](https://www.968577.com/book/1c3d6/)
+- [完蛋！被恨孕男包围了！](https://www.968577.com/book/1c3a5/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1294/index.md)

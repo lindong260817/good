@@ -1,45 +1,46 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-08-25 03:31:37
+更新时间：2026-08-27 03:34:18
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。
 
 - [三哥小说网](https://www.wkntmcb.com/)
 
 ## 最新小说
+- [我有嘉宾](https://www.wkntmcb.com/book/48j22s5/)
+- [从异世界穿回来后](https://www.wkntmcb.com/book/48j2273/)
 - [星际团宠小人鱼](https://www.wkntmcb.com/book/48j1tq7/)
 - [夺友妻（女尊）](https://www.wkntmcb.com/book/48j1tp6/)
 - [你，后室管理员](https://www.wkntmcb.com/book/48j1tng/)
+- [我的老公是暴君](https://www.wkntmcb.com/book/48j1cm4/)
 - [高调装神，猥琐发育](https://www.wkntmcb.com/book/48j0ini/)
-- [幼崽假少爷选择回归寒门](https://www.wkntmcb.com/book/48j0blg/)
-- [[希腊神话]蛇蛇神生美妙](https://www.wkntmcb.com/book/48j03i0/)
-- [如何正确哄睡暴君](https://www.wkntmcb.com/book/48j036u/)
-- [失而复得的白月光[快穿]](https://www.wkntmcb.com/book/48j01vf/)
+- [五美元在哥谭活一月](https://www.wkntmcb.com/book/48j0hs7/)
+- [直男咒术师的限制级游戏](https://www.wkntmcb.com/book/48j0ar4/)
+- [我与龙傲天寿命共享](https://www.wkntmcb.com/book/48j06vj/)
+- [绿叶](https://www.wkntmcb.com/book/48ivv12/)
 - [我不可能舔一个漂亮捞子](https://www.wkntmcb.com/book/48ivnot/)
 - [简单罗曼史](https://www.wkntmcb.com/book/48ivmec/)
-- [在民俗惊悚片被诸神庇护](https://www.wkntmcb.com/book/48ivipt/)
-- [被奇犽告白以后](https://www.wkntmcb.com/book/48ivhe2/)
-- [[足球]最佳前锋](https://www.wkntmcb.com/book/48iv8bf/)
-- [高嫁之后](https://www.wkntmcb.com/book/48iv7r6/)
+- [沈助理又在隐藏他的超能力](https://www.wkntmcb.com/book/48ivlsk/)
+- [同时扮演贵族学院F4和平民校花](https://www.wkntmcb.com/book/48iv9kt/)
+- [野比春子穿越事件簿](https://www.wkntmcb.com/book/48iv86i/)
+- [[全职高手]问就是没钱](https://www.wkntmcb.com/book/48iv6p2/)
 - [微臣怜惜公主](https://www.wkntmcb.com/book/48iv5tl/)
-- [伪装纨绔，怎么成了名相](https://www.wkntmcb.com/book/48iv51b/)
+- [多梦你一会儿](https://www.wkntmcb.com/book/48iv5oc/)
 - [他要和我谈恋爱](https://www.wkntmcb.com/book/48iv50k/)
-- [哥你不能不要我](https://www.wkntmcb.com/book/48iv4ha/)
-- [被鬼怪宠爱的漂亮书生](https://www.wkntmcb.com/book/48iv4d5/)
-- [炮灰的我该如何上位？](https://www.wkntmcb.com/book/48iv2nj/)
+- [大美人beta带球跑了](https://www.wkntmcb.com/book/48iv4c2/)
+- [作家与读者](https://www.wkntmcb.com/book/48iv3ge/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.wkntmcb.com/book/48iv2u5/)
 - [拯救世界从扮演反派开始](https://www.wkntmcb.com/book/48iv2fo/)
 - [和前女友的心上人he了](https://www.wkntmcb.com/book/48iv0a7/)
 - [这谁的沙雕二次元心声！](https://www.wkntmcb.com/book/48iuul9/)
 - [某柯学的正义伙伴](https://www.wkntmcb.com/book/48iuuam/)
 - [[封神]圣人生欲](https://www.wkntmcb.com/book/48ius3c/)
-- [我司艺人永不塌房](https://www.wkntmcb.com/book/48iurmn/)
-- [一枝枝怨](https://www.wkntmcb.com/book/48iuqe2/)
 - [纯爱宇智波基本恋爱法](https://www.wkntmcb.com/book/48iupto/)
 - [老公是松散生命体](https://www.wkntmcb.com/book/48iuoto/)
 - [[足球]罗蜜第一志愿](https://www.wkntmcb.com/book/48iun4t/)
 - [井闼山经理每天都被挖墙脚](https://www.wkntmcb.com/book/48iukap/)
-- [在魔法世界屯田争霸](https://www.wkntmcb.com/book/48isr90/)
+- [好兄弟暴富后非要跟我结婚](https://www.wkntmcb.com/book/48iu8rs/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1339/index.md)

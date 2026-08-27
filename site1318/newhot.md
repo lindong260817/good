@@ -1,7 +1,7 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-08-25 03:28:55
+更新时间：2026-08-27 03:31:25
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
@@ -14,23 +14,26 @@
 - [他要和我谈恋爱](https://www.shuqi687.com/book/8vsmj6n/)
 - [[封神]圣人生欲](https://www.shuqi687.com/book/8vsmj6h/)
 - [高调装神，猥琐发育](https://www.shuqi687.com/book/8vsmj6e/)
-- [[希腊神话]蛇蛇神生美妙](https://www.shuqi687.com/book/8vsmj5o/)
+- [直男咒术师的限制级游戏](https://www.shuqi687.com/book/8vsmj4f/)
+- [从异世界穿回来后](https://www.shuqi687.com/book/8vsmj2t/)
 - [纯爱宇智波基本恋爱法](https://www.shuqi687.com/book/8vsmj2d/)
-- [高嫁之后](https://www.shuqi687.com/book/8vsmj1p/)
+- [我的老公是暴君](https://www.shuqi687.com/book/8vslfau/)
 - [某柯学的正义伙伴](https://www.shuqi687.com/book/8vsjq8f/)
-- [伪装纨绔，怎么成了名相](https://www.shuqi687.com/book/spa770/)
-- [[足球]最佳前锋](https://www.shuqi687.com/book/spa757/)
+- [五美元在哥谭活一月](https://www.shuqi687.com/book/8vsjij1/)
+- [我有嘉宾](https://www.shuqi687.com/book/8vsj6ui/)
+- [沈助理又在隐藏他的超能力](https://www.shuqi687.com/book/spao95/)
+- [野比春子穿越事件簿](https://www.shuqi687.com/book/spadc1/)
+- [[全职高手]问就是没钱](https://www.shuqi687.com/book/spa8jp/)
+- [作家与读者](https://www.shuqi687.com/book/spa529/)
+- [绿叶](https://www.shuqi687.com/book/spa189/)
+- [我与龙傲天寿命共享](https://www.shuqi687.com/book/sp9vqs/)
 - [简单罗曼史](https://www.shuqi687.com/book/sp9u4f/)
 - [这谁的沙雕二次元心声！](https://www.shuqi687.com/book/sp9svf/)
 - [老公是松散生命体](https://www.shuqi687.com/book/sp9sc6/)
-- [一枝枝怨](https://www.shuqi687.com/book/sp9qa2/)
-- [在魔法世界屯田争霸](https://www.shuqi687.com/book/sp9l2m/)
+- [多梦你一会儿](https://www.shuqi687.com/book/sp9fmn/)
 - [[足球]罗蜜第一志愿](https://www.shuqi687.com/book/sp9eq7/)
 - [拯救世界从扮演反派开始](https://www.shuqi687.com/book/sp9bhp/)
 - [和前女友的心上人he了](https://www.shuqi687.com/book/sp9a9p/)
-- [在民俗惊悚片被诸神庇护](https://www.shuqi687.com/book/sp93he/)
-- [哥你不能不要我](https://www.shuqi687.com/book/sp8qs9/)
-- [被奇犽告白以后](https://www.shuqi687.com/book/2s42nm/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1318/index.md)

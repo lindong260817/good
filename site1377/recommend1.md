@@ -1,18 +1,17 @@
 
 # 牛魔王JJ电子书 - 小说阅读网, 全本免费完结小说在线阅读及下载
 
-更新时间：2026-08-25 03:25:33
+更新时间：2026-08-27 03:27:51
 
 牛魔王JJ电子书提供精彩小说阅读服务，包括各种类型的小说排行榜、免费好看的小说等。涵盖穿越小说、都市小说、言情小说、玄幻小说等多种类别，支持全本全集完结小说在线阅读以及TXT下载。
 
 - [牛魔王JJ电子书](https://www.nmwjj.com/)
 
 ## 最新小说
-- [七零回城女知青[穿书]](https://www.nmwjj.com/book/18ci373/)
-- [养父](https://www.nmwjj.com/book/18ci35u/)
+- [无限末日副本：我有移动安全屋](https://www.nmwjj.com/book/18cihbh/)
 - [人妻O救赎指南](https://www.nmwjj.com/book/18ci35m/)
-- [暴君的赝品公主](https://www.nmwjj.com/book/18cf3hp/)
-- [和八个男人身陷瘟疫之地](https://www.nmwjj.com/book/18cf1fd/)
+- [娶了女装心机太子](https://www.nmwjj.com/book/18cfie6/)
+- [与宿敌他哥契约成婚后](https://www.nmwjj.com/book/18cf160/)
 - [道长他为何那样](https://www.nmwjj.com/book/18cev4f/)
 - [你，后室管理员](https://www.nmwjj.com/book/18ce6ep/)
 - [我演的不是漂亮圣子攻吗?](https://www.nmwjj.com/book/18ce6el/)
@@ -30,7 +29,7 @@
 - [[综崩铁]你怎么知道我是令使](https://www.nmwjj.com/book/18ce65q/)
 - [师尊分裂成两个后天天醋自己](https://www.nmwjj.com/book/18ce65c/)
 - [假少爷不想活了](https://www.nmwjj.com/book/18ce64e/)
-- [[综]成年人为什么会成为救世主](https://www.nmwjj.com/book/18ce643/)
+- [[反穿]我的救世主生涯不对劲？](https://www.nmwjj.com/book/18ce643/)
 - [在尤文图斯养超巨[足球]](https://www.nmwjj.com/book/18ce63o/)
 - [立海大的水仙赛季](https://www.nmwjj.com/book/18ce62i/)
 - [在柯学世界装路人失败后](https://www.nmwjj.com/book/18ce61p/)
@@ -39,7 +38,7 @@
 - [如何扮演源氏重宝](https://www.nmwjj.com/book/18ce5vg/)
 - [在民俗惊悚片被诸神庇护](https://www.nmwjj.com/book/18ce5v2/)
 - [[西幻]玛赫里魔药店经营实录](https://www.nmwjj.com/book/18ce5uv/)
-- [九零首富的替嫁小甜妻](https://www.nmwjj.com/book/18ce5ut/)
+- [九零首富的替嫁小媳妇](https://www.nmwjj.com/book/18ce5ut/)
 - [被天龙人圈养的老实人](https://www.nmwjj.com/book/18ce5ub/)
 - [夺养媳](https://www.nmwjj.com/book/18ce5u2/)
 - [我真不是算命的！[香江]](https://www.nmwjj.com/book/18ce5tf/)
@@ -50,12 +49,13 @@
 - [人气反派的马甲演绎实录](https://www.nmwjj.com/book/18ce5pf/)
 - [[封神]圣人生欲](https://www.nmwjj.com/book/18ce5p4/)
 - [千禧年，拆迁分了十栋楼！](https://www.nmwjj.com/book/18ce5p0/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.nmwjj.com/book/18ce5oq/)
 - [[足球]如此足球，怎能不恨](https://www.nmwjj.com/book/18ce5om/)
 - [夜莺不渡](https://www.nmwjj.com/book/18ce5nv/)
 - [原配夫人](https://www.nmwjj.com/book/18ce5no/)
 - [救命！白无常每天都在钓我](https://www.nmwjj.com/book/18ce5nb/)
 - [纯爱宇智波基本恋爱法](https://www.nmwjj.com/book/18ce5ls/)
+- [完蛋！被恨孕男包围了！](https://www.nmwjj.com/book/18ce5l3/)
+- [贵族学院女保安竟是万人迷](https://www.nmwjj.com/book/18ce5kq/)
 - [御兽师，我打工养你啊](https://www.nmwjj.com/book/18ce5k2/)
 - [病弱世子娇养手札](https://www.nmwjj.com/book/18ce5j4/)
 - [趁她之危](https://www.nmwjj.com/book/18ce5ie/)
@@ -148,7 +148,6 @@
 - [海上求生:生活玩家战力爆表](https://www.nmwjj.com/book/18ce3nf/)
 - [海岛求生：生活玩家种田囤货](https://www.nmwjj.com/book/18ce3m7/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.nmwjj.com/book/18ce3lv/)
-- [前女友孩子三岁了](https://www.nmwjj.com/book/18ce3kn/)
 - [暗涌[破镜重圆]](https://www.nmwjj.com/book/18ce3kj/)
 - [六零之成了卷王的妹妹](https://www.nmwjj.com/book/18ce3kb/)
 - [我有一座安全城](https://www.nmwjj.com/book/18ce3jr/)
@@ -162,7 +161,6 @@
 - [恶毒女配决定去死后](https://www.nmwjj.com/book/18ce3at/)
 - [我和马甲真没在一起](https://www.nmwjj.com/book/18ce3ar/)
 - [老公你人设是不是崩了](https://www.nmwjj.com/book/18ce38p/)
-- [废太子联盟](https://www.nmwjj.com/book/18ce388/)
 - [巴黎恋人](https://www.nmwjj.com/book/18ce386/)
 - [我靠卖盲盒复苏华夏神灵](https://www.nmwjj.com/book/18ce379/)
 - [[足球]家里到底有谁在啊你说清楚！](https://www.nmwjj.com/book/18ce36o/)

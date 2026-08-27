@@ -1,7 +1,7 @@
 
 # 书城读书网_免费小说在线阅读|无弹窗广告
 
-更新时间：2026-08-25 03:28:27
+更新时间：2026-08-27 03:30:56
 
 书城读书网是最热门的免费小说网站，提供包括玄幻、都市、言情等多种类型的小说在线阅读服务。这里不仅有最新章节的实时更新，还有全面的小说排行榜，让您轻松找到喜欢的作品。阅读体验极佳，全程无弹窗广告干扰，值得收藏！
 
@@ -9,8 +9,7 @@
 
 ## 最新小说
 - [人妻O救赎指南](https://www.shucheng168.com/book/47fohi0/)
-- [养父](https://www.shucheng168.com/book/47fohgk/)
-- [七零回城女知青[穿书]](https://www.shucheng168.com/book/47foc3t/)
+- [无限末日副本：我有移动安全屋](https://www.shucheng168.com/book/47fo75p/)
 - [御赐厨娘在九零[古穿今]](https://www.shucheng168.com/book/47fnulk/)
 - [玄意未尽时 [穿书]](https://www.shucheng168.com/book/47fnulf/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.shucheng168.com/book/47fnule/)
@@ -66,7 +65,7 @@
 - [十九世纪贵族厨房（美食）](https://www.shucheng168.com/book/47fnudm/)
 - [云深不知处](https://www.shucheng168.com/book/47fnucs/)
 - [小白花是黑暗向导](https://www.shucheng168.com/book/47fnucp/)
-- [[综]成年人为什么会成为救世主](https://www.shucheng168.com/book/47fnucm/)
+- [[反穿]我的救世主生涯不对劲？](https://www.shucheng168.com/book/47fnucm/)
 - [越界沉溺](https://www.shucheng168.com/book/47fnucd/)
 - [万人嫌他真不想掉马](https://www.shucheng168.com/book/47fnuc9/)
 - [师尊分裂成两个后天天醋自己](https://www.shucheng168.com/book/47fnubs/)
@@ -77,8 +76,8 @@
 - [我和马甲真没在一起](https://www.shucheng168.com/book/47fnuau/)
 - [从死亡开始的猎人笔记](https://www.shucheng168.com/book/47fnuak/)
 - [当咒术高专来了个杀鬼道士](https://www.shucheng168.com/book/47fnuad/)
+- [完蛋！被恨孕男包围了！](https://www.shucheng168.com/book/47fnnd3/)
 - [高调装神，猥琐发育](https://www.shucheng168.com/book/47fnn9t/)
-- [暴君的赝品公主](https://www.shucheng168.com/book/47fnn9h/)
 - [[足球]替补门将](https://www.shucheng168.com/book/47fndn9/)
 - [喜恶同因[青梅竹马]](https://www.shucheng168.com/book/47fncr7/)
 - [捡了龙傲天金手指后](https://www.shucheng168.com/book/47fncmg/)
@@ -86,12 +85,11 @@
 - [禁止限制文主角转职龙傲天](https://www.shucheng168.com/book/47fnc4k/)
 - [我演的不是漂亮圣子攻吗?](https://www.shucheng168.com/book/47fn3hc/)
 - [[希腊神话]基建拯救世界](https://www.shucheng168.com/book/47fn2df/)
-- [九零首富的替嫁小甜妻](https://www.shucheng168.com/book/47fmugt/)
+- [九零首富的替嫁小媳妇](https://www.shucheng168.com/book/47fmugt/)
 - [为诡异打工，但反封建迷信](https://www.shucheng168.com/book/47fmpp5/)
 - [渣攻必须he（快穿）](https://www.shucheng168.com/book/47fmp8p/)
 - [在民俗惊悚片被诸神庇护](https://www.shucheng168.com/book/47fmlvc/)
 - [星际第一女A[穿书]](https://www.shucheng168.com/book/47fml66/)
-- [废太子联盟](https://www.shucheng168.com/book/47fmj6n/)
 - [你对寡人的猫有什么意见？](https://www.shucheng168.com/book/47fmian/)
 - [绿茶男来袭（快穿）](https://www.shucheng168.com/book/47fmh7h/)
 - [闺蜜就不能是妻子吗](https://www.shucheng168.com/book/47fmf10/)
@@ -108,6 +106,7 @@
 - [八零恶毒后妈杀疯了](https://www.shucheng168.com/book/47fm1s5/)
 - [壮受虫母今天也想逃](https://www.shucheng168.com/book/47fm1f4/)
 - [夜偶](https://www.shucheng168.com/book/47fltql/)
+- [贵族学院女保安竟是万人迷](https://www.shucheng168.com/book/47flsrc/)
 - [星露谷，但大秦帝国](https://www.shucheng168.com/book/47flqat/)
 - [至尊法师克拉克[综英美]](https://www.shucheng168.com/book/47floo6/)
 - [京华无尽夏](https://www.shucheng168.com/book/47fll4v/)
@@ -119,6 +118,7 @@
 - [[综崩铁]你怎么知道我是令使](https://www.shucheng168.com/book/47flcad/)
 - [人气反派的马甲演绎实录](https://www.shucheng168.com/book/47flc5i/)
 - [雇佣毛茸茸开农场](https://www.shucheng168.com/book/47fl79r/)
+- [娶了女装心机太子](https://www.shucheng168.com/book/47fl6m8/)
 - [性转成真千金靠写文逆袭了](https://www.shucheng168.com/book/47fl5in/)
 - [惊！S级诡异竟是我自己](https://www.shucheng168.com/book/47fl5id/)
 - [在赛博世界手搓一座城](https://www.shucheng168.com/book/47fl4ic/)
@@ -132,8 +132,8 @@
 - [本官早知他是狐狸变的](https://www.shucheng168.com/book/47fkob9/)
 - [在尤文图斯养超巨[足球]](https://www.shucheng168.com/book/47fkni4/)
 - [区区精灵[西幻]](https://www.shucheng168.com/book/47fkm0g/)
-- [和八个男人身陷瘟疫之地](https://www.shucheng168.com/book/47fkl92/)
 - [[西幻]玛赫里魔药店经营实录](https://www.shucheng168.com/book/47fkkfd/)
+- [与宿敌他哥契约成婚后](https://www.shucheng168.com/book/47fkkaa/)
 - [救命！白无常每天都在钓我](https://www.shucheng168.com/book/47fkk7c/)
 - [道长他为何那样](https://www.shucheng168.com/book/47fkhco/)
 - [老公对不起](https://www.shucheng168.com/book/47fjp6a/)
@@ -151,10 +151,8 @@
 - [日化人生[科研]](https://www.shucheng168.com/book/47fjnjv/)
 - [穿到反派落魄时](https://www.shucheng168.com/book/47fjndk/)
 - [高门小婢](https://www.shucheng168.com/book/47fjndg/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.shucheng168.com/book/47fjn9r/)
 - [纯爱宇智波基本恋爱法](https://www.shucheng168.com/book/47fjn9g/)
 - [[娱乐圈]过分美丽的她](https://www.shucheng168.com/book/47fjn8q/)
-- [前女友孩子三岁了](https://www.shucheng168.com/book/47fjn5m/)
 - [猫猫也要养家糊口](https://www.shucheng168.com/book/47fjn1t/)
 - [巨物致富：回乡开钓场](https://www.shucheng168.com/book/47fjn10/)
 - [卧底后被港岛大小姐缠上了](https://www.shucheng168.com/book/47fjmt0/)
