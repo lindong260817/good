@@ -1,45 +1,46 @@
 
 # 时光树园-热门小说大全-小说排行榜-好看的小说推荐-热门小说推荐
 
-更新时间：2026-08-25 03:23:17
+更新时间：2026-08-27 03:25:29
 
 时光树园是一个热门小说推荐网站，这里有热门全本小说大全、好看的小说推荐、小说排行榜等。您可以在这里无广告在线阅读优质的豪门总裁小说、现代言情小说、古代言情小说、都市小说、穿越小说、玄幻小说、武侠仙侠等各类热门小说。
 
 - [时光树园小说](https://www.kltbl.com/)
 
 ## 最新小说
+- [我有嘉宾](https://www.kltbl.com/book/5ach0lu/)
+- [从异世界穿回来后](https://www.kltbl.com/book/5ach007/)
 - [星际团宠小人鱼](https://www.kltbl.com/book/5acgrm2/)
 - [你，后室管理员](https://www.kltbl.com/book/5acgrll/)
 - [夺友妻（女尊）](https://www.kltbl.com/book/5acgri2/)
+- [我的老公是暴君](https://www.kltbl.com/book/5acgain/)
 - [高调装神，猥琐发育](https://www.kltbl.com/book/5acffu7/)
-- [幼崽假少爷选择回归寒门](https://www.kltbl.com/book/5acf9gi/)
-- [如何正确哄睡暴君](https://www.kltbl.com/book/5acf18r/)
-- [失而复得的白月光[快穿]](https://www.kltbl.com/book/5acf0q9/)
-- [[希腊神话]蛇蛇神生美妙](https://www.kltbl.com/book/5acf09e/)
+- [五美元在哥谭活一月](https://www.kltbl.com/book/5acfea3/)
+- [直男咒术师的限制级游戏](https://www.kltbl.com/book/5acf8bv/)
+- [我与龙傲天寿命共享](https://www.kltbl.com/book/5acf4hc/)
+- [绿叶](https://www.kltbl.com/book/5aceucv/)
+- [沈助理又在隐藏他的超能力](https://www.kltbl.com/book/5acemjs/)
 - [简单罗曼史](https://www.kltbl.com/book/5acem52/)
 - [我不可能舔一个漂亮捞子](https://www.kltbl.com/book/5acelqg/)
-- [被奇犽告白以后](https://www.kltbl.com/book/5aceg3p/)
-- [在民俗惊悚片被诸神庇护](https://www.kltbl.com/book/5acefsu/)
-- [高嫁之后](https://www.kltbl.com/book/5ace7sm/)
-- [[足球]最佳前锋](https://www.kltbl.com/book/5ace584/)
+- [野比春子穿越事件簿](https://www.kltbl.com/book/5ace7f1/)
+- [同时扮演贵族学院F4和平民校花](https://www.kltbl.com/book/5ace67a/)
 - [他要和我谈恋爱](https://www.kltbl.com/book/5ace4v9/)
 - [微臣怜惜公主](https://www.kltbl.com/book/5ace4rm/)
-- [哥你不能不要我](https://www.kltbl.com/book/5ace2up/)
-- [被鬼怪宠爱的漂亮书生](https://www.kltbl.com/book/5ace2p7/)
-- [伪装纨绔，怎么成了名相](https://www.kltbl.com/book/5ace2gb/)
-- [炮灰的我该如何上位？](https://www.kltbl.com/book/5acdvc8/)
+- [大美人beta带球跑了](https://www.kltbl.com/book/5ace4es/)
+- [多梦你一会儿](https://www.kltbl.com/book/5ace3el/)
+- [[全职高手]问就是没钱](https://www.kltbl.com/book/5ace2ef/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.kltbl.com/book/5acdvmn/)
+- [作家与读者](https://www.kltbl.com/book/5acdvkh/)
 - [拯救世界从扮演反派开始](https://www.kltbl.com/book/5acdvb5/)
 - [和前女友的心上人he了](https://www.kltbl.com/book/5acdtuj/)
 - [这谁的沙雕二次元心声！](https://www.kltbl.com/book/5acdtlo/)
 - [某柯学的正义伙伴](https://www.kltbl.com/book/5acdr7m/)
-- [我司艺人永不塌房](https://www.kltbl.com/book/5acdq95/)
 - [[封神]圣人生欲](https://www.kltbl.com/book/5acdpre/)
 - [纯爱宇智波基本恋爱法](https://www.kltbl.com/book/5acdp37/)
 - [老公是松散生命体](https://www.kltbl.com/book/5acdp14/)
-- [一枝枝怨](https://www.kltbl.com/book/5acdp00/)
 - [[足球]罗蜜第一志愿](https://www.kltbl.com/book/5acdk9c/)
 - [井闼山经理每天都被挖墙脚](https://www.kltbl.com/book/5acdj20/)
-- [在魔法世界屯田争霸](https://www.kltbl.com/book/5acbq4d/)
+- [好兄弟暴富后非要跟我结婚](https://www.kltbl.com/book/5acd7id/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1340/index.md)

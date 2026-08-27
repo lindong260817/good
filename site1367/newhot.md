@@ -1,44 +1,47 @@
 
 # 奇幻笔趣屋 - 书友最值得收藏的网络小说阅读网
 
-更新时间：2026-08-25 03:26:40
+更新时间：2026-08-27 03:29:04
 
 奇幻笔趣屋收录整理最新最全的热门网络小说，提供所有小说首发最新章节免费阅读服务，是书友们最值得收藏的小说阅读网站。
 
 - [奇幻笔趣屋](https://www.qihuan958.com/)
 
 ## 最新小说
+- [从异世界穿回来后](https://www.qihuan958.com/book/4ratg48/)
+- [我有嘉宾](https://www.qihuan958.com/book/4ratfrt/)
+- [我的老公是暴君](https://www.qihuan958.com/book/4rast4h/)
 - [夺友妻（女尊）](https://www.qihuan958.com/book/4rasl3r/)
 - [你，后室管理员](https://www.qihuan958.com/book/4rasl1j/)
 - [星际团宠小人鱼](https://www.qihuan958.com/book/4rasl0k/)
 - [高调装神，猥琐发育](https://www.qihuan958.com/book/4rasdul/)
-- [失而复得的白月光[快穿]](https://www.qihuan958.com/book/4rarv5i/)
-- [如何正确哄睡暴君](https://www.qihuan958.com/book/4rars4v/)
+- [五美元在哥谭活一月](https://www.qihuan958.com/book/4ras3hu/)
+- [我与龙傲天寿命共享](https://www.qihuan958.com/book/4rartgl/)
+- [绿叶](https://www.qihuan958.com/book/4raro3f/)
 - [我不可能舔一个漂亮捞子](https://www.qihuan958.com/book/4raridq/)
-- [在民俗惊悚片被诸神庇护](https://www.qihuan958.com/book/4rarc7t/)
-- [被鬼怪宠爱的漂亮书生](https://www.qihuan958.com/book/4rarbs6/)
 - [简单罗曼史](https://www.qihuan958.com/book/4rarbjc/)
 - [老公是松散生命体](https://www.qihuan958.com/book/4rarb8o/)
+- [沈助理又在隐藏他的超能力](https://www.qihuan958.com/book/4rarat8/)
 - [微臣怜惜公主](https://www.qihuan958.com/book/4rara7q/)
-- [被奇犽告白以后](https://www.qihuan958.com/book/4rar7o1/)
+- [同时扮演贵族学院F4和平民校花](https://www.qihuan958.com/book/4rar5kk/)
 - [他要和我谈恋爱](https://www.qihuan958.com/book/4rar0td/)
-- [炮灰的我该如何上位？](https://www.qihuan958.com/book/4raqree/)
+- [大美人beta带球跑了](https://www.qihuan958.com/book/4raqtkf/)
+- [野比春子穿越事件簿](https://www.qihuan958.com/book/4raqtjf/)
 - [[封神]圣人生欲](https://www.qihuan958.com/book/4raqqc1/)
-- [哥你不能不要我](https://www.qihuan958.com/book/4raqqam/)
-- [[足球]最佳前锋](https://www.qihuan958.com/book/4raqpor/)
-- [在魔法世界屯田争霸](https://www.qihuan958.com/book/4raqp5h/)
-- [伪装纨绔，怎么成了名相](https://www.qihuan958.com/book/4raqoqg/)
+- [多梦你一会儿](https://www.qihuan958.com/book/4raqpp3/)
+- [[全职高手]问就是没钱](https://www.qihuan958.com/book/4raqn05/)
+- [作家与读者](https://www.qihuan958.com/book/4raqmsv/)
 - [这谁的沙雕二次元心声！](https://www.qihuan958.com/book/4raqmcv/)
 - [和前女友的心上人he了](https://www.qihuan958.com/book/4raqjko/)
-- [我司艺人永不塌房](https://www.qihuan958.com/book/4raqjff/)
 - [某柯学的正义伙伴](https://www.qihuan958.com/book/4raqin0/)
 - [[足球]罗蜜第一志愿](https://www.qihuan958.com/book/4raqgv2/)
-- [一枝枝怨](https://www.qihuan958.com/book/4raqft9/)
 - [井闼山经理每天都被挖墙脚](https://www.qihuan958.com/book/4raqdpr/)
-- [幼崽假少爷选择回归寒门](https://www.qihuan958.com/book/4raq74h/)
+- [[足球]小小鸟堂堂来袭](https://www.qihuan958.com/book/4raq4r5/)
+- [法外狂猫](https://www.qihuan958.com/book/4raq0v2/)
+- [好兄弟暴富后非要跟我结婚](https://www.qihuan958.com/book/4rapuqa/)
+- [和室友他爸恋爱后](https://www.qihuan958.com/book/4raplr7/)
 - [拯救世界从扮演反派开始](https://www.qihuan958.com/book/4raofjs/)
-- [[希腊神话]蛇蛇神生美妙](https://www.qihuan958.com/book/4raofgg/)
-- [高嫁之后](https://www.qihuan958.com/book/4raodd1/)
+- [直男咒术师的限制级游戏](https://www.qihuan958.com/book/4raof4l/)
 - [纯爱宇智波基本恋爱法](https://www.qihuan958.com/book/4raod64/)
 ## 相关内容
 - [README](/README.md)

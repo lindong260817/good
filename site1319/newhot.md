@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-08-25 03:22:32
+更新时间：2026-08-27 03:24:44
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
@@ -14,23 +14,26 @@
 - [他要和我谈恋爱](https://www.kanshu666.com/book/8jv7i7h/)
 - [夺友妻（女尊）](https://www.kanshu666.com/book/8jv7i7e/)
 - [高调装神，猥琐发育](https://www.kanshu666.com/book/8jv7i6h/)
-- [高嫁之后](https://www.kanshu666.com/book/8jv7i41/)
-- [[希腊神话]蛇蛇神生美妙](https://www.kanshu666.com/book/8jv7i3r/)
+- [从异世界穿回来后](https://www.kanshu666.com/book/8jv7i3s/)
+- [直男咒术师的限制级游戏](https://www.kanshu666.com/book/8jv7i2n/)
 - [纯爱宇智波基本恋爱法](https://www.kanshu666.com/book/8jv7i22/)
 - [某柯学的正义伙伴](https://www.kanshu666.com/book/8jv4pkl/)
-- [[足球]最佳前锋](https://www.kanshu666.com/book/rj5j5h/)
-- [伪装纨绔，怎么成了名相](https://www.kanshu666.com/book/rj5iil/)
+- [我的老公是暴君](https://www.kanshu666.com/book/8jv4if6/)
+- [五美元在哥谭活一月](https://www.kanshu666.com/book/8jv4d65/)
+- [我有嘉宾](https://www.kanshu666.com/book/8jv48o2/)
+- [沈助理又在隐藏他的超能力](https://www.kanshu666.com/book/rj63r4/)
+- [野比春子穿越事件簿](https://www.kanshu666.com/book/rj5nhu/)
+- [[全职高手]问就是没钱](https://www.kanshu666.com/book/rj5iv1/)
+- [绿叶](https://www.kanshu666.com/book/rj5cnl/)
+- [作家与读者](https://www.kanshu666.com/book/rj5ccu/)
+- [我与龙傲天寿命共享](https://www.kanshu666.com/book/rj59e1/)
 - [简单罗曼史](https://www.kanshu666.com/book/rj57lg/)
 - [老公是松散生命体](https://www.kanshu666.com/book/rj56nd/)
-- [一枝枝怨](https://www.kanshu666.com/book/rj55p2/)
 - [这谁的沙雕二次元心声！](https://www.kanshu666.com/book/rj54ab/)
-- [在魔法世界屯田争霸](https://www.kanshu666.com/book/rj4uud/)
+- [多梦你一会儿](https://www.kanshu666.com/book/rj4r8k/)
 - [[足球]罗蜜第一志愿](https://www.kanshu666.com/book/rj4noc/)
 - [拯救世界从扮演反派开始](https://www.kanshu666.com/book/rj4mpk/)
 - [和前女友的心上人he了](https://www.kanshu666.com/book/rj4let/)
-- [在民俗惊悚片被诸神庇护](https://www.kanshu666.com/book/rj4e47/)
-- [哥你不能不要我](https://www.kanshu666.com/book/rj45vi/)
-- [被奇犽告白以后](https://www.kanshu666.com/book/2o9v5v/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1319/index.md)
