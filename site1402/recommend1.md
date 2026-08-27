@@ -1,7 +1,7 @@
 
 # 耽美小说网 - 最热门的耽美小说在线阅读
 
-更新时间：2026-08-27 03:28:04
+更新时间：2026-08-28 03:28:39
 
 耽美小说网是一个广大书友喜欢的小说网，免费为您提供热门耽美小说、女生小说、都市言情小说无弹窗在线阅读和txt下载。
 
@@ -85,13 +85,11 @@
 - [替嫁后咸鱼继母佛系日常](https://www.nvwagen.com/book/8u4e3bh/)
 - [与冷脸糙汉相亲后](https://www.nvwagen.com/book/8u4e3bc/)
 - [迷雾求生，种田玩家也能当榜一？](https://www.nvwagen.com/book/8u4e3b4/)
-- [暗涌[破镜重圆]](https://www.nvwagen.com/book/8u4e3ae/)
 - [[娱乐圈]过分美丽的她](https://www.nvwagen.com/book/8u4e3ab/)
 - [你，后室管理员](https://www.nvwagen.com/book/8u4e39t/)
 - [被反派暴君听到心声后[穿书]](https://www.nvwagen.com/book/8u4e39m/)
 - [星际第一女A[穿书]](https://www.nvwagen.com/book/8u4e391/)
 - [宿敌为我而死后](https://www.nvwagen.com/book/8u4e38s/)
-- [喜恶同因[青梅竹马]](https://www.nvwagen.com/book/8u4e38q/)
 - [漂亮男知青下乡后](https://www.nvwagen.com/book/8u4e37k/)
 - [奉旨怼人](https://www.nvwagen.com/book/8u4e35e/)
 - [日化人生[科研]](https://www.nvwagen.com/book/8u4e35d/)

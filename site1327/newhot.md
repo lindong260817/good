@@ -1,38 +1,31 @@
 
 # 家家福顶点书包 - 免费TXT小说下载, 手机电子书资源
 
-更新时间：2026-08-27 03:23:27
+更新时间：2026-08-28 03:23:58
 
 家家福顶点书包为您提供最新最全的小说资源，包括但不限于txt电子书、手机txt小说下载等服务，所有内容均支持全本免费下载，是小说爱好者的理想选择。
 
 - [家家福顶点书包](https://www.jjfbaijia.com/)
 
 ## 最新小说
-- [[封神]圣人生欲](https://www.jjfbaijia.com/book/8hhvkmp/)
-- [你，后室管理员](https://www.jjfbaijia.com/book/8hhvkmd/)
-- [夺友妻（女尊）](https://www.jjfbaijia.com/book/8hhvkm9/)
-- [他要和我谈恋爱](https://www.jjfbaijia.com/book/8hhvkld/)
-- [星际团宠小人鱼](https://www.jjfbaijia.com/book/8hhvkl5/)
-- [高调装神，猥琐发育](https://www.jjfbaijia.com/book/8hhvkkh/)
-- [纯爱宇智波基本恋爱法](https://www.jjfbaijia.com/book/8hhvkj1/)
-- [直男咒术师的限制级游戏](https://www.jjfbaijia.com/book/8hhvki1/)
-- [某柯学的正义伙伴](https://www.jjfbaijia.com/book/8hhssl0/)
-- [我的老公是暴君](https://www.jjfbaijia.com/book/8hhsnji/)
-- [五美元在哥谭活一月](https://www.jjfbaijia.com/book/8hhsfmm/)
-- [我有嘉宾](https://www.jjfbaijia.com/book/8hhsap8/)
-- [沈助理又在隐藏他的超能力](https://www.jjfbaijia.com/book/rbeva7/)
-- [野比春子穿越事件簿](https://www.jjfbaijia.com/book/rbefqi/)
-- [[全职高手]问就是没钱](https://www.jjfbaijia.com/book/rbebjp/)
-- [作家与读者](https://www.jjfbaijia.com/book/rbe7pf/)
-- [绿叶](https://www.jjfbaijia.com/book/rbe5fb/)
-- [我与龙傲天寿命共享](https://www.jjfbaijia.com/book/rbe49v/)
-- [简单罗曼史](https://www.jjfbaijia.com/book/rbe287/)
-- [这谁的沙雕二次元心声！](https://www.jjfbaijia.com/book/rbe160/)
-- [老公是松散生命体](https://www.jjfbaijia.com/book/rbdut6/)
-- [多梦你一会儿](https://www.jjfbaijia.com/book/rbdjeh/)
-- [[足球]罗蜜第一志愿](https://www.jjfbaijia.com/book/rbdhkb/)
-- [拯救世界从扮演反派开始](https://www.jjfbaijia.com/book/rbdg78/)
-- [和前女友的心上人he了](https://www.jjfbaijia.com/book/rbdb59/)
+- [我在虫族监狱写小说](https://www.jjfbaijia.com/book/8hhsqu2/)
+- [我演的不是漂亮圣子攻吗?](https://www.jjfbaijia.com/book/8hhs4sb/)
+- [[诡秘之主]乌鸦童话](https://www.jjfbaijia.com/book/8hhs248/)
+- [错嫁春笼（先婚后爱）](https://www.jjfbaijia.com/book/rbeovg/)
+- [被天使之王骗婚后[诡秘之主]](https://www.jjfbaijia.com/book/rbek3f/)
+- [与清冷O协议结婚后她失忆了](https://www.jjfbaijia.com/book/rbejov/)
+- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.jjfbaijia.com/book/rbejh6/)
+- [闺蜜就不能是妻子吗](https://www.jjfbaijia.com/book/rbeh9v/)
+- [迷雾求生，种田玩家也能当榜一？](https://www.jjfbaijia.com/book/rbeh9c/)
+- [邻居小孩太有钱[快穿]](https://www.jjfbaijia.com/book/rbed5n/)
+- [宝儿楼](https://www.jjfbaijia.com/book/rbeb39/)
+- [重生后雌君追来了](https://www.jjfbaijia.com/book/rbe8fm/)
+- [全星际都想吃我做的菜](https://www.jjfbaijia.com/book/rbe86l/)
+- [和饲养的黑蛇恋爱后](https://www.jjfbaijia.com/book/rbe6vh/)
+- [我将双打队友护至身前，自己站桩躺赢](https://www.jjfbaijia.com/book/rbe3rs/)
+- [骗失忆死对头修合欢道](https://www.jjfbaijia.com/book/rbduv3/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.jjfbaijia.com/book/rbdlj4/)
+- [海岛求生：生活玩家种田囤货](https://www.jjfbaijia.com/book/2nh7um/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1327/index.md)

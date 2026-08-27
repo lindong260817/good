@@ -1,7 +1,7 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-08-27 03:39:31
+更新时间：2026-08-28 03:40:44
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。
 
@@ -109,7 +109,6 @@
 - [漂亮小瞎子捡到直男龙傲天](https://www.zuopin666.com/book/8bec04u/)
 - [始皇闺女躺平失败的日子](https://www.zuopin666.com/book/8bebvm6/)
 - [渣攻必须he（快穿）](https://www.zuopin666.com/book/8bebqeo/)
-- [喜恶同因[青梅竹马]](https://www.zuopin666.com/book/qntb27/)
 - [星际第一女A[穿书]](https://www.zuopin666.com/book/qnt7i3/)
 - [成为养成系练习生后](https://www.zuopin666.com/book/qnt4e5/)
 - [你对寡人的猫有什么意见？](https://www.zuopin666.com/book/qnt0tl/)
@@ -132,7 +131,6 @@
 - [[希腊神话]基建拯救世界](https://www.zuopin666.com/book/qns5cu/)
 - [掌中春莺](https://www.zuopin666.com/book/qns4q6/)
 - [道长在诡异世界捉诡](https://www.zuopin666.com/book/qns481/)
-- [暗涌[破镜重圆]](https://www.zuopin666.com/book/qns416/)
 - [惊！S级诡异竟是我自己](https://www.zuopin666.com/book/qns2a0/)
 - [性转成真千金靠写文逆袭了](https://www.zuopin666.com/book/qns1jd/)
 - [误入反派培养直播后](https://www.zuopin666.com/book/qns0iu/)

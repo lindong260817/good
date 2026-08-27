@@ -1,20 +1,32 @@
 
 # 耽美小说网 - 最热门的耽美小说在线阅读
 
-更新时间：2026-08-27 03:28:04
+更新时间：2026-08-28 03:28:39
 
 耽美小说网是一个广大书友喜欢的小说网，免费为您提供热门耽美小说、女生小说、都市言情小说无弹窗在线阅读和txt下载。
 
 - [耽美小说网](https://www.nvwagen.com/)
 
 ## 最新小说
-- [纯爱宇智波基本恋爱法](https://www.nvwagen.com/book/8u4e4li/)
-- [他要和我谈恋爱](https://www.nvwagen.com/book/8u4e42g/)
-- [夺友妻（女尊）](https://www.nvwagen.com/book/8u4e3ut/)
-- [你，后室管理员](https://www.nvwagen.com/book/8u4e39t/)
-- [星际团宠小人鱼](https://www.nvwagen.com/book/8u4e2tj/)
-- [高调装神，猥琐发育](https://www.nvwagen.com/book/8u4e2sf/)
-- [[封神]圣人生欲](https://www.nvwagen.com/book/8u4e1vi/)
+- [[诡秘之主]乌鸦童话](https://www.nvwagen.com/book/8u4hcni/)
+- [被天使之王骗婚后[诡秘之主]](https://www.nvwagen.com/book/8u4h57n/)
+- [骗失忆死对头修合欢道](https://www.nvwagen.com/book/8u4h24o/)
+- [就算是龙傲天也不可以[快穿]](https://www.nvwagen.com/book/8u4h05b/)
+- [重生后雌君追来了](https://www.nvwagen.com/book/8u4gvn6/)
+- [错嫁春笼（先婚后爱）](https://www.nvwagen.com/book/8u4go1f/)
+- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.nvwagen.com/book/8u4glh6/)
+- [与清冷O协议结婚后她失忆了](https://www.nvwagen.com/book/8u4gldj/)
+- [宝儿楼](https://www.nvwagen.com/book/8u4ghg1/)
+- [侯府打工人](https://www.nvwagen.com/book/8u4gh4o/)
+- [全星际都想吃我做的菜](https://www.nvwagen.com/book/8u4ggdl/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.nvwagen.com/book/8u4gg8a/)
+- [和饲养的黑蛇恋爱后](https://www.nvwagen.com/book/8u4g71k/)
+- [我将双打队友护至身前，自己站桩躺赢](https://www.nvwagen.com/book/8u4g656/)
+- [邻居小孩太有钱[快穿]](https://www.nvwagen.com/book/8u4e4r5/)
+- [海岛求生：生活玩家种田囤货](https://www.nvwagen.com/book/8u4e3vj/)
+- [迷雾求生，种田玩家也能当榜一？](https://www.nvwagen.com/book/8u4e3b4/)
+- [闺蜜就不能是妻子吗](https://www.nvwagen.com/book/8u4e251/)
+- [我演的不是漂亮圣子攻吗?](https://www.nvwagen.com/book/8u4e211/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1402/index.md)

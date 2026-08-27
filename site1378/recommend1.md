@@ -1,17 +1,21 @@
 
 # 灌南华侨小说网笔趣阁_书友最值得收藏的网络小说阅读网
 
-更新时间：2026-08-27 03:21:29
+更新时间：2026-08-28 03:21:54
 
 灌南华侨小说网笔趣阁海量免费小说在线阅读平台，汇聚玄幻、都市、言情、科幻、悬疑等全品类热门小说，实时更新全网爆款佳作。无广告干扰，支持缓存离线看，让你随时随地沉浸阅读世界，找书看书就来笔趣阁，满足你的所有阅读渴望。
 
 - [灌南华侨小说网](https://www.gnhqbs.com/)
 
 ## 最新小说
+- [我真的只会Ctrl啊！！！](https://www.gnhqbs.com/book/1cqmn9l/)
 - [无限末日副本：我有移动安全屋](https://www.gnhqbs.com/book/1cqlkt4/)
+- [我有特殊的升官技巧](https://www.gnhqbs.com/book/1cqli9k/)
+- [反派人生，易如反掌[快穿]](https://www.gnhqbs.com/book/1cqlevb/)
 - [人妻O救赎指南](https://www.gnhqbs.com/book/1cql6qs/)
+- [始皇闺女躺平失败的日子](https://www.gnhqbs.com/book/1cqkedj/)
+- [将妹妹嫁给别人后](https://www.gnhqbs.com/book/1cqjhnq/)
 - [娶了女装心机太子](https://www.gnhqbs.com/book/1cqio8e/)
-- [与宿敌他哥契约成婚后](https://www.gnhqbs.com/book/1cqi536/)
 - [道长他为何那样](https://www.gnhqbs.com/book/1cqi2oe/)
 - [十九世纪贵族厨房（美食）](https://www.gnhqbs.com/book/1cqha97/)
 - [被四皇错看成小动物后](https://www.gnhqbs.com/book/1cqha72/)
@@ -39,7 +43,6 @@
 - [[综崩铁]你怎么知道我是令使](https://www.gnhqbs.com/book/1cqh9nb/)
 - [捡了龙傲天金手指后](https://www.gnhqbs.com/book/1cqh9lv/)
 - [分手后与诱系妻子再度热恋](https://www.gnhqbs.com/book/1cqh9lo/)
-- [暗涌[破镜重圆]](https://www.gnhqbs.com/book/1cqh9kg/)
 - [高调装神，猥琐发育](https://www.gnhqbs.com/book/1cqh9jg/)
 - [小寡夫女装直播捞到了封建亡夫](https://www.gnhqbs.com/book/1cqh9gs/)
 - [是NPC就来和玩家合影](https://www.gnhqbs.com/book/1cqh9gn/)
@@ -52,7 +55,6 @@
 - [穿成炮灰后我封神了［快穿］](https://www.gnhqbs.com/book/1cqh9cc/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.gnhqbs.com/book/1cqh9ca/)
 - [雇佣毛茸茸开农场](https://www.gnhqbs.com/book/1cqh9bh/)
-- [完蛋！被恨孕男包围了！](https://www.gnhqbs.com/book/1cqh9b4/)
 - [在民俗惊悚片被诸神庇护](https://www.gnhqbs.com/book/1cqh9b3/)
 - [为诡异打工，但反封建迷信](https://www.gnhqbs.com/book/1cqh99c/)
 - [医学大佬在年代文[穿书]](https://www.gnhqbs.com/book/1cqh98k/)
@@ -96,13 +98,11 @@
 - [全民求生:从小木屋到魔法农场](https://www.gnhqbs.com/book/1cqh8h9/)
 - [越前的排球RPG](https://www.gnhqbs.com/book/1cqh8f8/)
 - [师尊分裂成两个后天天醋自己](https://www.gnhqbs.com/book/1cqh8eh/)
-- [她是反派的背景板母亲](https://www.gnhqbs.com/book/1cqh8di/)
 - [夜莺不渡](https://www.gnhqbs.com/book/1cqh8d5/)
 - [古代种田养娃日常](https://www.gnhqbs.com/book/1cqh8d4/)
 - [海上求生:生活玩家战力爆表](https://www.gnhqbs.com/book/1cqh8an/)
 - [大瑛弟国](https://www.gnhqbs.com/book/1cqh8ai/)
 - [美人魔头绑定龙傲天系统后](https://www.gnhqbs.com/book/1cqh8ae/)
-- [喜恶同因[青梅竹马]](https://www.gnhqbs.com/book/1cqh890/)
 - [我靠卖盲盒复苏华夏神灵](https://www.gnhqbs.com/book/1cqh86u/)
 - [[希腊神话]基建拯救世界](https://www.gnhqbs.com/book/1cqh86g/)
 - [[反穿]我的救世主生涯不对劲？](https://www.gnhqbs.com/book/1cqh862/)
@@ -110,12 +110,9 @@
 - [[综英美]穿过你的黑发我的手](https://www.gnhqbs.com/book/1cqh85k/)
 - [卧底后被港岛大小姐缠上了](https://www.gnhqbs.com/book/1cqh85j/)
 - [人气反派的马甲演绎实录](https://www.gnhqbs.com/book/1cqh84p/)
-- [老公对不起](https://www.gnhqbs.com/book/1cqh84e/)
 - [本官早知他是狐狸变的](https://www.gnhqbs.com/book/1cqh848/)
 - [纯爱宇智波基本恋爱法](https://www.gnhqbs.com/book/1cqh83r/)
 - [假少爷不想活了](https://www.gnhqbs.com/book/1cqh837/)
-- [千禧年，拆迁分了十栋楼！](https://www.gnhqbs.com/book/1cqh81d/)
-- [贵族学院女保安竟是万人迷](https://www.gnhqbs.com/book/1cqh80r/)
 - [虫族雌兄，你好香啊](https://www.gnhqbs.com/book/1cqh7vv/)
 - [误入反派培养直播后](https://www.gnhqbs.com/book/1cqh7uj/)
 - [我家刀男不可能是诡异BOSS](https://www.gnhqbs.com/book/1cqh7uc/)
@@ -147,7 +144,6 @@
 - [[综英美]在综恐世界逃生](https://www.gnhqbs.com/book/1cqh7d9/)
 - [他要和我谈恋爱](https://www.gnhqbs.com/book/1cqh7d2/)
 - [嘲讽力拉满的我该如何在异世界生活](https://www.gnhqbs.com/book/1cqh7cp/)
-- [绿茶男来袭（快穿）](https://www.gnhqbs.com/book/1cqh7bl/)
 - [道长在诡异世界捉诡](https://www.gnhqbs.com/book/1cqh7b3/)
 - [巨物致富：回乡开钓场](https://www.gnhqbs.com/book/1cqh7ar/)
 - [从死亡开始的猎人笔记](https://www.gnhqbs.com/book/1cqh7al/)

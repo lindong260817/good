@@ -1,7 +1,7 @@
 
 # 笔趣阁_书友最值得收藏的网络小说阅读网_新笔趣阁5200
 
-更新时间：2026-08-27 03:23:59
+更新时间：2026-08-28 03:24:31
 
 笔趣阁是广大书友最值得收藏的网络小说阅读网，新笔趣阁网站收录了当前最火热的网络小说，笔趣阁5200免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -82,18 +82,19 @@
 - [高调装神，猥琐发育](https://www.kangrunwangye.com/book/1o9mg0i/)
 - [假少爷不想活了](https://www.kangrunwangye.com/book/1o9mg0f/)
 - [纯爱宇智波基本恋爱法](https://www.kangrunwangye.com/book/1o9mftb/)
-- [千禧年，拆迁分了十栋楼！](https://www.kangrunwangye.com/book/1o9mfru/)
 - [道长他为何那样](https://www.kangrunwangye.com/book/1o9mejs/)
 - [六零之成了卷王的妹妹](https://www.kangrunwangye.com/book/1o9meja/)
 - [古代种田养娃日常](https://www.kangrunwangye.com/book/1o9lpq0/)
 - [恶犬品德](https://www.kangrunwangye.com/book/1o9loq6/)
 - [被反派暴君听到心声后[穿书]](https://www.kangrunwangye.com/book/1o9lcf9/)
-- [老公对不起](https://www.kangrunwangye.com/book/1o9lbf0/)
 - [主角前任他分手分不掉了](https://www.kangrunwangye.com/book/1o9ksro/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kangrunwangye.com/book/1o9kn80/)
 - [无限末日副本：我有移动安全屋](https://www.kangrunwangye.com/book/1o9k9jf/)
+- [我有特殊的升官技巧](https://www.kangrunwangye.com/book/1o9k3cg/)
 - [御兽师，我打工养你啊](https://www.kangrunwangye.com/book/1o9k1ad/)
+- [反派人生，易如反掌[快穿]](https://www.kangrunwangye.com/book/1o9k02u/)
 - [穿成炮灰后我封神了［快穿］](https://www.kangrunwangye.com/book/1o9jn7g/)
+- [我真的只会Ctrl啊！！！](https://www.kangrunwangye.com/book/1o9jn6j/)
 - [七零捡漏日常](https://www.kangrunwangye.com/book/1o9jn2o/)
 - [日化人生[科研]](https://www.kangrunwangye.com/book/1o9jbdf/)
 - [巨物致富：回乡开钓场](https://www.kangrunwangye.com/book/1o9ja4q/)
@@ -106,10 +107,8 @@
 - [漂亮小瞎子捡到直男龙傲天](https://www.kangrunwangye.com/book/1o9j1c9/)
 - [我演的不是漂亮圣子攻吗?](https://www.kangrunwangye.com/book/1o9iv1p/)
 - [禁止限制文主角转职龙傲天](https://www.kangrunwangye.com/book/1o9iund/)
+- [始皇闺女躺平失败的日子](https://www.kangrunwangye.com/book/1o9iro5/)
 - [渣攻必须he（快穿）](https://www.kangrunwangye.com/book/1o9ip78/)
-- [她是反派的背景板母亲](https://www.kangrunwangye.com/book/5k7nro/)
-- [绿茶男来袭（快穿）](https://www.kangrunwangye.com/book/5k7jch/)
-- [喜恶同因[青梅竹马]](https://www.kangrunwangye.com/book/5k7j87/)
 - [星际第一女A[穿书]](https://www.kangrunwangye.com/book/5k7h4q/)
 - [成为养成系练习生后](https://www.kangrunwangye.com/book/5k7csj/)
 - [你对寡人的猫有什么意见？](https://www.kangrunwangye.com/book/5k7b4e/)
@@ -122,7 +121,6 @@
 - [太宗今天又哭了吗](https://www.kangrunwangye.com/book/5k75e1/)
 - [邻居小孩太有钱[快穿]](https://www.kangrunwangye.com/book/5k71jv/)
 - [壮受虫母今天也想逃](https://www.kangrunwangye.com/book/5k71cc/)
-- [贵族学院女保安竟是万人迷](https://www.kangrunwangye.com/book/5k6s41/)
 - [至尊法师克拉克[综英美]](https://www.kangrunwangye.com/book/5k6n89/)
 - [夜偶](https://www.kangrunwangye.com/book/5k6m0p/)
 - [星露谷，但大秦帝国](https://www.kangrunwangye.com/book/5k6ltn/)
@@ -130,10 +128,10 @@
 - [绝对占有](https://www.kangrunwangye.com/book/5k6ldi/)
 - [是NPC就来和玩家合影](https://www.kangrunwangye.com/book/5k6hv8/)
 - [[希腊神话]基建拯救世界](https://www.kangrunwangye.com/book/5k6gda/)
+- [将妹妹嫁给别人后](https://www.kangrunwangye.com/book/5k6fj1/)
 - [误入反派培养直播后](https://www.kangrunwangye.com/book/5k6dk8/)
 - [道长在诡异世界捉诡](https://www.kangrunwangye.com/book/5k6cl7/)
 - [掌中春莺](https://www.kangrunwangye.com/book/5k6cir/)
-- [暗涌[破镜重圆]](https://www.kangrunwangye.com/book/5k6boc/)
 - [性转成真千金靠写文逆袭了](https://www.kangrunwangye.com/book/5k6a7d/)
 - [惊！S级诡异竟是我自己](https://www.kangrunwangye.com/book/5k6a5g/)
 - [娶了女装心机太子](https://www.kangrunwangye.com/book/5k68hg/)
@@ -148,7 +146,6 @@
 - [魏尔伦猫猫能有什么坏心思呢](https://www.kangrunwangye.com/book/5k5sba/)
 - [区区精灵[西幻]](https://www.kangrunwangye.com/book/5k5muf/)
 - [本官早知他是狐狸变的](https://www.kangrunwangye.com/book/5k5msk/)
-- [与宿敌他哥契约成婚后](https://www.kangrunwangye.com/book/5k5mp5/)
 - [我有一座安全城](https://www.kangrunwangye.com/book/i0ib9/)
 - [我是唯一地上神国](https://www.kangrunwangye.com/book/i0i4c/)
 - [卧底后被港岛大小姐缠上了](https://www.kangrunwangye.com/book/i0i1j/)
@@ -160,7 +157,6 @@
 - [穿到反派落魄时](https://www.kangrunwangye.com/book/i0h5b/)
 - [我真不是算命的！[香江]](https://www.kangrunwangye.com/book/i0h28/)
 - [清澈女大的六零年代](https://www.kangrunwangye.com/book/i0gsg/)
-- [完蛋！被恨孕男包围了！](https://www.kangrunwangye.com/book/i0ge6/)
 - [大瑛弟国](https://www.kangrunwangye.com/book/i0ge4/)
 - [[娱乐圈]过分美丽的她](https://www.kangrunwangye.com/book/i0gd5/)
 - [全民求生:从小木屋到魔法农场](https://www.kangrunwangye.com/book/i0gcm/)
