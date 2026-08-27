@@ -1,16 +1,15 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-25 03:17:45
+更新时间：2026-08-27 03:19:49
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
 - [随梦小说网](https://www.cq082.com/)
 
 ## 最新小说
-- [养父](https://www.cq082.com/book/1sdf6u1/)
 - [人妻O救赎指南](https://www.cq082.com/book/1sdf6pd/)
-- [[综]成年人为什么会成为救世主](https://www.cq082.com/book/1sdf02q/)
+- [[反穿]我的救世主生涯不对劲？](https://www.cq082.com/book/1sdf02q/)
 - [你，后室管理员](https://www.cq082.com/book/1sdf02p/)
 - [海上求生:生活玩家战力爆表](https://www.cq082.com/book/1sdf02l/)
 - [被天龙人圈养的老实人](https://www.cq082.com/book/1sdf02j/)
@@ -73,10 +72,10 @@
 - [始乱终弃清冷首辅后](https://www.cq082.com/book/1sdevu2/)
 - [断供留子，老公赛级白男](https://www.cq082.com/book/1sdevu1/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.cq082.com/book/1sdetbg/)
-- [暴君的赝品公主](https://www.cq082.com/book/1sdesq4/)
 - [七零捡漏日常](https://www.cq082.com/book/1sdeqv5/)
-- [七零回城女知青[穿书]](https://www.cq082.com/book/1sdej93/)
 - [趁她之危](https://www.cq082.com/book/1sdeinv/)
+- [完蛋！被恨孕男包围了！](https://www.cq082.com/book/1sdeevh/)
+- [无限末日副本：我有移动安全屋](https://www.cq082.com/book/1sdee4t/)
 - [假少爷不想活了](https://www.cq082.com/book/1sde4r1/)
 - [十九世纪贵族厨房（美食）](https://www.cq082.com/book/1sddljm/)
 - [高调装神，猥琐发育](https://www.cq082.com/book/1sddldh/)
@@ -88,18 +87,15 @@
 - [[足球]替补门将](https://www.cq082.com/book/1sddfli/)
 - [绝色美人模拟器](https://www.cq082.com/book/1sddec1/)
 - [被反派暴君听到心声后[穿书]](https://www.cq082.com/book/1sdddep/)
-- [前女友孩子三岁了](https://www.cq082.com/book/1sdddbv/)
 - [我演的不是漂亮圣子攻吗?](https://www.cq082.com/book/1sddb5s/)
 - [喜恶同因[青梅竹马]](https://www.cq082.com/book/1sdd7t9/)
 - [[希腊神话]基建拯救世界](https://www.cq082.com/book/1sdd11e/)
 - [渣攻必须he（快穿）](https://www.cq082.com/book/1sdd0ij/)
-- [九零首富的替嫁小甜妻](https://www.cq082.com/book/1sdcuia/)
+- [九零首富的替嫁小媳妇](https://www.cq082.com/book/1sdcuia/)
 - [为诡异打工，但反封建迷信](https://www.cq082.com/book/1sdcr5a/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.cq082.com/book/1sdcq9e/)
 - [绿茶男来袭（快穿）](https://www.cq082.com/book/1sdcpml/)
 - [星际第一女A[穿书]](https://www.cq082.com/book/1sdco9s/)
 - [你对寡人的猫有什么意见？](https://www.cq082.com/book/1sdcnjm/)
-- [废太子联盟](https://www.cq082.com/book/1sdcn8d/)
 - [我是封建大爹的好孕小娇妻](https://www.cq082.com/book/1sdcjn8/)
 - [在民俗惊悚片被诸神庇护](https://www.cq082.com/book/1sdcins/)
 - [闺蜜就不能是妻子吗](https://www.cq082.com/book/1sdci8f/)
@@ -112,6 +108,7 @@
 - [替嫁后咸鱼继母佛系日常](https://www.cq082.com/book/1sdc87v/)
 - [他要和我谈恋爱](https://www.cq082.com/book/1sdc84h/)
 - [壮受虫母今天也想逃](https://www.cq082.com/book/1sdc74b/)
+- [贵族学院女保安竟是万人迷](https://www.cq082.com/book/1sdc4bo/)
 - [八零恶毒后妈杀疯了](https://www.cq082.com/book/1sdc2q3/)
 - [至尊法师克拉克[综英美]](https://www.cq082.com/book/1sdbvgl/)
 - [星露谷，但大秦帝国](https://www.cq082.com/book/1sdbv0f/)
@@ -126,6 +123,7 @@
 - [暗涌[破镜重圆]](https://www.cq082.com/book/1sdbkfj/)
 - [道长在诡异世界捉诡](https://www.cq082.com/book/1sdbkcj/)
 - [人气反派的马甲演绎实录](https://www.cq082.com/book/1sdbhmv/)
+- [娶了女装心机太子](https://www.cq082.com/book/1sdbefa/)
 - [雇佣毛茸茸开农场](https://www.cq082.com/book/1sdbe18/)
 - [性转成真千金靠写文逆袭了](https://www.cq082.com/book/1sdbds4/)
 - [惊！S级诡异竟是我自己](https://www.cq082.com/book/1sdbcml/)
@@ -137,7 +135,7 @@
 - [巴黎恋人](https://www.cq082.com/book/1sdb1s7/)
 - [[足球]小甜饼](https://www.cq082.com/book/1sdb16g/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.cq082.com/book/1sdau9n/)
-- [和八个男人身陷瘟疫之地](https://www.cq082.com/book/1sdassg/)
+- [与宿敌他哥契约成婚后](https://www.cq082.com/book/1sdat4q/)
 - [本官早知他是狐狸变的](https://www.cq082.com/book/1sdarpe/)
 - [嘲讽力拉满的我该如何在异世界生活](https://www.cq082.com/book/1sdarab/)
 - [区区精灵[西幻]](https://www.cq082.com/book/1sdaqk3/)

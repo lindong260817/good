@@ -1,7 +1,7 @@
 
 # 自由屋 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-08-25 03:35:55
+更新时间：2026-08-27 03:38:55
 
 自由屋文学网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
@@ -14,24 +14,26 @@
 - [你，后室管理员](https://www.ziyuhai.com/book/84rn52k/)
 - [夺友妻（女尊）](https://www.ziyuhai.com/book/84rn50t/)
 - [高调装神，猥琐发育](https://www.ziyuhai.com/book/84rn50f/)
-- [高嫁之后](https://www.ziyuhai.com/book/84rn50a/)
 - [纯爱宇智波基本恋爱法](https://www.ziyuhai.com/book/84rn4so/)
-- [[希腊神话]蛇蛇神生美妙](https://www.ziyuhai.com/book/84rn4ro/)
+- [直男咒术师的限制级游戏](https://www.ziyuhai.com/book/84rn4s3/)
 - [某柯学的正义伙伴](https://www.ziyuhai.com/book/84rkc7d/)
-- [[足球]最佳前锋](https://www.ziyuhai.com/book/q2q9jf/)
-- [伪装纨绔，怎么成了名相](https://www.ziyuhai.com/book/q2q96i/)
+- [我的老公是暴君](https://www.ziyuhai.com/book/84rk7lg/)
+- [五美元在哥谭活一月](https://www.ziyuhai.com/book/84rk18c/)
+- [我有嘉宾](https://www.ziyuhai.com/book/84rjs3m/)
+- [沈助理又在隐藏他的超能力](https://www.ziyuhai.com/book/q2qrpa/)
+- [野比春子穿越事件簿](https://www.ziyuhai.com/book/q2qhb3/)
+- [[全职高手]问就是没钱](https://www.ziyuhai.com/book/q2q93o/)
+- [作家与读者](https://www.ziyuhai.com/book/q2q43a/)
+- [绿叶](https://www.ziyuhai.com/book/q2q36f/)
+- [我与龙傲天寿命共享](https://www.ziyuhai.com/book/q2q1sv/)
 - [简单罗曼史](https://www.ziyuhai.com/book/q2pvuf/)
-- [一枝枝怨](https://www.ziyuhai.com/book/q2puah/)
 - [这谁的沙雕二次元心声！](https://www.ziyuhai.com/book/q2ptab/)
 - [老公是松散生命体](https://www.ziyuhai.com/book/q2pt2v/)
-- [在魔法世界屯田争霸](https://www.ziyuhai.com/book/q2pn1d/)
+- [多梦你一会儿](https://www.ziyuhai.com/book/q2pi25/)
 - [[足球]罗蜜第一志愿](https://www.ziyuhai.com/book/q2pfeg/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.ziyuhai.com/book/q2peps/)
 - [拯救世界从扮演反派开始](https://www.ziyuhai.com/book/q2pecm/)
 - [和前女友的心上人he了](https://www.ziyuhai.com/book/q2pc5e/)
-- [在民俗惊悚片被诸神庇护](https://www.ziyuhai.com/book/q2p57s/)
-- [哥你不能不要我](https://www.ziyuhai.com/book/q2os1a/)
-- [被奇犽告白以后](https://www.ziyuhai.com/book/2jf8ql/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1278/index.md)

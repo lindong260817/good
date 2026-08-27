@@ -1,18 +1,17 @@
 
 # 电子洗砂机小说网-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-08-25 03:18:46
+更新时间：2026-08-27 03:20:50
 
 电子洗砂机小说网提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
 
 - [电子洗砂机小说网](https://www.dzxishaji.com/)
 
 ## 最新小说
+- [无限末日副本：我有移动安全屋](https://www.dzxishaji.com/book/70ulsng/)
 - [人妻O救赎指南](https://www.dzxishaji.com/book/70uler9/)
-- [七零回城女知青[穿书]](https://www.dzxishaji.com/book/70ulent/)
-- [养父](https://www.dzxishaji.com/book/70uleni/)
-- [和八个男人身陷瘟疫之地](https://www.dzxishaji.com/book/70uiehb/)
-- [暴君的赝品公主](https://www.dzxishaji.com/book/70uie4l/)
+- [娶了女装心机太子](https://www.dzxishaji.com/book/70uj0qs/)
+- [与宿敌他哥契约成婚后](https://www.dzxishaji.com/book/70uidmj/)
 - [道长他为何那样](https://www.dzxishaji.com/book/70ui9fu/)
 - [小白花是黑暗向导](https://www.dzxishaji.com/book/70uhi08/)
 - [巨物致富：回乡开钓场](https://www.dzxishaji.com/book/70uhhv7/)
@@ -39,7 +38,6 @@
 - [小可怜替嫁给豪门古板Daddy后](https://www.dzxishaji.com/book/70uhh9q/)
 - [我有一座安全城](https://www.dzxishaji.com/book/70uhh81/)
 - [金手指夫妻在六零](https://www.dzxishaji.com/book/70uhh7c/)
-- [废太子联盟](https://www.dzxishaji.com/book/70uhh72/)
 - [我靠卖盲盒复苏华夏神灵](https://www.dzxishaji.com/book/70uhh71/)
 - [老公你人设是不是崩了](https://www.dzxishaji.com/book/70uhh5f/)
 - [渣攻必须he（快穿）](https://www.dzxishaji.com/book/70uhh5c/)
@@ -51,7 +49,7 @@
 - [千禧年，拆迁分了十栋楼！](https://www.dzxishaji.com/book/70uhh37/)
 - [[综英美]穿过你的黑发我的手](https://www.dzxishaji.com/book/70uhh23/)
 - [被四皇错看成小动物后](https://www.dzxishaji.com/book/70uhh1q/)
-- [九零首富的替嫁小甜妻](https://www.dzxishaji.com/book/70uhh1l/)
+- [九零首富的替嫁小媳妇](https://www.dzxishaji.com/book/70uhh1l/)
 - [[足球]替补门将](https://www.dzxishaji.com/book/70uhh1h/)
 - [朕看上的少年是侠女](https://www.dzxishaji.com/book/70uhh1d/)
 - [[娱乐圈]过分美丽的她](https://www.dzxishaji.com/book/70uhgui/)
@@ -69,11 +67,12 @@
 - [掌中春莺](https://www.dzxishaji.com/book/70uhgll/)
 - [[足球]如此足球，怎能不恨](https://www.dzxishaji.com/book/70uhgl8/)
 - [美人魔头绑定龙傲天系统后](https://www.dzxishaji.com/book/70uhgit/)
-- [[综]成年人为什么会成为救世主](https://www.dzxishaji.com/book/70uhgin/)
+- [[反穿]我的救世主生涯不对劲？](https://www.dzxishaji.com/book/70uhgin/)
 - [星际团宠小人鱼](https://www.dzxishaji.com/book/70uhgia/)
 - [被偏执混血daddy盯上了](https://www.dzxishaji.com/book/70uhgi4/)
 - [海上求生:生活玩家战力爆表](https://www.dzxishaji.com/book/70uhght/)
 - [趁她之危](https://www.dzxishaji.com/book/70uhghm/)
+- [完蛋！被恨孕男包围了！](https://www.dzxishaji.com/book/70uhghk/)
 - [与冷脸糙汉相亲后](https://www.dzxishaji.com/book/70uhgh7/)
 - [太宗今天又哭了吗](https://www.dzxishaji.com/book/70uhggu/)
 - [立海大的水仙赛季](https://www.dzxishaji.com/book/70uhgfj/)
@@ -85,7 +84,6 @@
 - [荒滩种田记](https://www.dzxishaji.com/book/70uhgco/)
 - [五十年代港城日常](https://www.dzxishaji.com/book/70uhgce/)
 - [虫族雌兄，你好香啊](https://www.dzxishaji.com/book/70uhgbg/)
-- [前女友孩子三岁了](https://www.dzxishaji.com/book/70uhgah/)
 - [[足球]家里到底有谁在啊你说清楚！](https://www.dzxishaji.com/book/70uhgaa/)
 - [[综英美]在综恐世界逃生](https://www.dzxishaji.com/book/70uhg94/)
 - [我演的不是漂亮圣子攻吗?](https://www.dzxishaji.com/book/70uhg7t/)
@@ -100,7 +98,6 @@
 - [医学大佬在年代文[穿书]](https://www.dzxishaji.com/book/70uhg4f/)
 - [嘲讽力拉满的我该如何在异世界生活](https://www.dzxishaji.com/book/70uhg46/)
 - [分手后与诱系妻子再度热恋](https://www.dzxishaji.com/book/70uhg3e/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.dzxishaji.com/book/70uhg1n/)
 - [误入反派培养直播后](https://www.dzxishaji.com/book/70uhg14/)
 - [当咒术高专来了个杀鬼道士](https://www.dzxishaji.com/book/70uhg10/)
 - [夺养媳](https://www.dzxishaji.com/book/70uhg0m/)
@@ -140,6 +137,7 @@
 - [万人嫌他真不想掉马](https://www.dzxishaji.com/book/70uhfc5/)
 - [邻居小孩太有钱[快穿]](https://www.dzxishaji.com/book/70uhfbv/)
 - [她是反派的背景板母亲](https://www.dzxishaji.com/book/70uhfbr/)
+- [贵族学院女保安竟是万人迷](https://www.dzxishaji.com/book/70uhfbl/)
 - [咖啡大亨模拟经营指南](https://www.dzxishaji.com/book/70uhfbb/)
 - [红楼之玉成佳事](https://www.dzxishaji.com/book/70uhfa7/)
 - [壮受虫母今天也想逃](https://www.dzxishaji.com/book/70uhf9o/)

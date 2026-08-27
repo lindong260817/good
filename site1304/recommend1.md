@@ -1,14 +1,13 @@
 
 # 唯我小说网-最新小说在线阅读,好看小说全文阅读
 
-更新时间：2026-08-25 03:20:35
+更新时间：2026-08-27 03:22:41
 
 唯我小说网提供最新最热门的小说在线阅读服务，包括但不限于各类好看的小说全文内容，满足广大读者的需求。
 
 - [唯我小说网](https://www.hkffbw.com/)
 
 ## 最新小说
-- [养父](https://www.hkffbw.com/book/4nr5ret/)
 - [云深不知处](https://www.hkffbw.com/book/4nr5rer/)
 - [与冷脸糙汉相亲后](https://www.hkffbw.com/book/4nr5req/)
 - [[足球]家里到底有谁在啊你说清楚！](https://www.hkffbw.com/book/4nr5rep/)
@@ -17,7 +16,7 @@
 - [[综崩铁]你怎么知道我是令使](https://www.hkffbw.com/book/4nr5rem/)
 - [彭格列的大空](https://www.hkffbw.com/book/4nr5rel/)
 - [始乱终弃清冷首辅后](https://www.hkffbw.com/book/4nr5rek/)
-- [[综]成年人为什么会成为救世主](https://www.hkffbw.com/book/4nr5rej/)
+- [[反穿]我的救世主生涯不对劲？](https://www.hkffbw.com/book/4nr5rej/)
 - [玄意未尽时 [穿书]](https://www.hkffbw.com/book/4nr5rei/)
 - [小可怜替嫁给豪门古板Daddy后](https://www.hkffbw.com/book/4nr5reg/)
 - [窃春欢](https://www.hkffbw.com/book/4nr5ref/)
@@ -52,7 +51,7 @@
 - [我和马甲真没在一起](https://www.hkffbw.com/book/4nr5rdg/)
 - [继兄怀孕，孩子是我的](https://www.hkffbw.com/book/4nr5rdf/)
 - [在柯学世界装路人失败后](https://www.hkffbw.com/book/4nr5rde/)
-- [九零首富的替嫁小甜妻](https://www.hkffbw.com/book/4nr5rdd/)
+- [九零首富的替嫁小媳妇](https://www.hkffbw.com/book/4nr5rdd/)
 - [神之子严胜](https://www.hkffbw.com/book/4nr5rdc/)
 - [咖啡大亨模拟经营指南](https://www.hkffbw.com/book/4nr5rdb/)
 - [越前的排球RPG](https://www.hkffbw.com/book/4nr5rda/)
@@ -81,11 +80,9 @@
 - [李师傅拳打好莱坞[六零]](https://www.hkffbw.com/book/4nr5rch/)
 - [小寡夫女装直播捞到了封建亡夫](https://www.hkffbw.com/book/4nr5rcg/)
 - [高调装神，猥琐发育](https://www.hkffbw.com/book/4nr5rcf/)
-- [暴君的赝品公主](https://www.hkffbw.com/book/4nr5rce/)
 - [假少爷不想活了](https://www.hkffbw.com/book/4nr5rcb/)
 - [千禧年，拆迁分了十栋楼！](https://www.hkffbw.com/book/4nr5r9v/)
 - [纯爱宇智波基本恋爱法](https://www.hkffbw.com/book/4nr5r9a/)
-- [和八个男人身陷瘟疫之地](https://www.hkffbw.com/book/4nr5qfe/)
 - [道长他为何那样](https://www.hkffbw.com/book/4nr5pvp/)
 - [六零之成了卷王的妹妹](https://www.hkffbw.com/book/4nr5pv6/)
 - [古代种田养娃日常](https://www.hkffbw.com/book/4nr4qj2/)
@@ -94,7 +91,7 @@
 - [老公对不起](https://www.hkffbw.com/book/4nr4d5k/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.hkffbw.com/book/4nr3sft/)
 - [主角前任他分手分不掉了](https://www.hkffbw.com/book/4nr3psv/)
-- [七零回城女知青[穿书]](https://www.hkffbw.com/book/4nr3nn8/)
+- [无限末日副本：我有移动安全屋](https://www.hkffbw.com/book/4nr3j1k/)
 - [御兽师，我打工养你啊](https://www.hkffbw.com/book/4nr3aop/)
 - [穿成炮灰后我封神了［快穿］](https://www.hkffbw.com/book/4nr30sk/)
 - [七零捡漏日常](https://www.hkffbw.com/book/4nr30n4/)
@@ -111,14 +108,11 @@
 - [禁止限制文主角转职龙傲天](https://www.hkffbw.com/book/4nr299t/)
 - [渣攻必须he（快穿）](https://www.hkffbw.com/book/4nr23tp/)
 - [她是反派的背景板母亲](https://www.hkffbw.com/book/f5vlnl/)
-- [前女友孩子三岁了](https://www.hkffbw.com/book/f5vkn2/)
 - [喜恶同因[青梅竹马]](https://www.hkffbw.com/book/f5vh9g/)
 - [星际第一女A[穿书]](https://www.hkffbw.com/book/f5vgkm/)
 - [绿茶男来袭（快穿）](https://www.hkffbw.com/book/f5ve9g/)
 - [成为养成系练习生后](https://www.hkffbw.com/book/f5vdmo/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.hkffbw.com/book/f5vac2/)
 - [你对寡人的猫有什么意见？](https://www.hkffbw.com/book/f5v9n8/)
-- [废太子联盟](https://www.hkffbw.com/book/f5v8vi/)
 - [迷雾求生，种田玩家也能当榜一？](https://www.hkffbw.com/book/f5v7lj/)
 - [闺蜜就不能是妻子吗](https://www.hkffbw.com/book/f5v7i0/)
 - [为诡异打工，但反封建迷信](https://www.hkffbw.com/book/f5v6e0/)
@@ -128,6 +122,7 @@
 - [邻居小孩太有钱[快穿]](https://www.hkffbw.com/book/f5v189/)
 - [太宗今天又哭了吗](https://www.hkffbw.com/book/f5uvs0/)
 - [壮受虫母今天也想逃](https://www.hkffbw.com/book/f5usqu/)
+- [贵族学院女保安竟是万人迷](https://www.hkffbw.com/book/f5uquq/)
 - [京华无尽夏](https://www.hkffbw.com/book/f5uk7o/)
 - [至尊法师克拉克[综英美]](https://www.hkffbw.com/book/f5ujna/)
 - [星露谷，但大秦帝国](https://www.hkffbw.com/book/f5uja8/)
@@ -142,6 +137,7 @@
 - [惊！S级诡异竟是我自己](https://www.hkffbw.com/book/f5u90e/)
 - [雇佣毛茸茸开农场](https://www.hkffbw.com/book/f5u6og/)
 - [性转成真千金靠写文逆袭了](https://www.hkffbw.com/book/f5u6c0/)
+- [娶了女装心机太子](https://www.hkffbw.com/book/f5u5b0/)
 - [立海大的水仙赛季](https://www.hkffbw.com/book/f5u2gb/)
 - [人气反派的马甲演绎实录](https://www.hkffbw.com/book/f5u1ih/)
 - [在赛博世界手搓一座城](https://www.hkffbw.com/book/f5u0re/)
@@ -151,6 +147,7 @@
 - [魏尔伦猫猫能有什么坏心思呢](https://www.hkffbw.com/book/f5tpr9/)
 - [巴黎恋人](https://www.hkffbw.com/book/f5tpb7/)
 - [区区精灵[西幻]](https://www.hkffbw.com/book/f5tlbr/)
+- [与宿敌他哥契约成婚后](https://www.hkffbw.com/book/f5tl0g/)
 - [本官早知他是狐狸变的](https://www.hkffbw.com/book/f5tk6k/)
 - [如何扮演源氏重宝](https://www.hkffbw.com/book/1giv2d/)
 - [我是唯一地上神国](https://www.hkffbw.com/book/1giv1n/)
@@ -170,6 +167,7 @@
 - [95美国贵族高中模拟](https://www.hkffbw.com/book/1git1r/)
 - [我真不是算命的！[香江]](https://www.hkffbw.com/book/1git1m/)
 - [替嫁后咸鱼继母佛系日常](https://www.hkffbw.com/book/4rgb4/)
+- [完蛋！被恨孕男包围了！](https://www.hkffbw.com/book/4rfti/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1304/index.md)

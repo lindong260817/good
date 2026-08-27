@@ -1,7 +1,7 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-08-25 03:33:33
+更新时间：2026-08-27 03:36:16
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。
 
@@ -14,24 +14,26 @@
 - [你，后室管理员](https://www.xqwz8bk.com/book/1igm2tn/)
 - [[封神]圣人生欲](https://www.xqwz8bk.com/book/1igm2t8/)
 - [高调装神，猥琐发育](https://www.xqwz8bk.com/book/1igm2sj/)
-- [高嫁之后](https://www.xqwz8bk.com/book/1igm2q2/)
 - [纯爱宇智波基本恋爱法](https://www.xqwz8bk.com/book/1igm2ok/)
-- [[希腊神话]蛇蛇神生美妙](https://www.xqwz8bk.com/book/1igm2oh/)
+- [直男咒术师的限制级游戏](https://www.xqwz8bk.com/book/1igm2nn/)
 - [某柯学的正义伙伴](https://www.xqwz8bk.com/book/1igjaf1/)
-- [[足球]最佳前锋](https://www.xqwz8bk.com/book/51mvsj/)
-- [伪装纨绔，怎么成了名相](https://www.xqwz8bk.com/book/51mtn5/)
+- [我的老公是暴君](https://www.xqwz8bk.com/book/1igj479/)
+- [五美元在哥谭活一月](https://www.xqwz8bk.com/book/1igius4/)
+- [我有嘉宾](https://www.xqwz8bk.com/book/1igiolo/)
+- [沈助理又在隐藏他的超能力](https://www.xqwz8bk.com/book/51nhdc/)
+- [野比春子穿越事件簿](https://www.xqwz8bk.com/book/51n2h7/)
+- [[全职高手]问就是没钱](https://www.xqwz8bk.com/book/51mvl4/)
+- [作家与读者](https://www.xqwz8bk.com/book/51mrjm/)
+- [绿叶](https://www.xqwz8bk.com/book/51mq28/)
+- [我与龙傲天寿命共享](https://www.xqwz8bk.com/book/51mp1f/)
 - [简单罗曼史](https://www.xqwz8bk.com/book/51mnog/)
 - [这谁的沙雕二次元心声！](https://www.xqwz8bk.com/book/51mm6d/)
 - [老公是松散生命体](https://www.xqwz8bk.com/book/51mj0i/)
-- [一枝枝怨](https://www.xqwz8bk.com/book/51mgp0/)
-- [在魔法世界屯田争霸](https://www.xqwz8bk.com/book/51me3v/)
+- [多梦你一会儿](https://www.xqwz8bk.com/book/51m9kq/)
 - [拯救世界从扮演反派开始](https://www.xqwz8bk.com/book/51m6sd/)
 - [[足球]罗蜜第一志愿](https://www.xqwz8bk.com/book/51m4qf/)
 - [[足球]幼年巨星被豪门主席强买之后](https://www.xqwz8bk.com/book/51m4lu/)
 - [和前女友的心上人he了](https://www.xqwz8bk.com/book/51lvtu/)
-- [在民俗惊悚片被诸神庇护](https://www.xqwz8bk.com/book/51lti9/)
-- [哥你不能不要我](https://www.xqwz8bk.com/book/51lih5/)
-- [被奇犽告白以后](https://www.xqwz8bk.com/book/1jnq8/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1325/index.md)
