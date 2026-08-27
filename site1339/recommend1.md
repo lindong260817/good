@@ -1,7 +1,7 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-08-27 03:34:18
+更新时间：2026-08-28 03:35:28
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。
 
@@ -89,7 +89,6 @@
 - [绝色美人模拟器](https://www.wkntmcb.com/book/48j0bua/)
 - [[西幻]玛赫里魔药店经营实录](https://www.wkntmcb.com/book/48j0brl/)
 - [我演的不是漂亮圣子攻吗?](https://www.wkntmcb.com/book/48j0a7g/)
-- [喜恶同因[青梅竹马]](https://www.wkntmcb.com/book/48j07ab/)
 - [始皇闺女躺平失败的日子](https://www.wkntmcb.com/book/48j00b7/)
 - [[希腊神话]基建拯救世界](https://www.wkntmcb.com/book/48ivvac/)
 - [九零首富的替嫁小媳妇](https://www.wkntmcb.com/book/48ivth2/)
@@ -122,7 +121,6 @@
 - [被四皇错看成小动物后](https://www.wkntmcb.com/book/48iumvm/)
 - [掌中春莺](https://www.wkntmcb.com/book/48iuj1b/)
 - [道长在诡异世界捉诡](https://www.wkntmcb.com/book/48iugjj/)
-- [暗涌[破镜重圆]](https://www.wkntmcb.com/book/48iugel/)
 - [人气反派的马甲演绎实录](https://www.wkntmcb.com/book/48iue68/)
 - [惊！S级诡异竟是我自己](https://www.wkntmcb.com/book/48iucdd/)
 - [娶了女装心机太子](https://www.wkntmcb.com/book/48iubvs/)

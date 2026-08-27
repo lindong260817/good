@@ -1,7 +1,7 @@
 
 # 都来读小说网 - 免费电子书阅读平台
 
-更新时间：2026-08-27 03:32:27
+更新时间：2026-08-28 03:33:20
 
 都来读小说网提供快速更新的海量免费小说资源，主要以TXT格式为主，致力于为读者带来优质的阅读体验。
 
@@ -17,7 +17,6 @@
 - [咖啡大亨模拟经营指南](https://www.swazs.com/book/1u7fiq0/)
 - [被偏执混血daddy盯上了](https://www.swazs.com/book/1u7fipt/)
 - [壮受虫母今天也想逃](https://www.swazs.com/book/1u7fipr/)
-- [暗涌[破镜重圆]](https://www.swazs.com/book/1u7fipi/)
 - [朕看上的少年是侠女](https://www.swazs.com/book/1u7fior/)
 - [小可怜替嫁给豪门古板Daddy后](https://www.swazs.com/book/1u7fiog/)
 - [神之子严胜](https://www.swazs.com/book/1u7finj/)
@@ -101,7 +100,6 @@
 - [我靠卖盲盒复苏华夏神灵](https://www.swazs.com/book/1u7fgrq/)
 - [奉旨怼人](https://www.swazs.com/book/1u7fgqr/)
 - [金手指夫妻在六零](https://www.swazs.com/book/1u7fgqo/)
-- [喜恶同因[青梅竹马]](https://www.swazs.com/book/1u7fgql/)
 - [禁止限制文主角转职龙傲天](https://www.swazs.com/book/1u7fgor/)
 - [误入反派培养直播后](https://www.swazs.com/book/1u7fgog/)
 - [断供留子，老公赛级白男](https://www.swazs.com/book/1u7fgo7/)

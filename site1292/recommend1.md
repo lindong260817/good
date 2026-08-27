@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-08-27 03:38:05
+更新时间：2026-08-28 03:39:20
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
@@ -109,7 +109,6 @@
 - [我演的不是漂亮圣子攻吗?](https://www.yumin66.com/book/5q26a2/)
 - [始皇闺女躺平失败的日子](https://www.yumin66.com/book/5q25ic/)
 - [渣攻必须he（快穿）](https://www.yumin66.com/book/im3f2/)
-- [喜恶同因[青梅竹马]](https://www.yumin66.com/book/ilv8a/)
 - [星际第一女A[穿书]](https://www.yumin66.com/book/ilr3v/)
 - [成为养成系练习生后](https://www.yumin66.com/book/ilnir/)
 - [你对寡人的猫有什么意见？](https://www.yumin66.com/book/ill24/)
@@ -132,7 +131,6 @@
 - [[希腊神话]基建拯救世界](https://www.yumin66.com/book/ikqsm/)
 - [道长在诡异世界捉诡](https://www.yumin66.com/book/iknpn/)
 - [掌中春莺](https://www.yumin66.com/book/iknf4/)
-- [暗涌[破镜重圆]](https://www.yumin66.com/book/ikmre/)
 - [性转成真千金靠写文逆袭了](https://www.yumin66.com/book/ikm4n/)
 - [误入反派培养直播后](https://www.yumin66.com/book/ikkeb/)
 - [惊！S级诡异竟是我自己](https://www.yumin66.com/book/ikjmu/)

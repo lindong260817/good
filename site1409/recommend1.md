@@ -1,13 +1,18 @@
 
 # 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
 
-更新时间：2026-08-27 03:17:36
+更新时间：2026-08-28 03:17:37
 
 瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！
 
 - [瑞文文学网](https://www.49ig.com/)
 
 ## 最新小说
+- [我有特殊的升官技巧](https://www.49ig.com/book/436an43/)
+- [反派人生，易如反掌[快穿]](https://www.49ig.com/book/436amt2/)
+- [将妹妹嫁给别人后](https://www.49ig.com/book/436am6p/)
+- [始皇闺女躺平失败的日子](https://www.49ig.com/book/436alou/)
+- [我真的只会Ctrl啊！！！](https://www.49ig.com/book/436alog/)
 - [误入反派培养直播后](https://www.49ig.com/book/43698eg/)
 - [被反派暴君听到心声后[穿书]](https://www.49ig.com/book/43698da/)
 - [[希腊神话]基建拯救世界](https://www.49ig.com/book/43698co/)
@@ -25,11 +30,9 @@
 - [越界沉溺](https://www.49ig.com/book/4369830/)
 - [人妻O救赎指南](https://www.49ig.com/book/436982j/)
 - [迷雾求生，种田玩家也能当榜一？](https://www.49ig.com/book/436982f/)
-- [她是反派的背景板母亲](https://www.49ig.com/book/436981v/)
 - [把讨厌的师兄写进限制文后](https://www.49ig.com/book/436981d/)
 - [你，后室管理员](https://www.49ig.com/book/4369816/)
 - [主角前任他分手分不掉了](https://www.49ig.com/book/436980b/)
-- [完蛋！被恨孕男包围了！](https://www.49ig.com/book/436980a/)
 - [恶犬品德](https://www.49ig.com/book/4369805/)
 - [从死亡开始的猎人笔记](https://www.49ig.com/book/43697uf/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.49ig.com/book/43697tm/)
@@ -41,7 +44,6 @@
 - [星际第一女A[穿书]](https://www.49ig.com/book/43697rm/)
 - [宿敌为我而死后](https://www.49ig.com/book/43697r2/)
 - [始乱终弃清冷首辅后](https://www.49ig.com/book/43697pk/)
-- [千禧年，拆迁分了十栋楼！](https://www.49ig.com/book/43697p6/)
 - [与冷脸糙汉相亲后](https://www.49ig.com/book/43697no/)
 - [小寡夫女装直播捞到了封建亡夫](https://www.49ig.com/book/43697m5/)
 - [[综崩铁]你怎么知道我是令使](https://www.49ig.com/book/43697m2/)
@@ -68,7 +70,6 @@
 - [趁她之危](https://www.49ig.com/book/436976s/)
 - [[足球]如此足球，怎能不恨](https://www.49ig.com/book/436976o/)
 - [本官早知他是狐狸变的](https://www.49ig.com/book/436976j/)
-- [喜恶同因[青梅竹马]](https://www.49ig.com/book/436976a/)
 - [巫女的乱世逃荒记](https://www.49ig.com/book/436975m/)
 - [[娱乐圈]过分美丽的她](https://www.49ig.com/book/436975g/)
 - [我家刀男不可能是诡异BOSS](https://www.49ig.com/book/4369759/)
@@ -79,13 +80,11 @@
 - [师尊分裂成两个后天天醋自己](https://www.49ig.com/book/43696ur/)
 - [我演的不是漂亮圣子攻吗?](https://www.49ig.com/book/43696ue/)
 - [无限末日副本：我有移动安全屋](https://www.49ig.com/book/43696ud/)
-- [绿茶男来袭（快穿）](https://www.49ig.com/book/43696u6/)
 - [七零捡漏日常](https://www.49ig.com/book/43696tt/)
 - [立海大的水仙赛季](https://www.49ig.com/book/43696sq/)
 - [掌中春莺](https://www.49ig.com/book/43696si/)
 - [木叶RPG，恋爱系物语](https://www.49ig.com/book/43696ro/)
 - [六零之成了卷王的妹妹](https://www.49ig.com/book/43696pr/)
-- [暗涌[破镜重圆]](https://www.49ig.com/book/43696pj/)
 - [95美国贵族高中模拟](https://www.49ig.com/book/43696pa/)
 - [我是封建大爹的好孕小娇妻](https://www.49ig.com/book/43696p7/)
 - [星际团宠小人鱼](https://www.49ig.com/book/43696p6/)
@@ -93,7 +92,6 @@
 - [惊！S级诡异竟是我自己](https://www.49ig.com/book/43696og/)
 - [京华无尽夏](https://www.49ig.com/book/43696n0/)
 - [[足球]小甜饼](https://www.49ig.com/book/43696mp/)
-- [老公对不起](https://www.49ig.com/book/43696lq/)
 - [夜莺不渡](https://www.49ig.com/book/43696km/)
 - [巨物致富：回乡开钓场](https://www.49ig.com/book/43696jh/)
 - [壮受虫母今天也想逃](https://www.49ig.com/book/43696h5/)
@@ -101,7 +99,6 @@
 - [绝对占有](https://www.49ig.com/book/43696fk/)
 - [为诡异打工，但反封建迷信](https://www.49ig.com/book/43696er/)
 - [红楼之玉成佳事](https://www.49ig.com/book/43696eq/)
-- [贵族学院女保安竟是万人迷](https://www.49ig.com/book/43696e6/)
 - [[封神]圣人生欲](https://www.49ig.com/book/43696e5/)
 - [是NPC就来和玩家合影](https://www.49ig.com/book/43696dv/)
 - [我是唯一地上神国](https://www.49ig.com/book/43696ds/)
@@ -154,7 +151,6 @@
 - [人气反派的马甲演绎实录](https://www.49ig.com/book/43695g1/)
 - [道长他为何那样](https://www.49ig.com/book/43695fo/)
 - [当咒术高专来了个杀鬼道士](https://www.49ig.com/book/43695f3/)
-- [与宿敌他哥契约成婚后](https://www.49ig.com/book/43695e9/)
 - [清澈女大的六零年代](https://www.49ig.com/book/43695dl/)
 - [你对寡人的猫有什么意见？](https://www.49ig.com/book/43695cm/)
 - [高门小婢](https://www.49ig.com/book/43695b8/)

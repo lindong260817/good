@@ -1,39 +1,31 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-08-27 03:38:05
+更新时间：2026-08-28 03:39:20
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
 - [酷匠小说网](https://www.yumin66.com/)
 
 ## 最新小说
-- [[封神]圣人生欲](https://www.yumin66.com/book/5q5n5t/)
-- [他要和我谈恋爱](https://www.yumin66.com/book/5q5n5o/)
-- [你，后室管理员](https://www.yumin66.com/book/5q5n5l/)
-- [夺友妻（女尊）](https://www.yumin66.com/book/5q5n5h/)
-- [星际团宠小人鱼](https://www.yumin66.com/book/5q5n58/)
-- [高调装神，猥琐发育](https://www.yumin66.com/book/5q5n4h/)
-- [直男咒术师的限制级游戏](https://www.yumin66.com/book/5q5n44/)
-- [纯爱宇智波基本恋爱法](https://www.yumin66.com/book/5q5n0g/)
-- [某柯学的正义伙伴](https://www.yumin66.com/book/5q2uti/)
-- [我的老公是暴君](https://www.yumin66.com/book/5q2q22/)
-- [五美元在哥谭活一月](https://www.yumin66.com/book/5q2ije/)
-- [我有嘉宾](https://www.yumin66.com/book/5q2ejg/)
-- [沈助理又在隐藏他的超能力](https://www.yumin66.com/book/ilsr7/)
-- [野比春子穿越事件簿](https://www.yumin66.com/book/ilftm/)
-- [[全职高手]问就是没钱](https://www.yumin66.com/book/ilbut/)
-- [绿叶](https://www.yumin66.com/book/il7fk/)
-- [作家与读者](https://www.yumin66.com/book/il6gc/)
-- [简单罗曼史](https://www.yumin66.com/book/il36d/)
-- [我与龙傲天寿命共享](https://www.yumin66.com/book/il367/)
-- [这谁的沙雕二次元心声！](https://www.yumin66.com/book/il1eo/)
-- [老公是松散生命体](https://www.yumin66.com/book/ikvsh/)
-- [多梦你一会儿](https://www.yumin66.com/book/ikk5b/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.yumin66.com/book/ikhud/)
-- [[足球]罗蜜第一志愿](https://www.yumin66.com/book/ikgn3/)
-- [拯救世界从扮演反派开始](https://www.yumin66.com/book/ikggt/)
-- [和前女友的心上人he了](https://www.yumin66.com/book/ikcsv/)
+- [我在虫族监狱写小说](https://www.yumin66.com/book/5q2t9p/)
+- [我演的不是漂亮圣子攻吗?](https://www.yumin66.com/book/5q26a2/)
+- [[诡秘之主]乌鸦童话](https://www.yumin66.com/book/5q25q2/)
+- [错嫁春笼（先婚后爱）](https://www.yumin66.com/book/ilo39/)
+- [与清冷O协议结婚后她失忆了](https://www.yumin66.com/book/ilkoa/)
+- [被天使之王骗婚后[诡秘之主]](https://www.yumin66.com/book/ilkc1/)
+- [迷雾求生，种田玩家也能当榜一？](https://www.yumin66.com/book/iljdv/)
+- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.yumin66.com/book/ilj6u/)
+- [闺蜜就不能是妻子吗](https://www.yumin66.com/book/ilhsj/)
+- [宝儿楼](https://www.yumin66.com/book/ilcsp/)
+- [邻居小孩太有钱[快穿]](https://www.yumin66.com/book/ilbbg/)
+- [重生后雌君追来了](https://www.yumin66.com/book/il9dh/)
+- [全星际都想吃我做的菜](https://www.yumin66.com/book/il8vk/)
+- [和饲养的黑蛇恋爱后](https://www.yumin66.com/book/il5mc/)
+- [我将双打队友护至身前，自己站桩躺赢](https://www.yumin66.com/book/il468/)
+- [骗失忆死对头修合欢道](https://www.yumin66.com/book/il1e9/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.yumin66.com/book/ikll5/)
+- [海岛求生：生活玩家种田囤货](https://www.yumin66.com/book/1rhdr/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1292/index.md)

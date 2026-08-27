@@ -1,7 +1,7 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-08-27 03:29:50
+更新时间：2026-08-28 03:30:31
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
@@ -109,7 +109,6 @@
 - [禁止限制文主角转职龙傲天](https://www.revwarny.com/book/3sghm4e/)
 - [始皇闺女躺平失败的日子](https://www.revwarny.com/book/3sghiv5/)
 - [渣攻必须he（快穿）](https://www.revwarny.com/book/3sghfsa/)
-- [喜恶同因[青梅竹马]](https://www.revwarny.com/book/ceh2p3/)
 - [星际第一女A[穿书]](https://www.revwarny.com/book/cegu98/)
 - [成为养成系练习生后](https://www.revwarny.com/book/cegr0t/)
 - [你对寡人的猫有什么意见？](https://www.revwarny.com/book/cegp5e/)
@@ -133,7 +132,6 @@
 - [[希腊神话]基建拯救世界](https://www.revwarny.com/book/ceftbe/)
 - [道长在诡异世界捉诡](https://www.revwarny.com/book/cefr0v/)
 - [误入反派培养直播后](https://www.revwarny.com/book/cefqg3/)
-- [暗涌[破镜重圆]](https://www.revwarny.com/book/cefqcm/)
 - [性转成真千金靠写文逆袭了](https://www.revwarny.com/book/cefp6p/)
 - [惊！S级诡异竟是我自己](https://www.revwarny.com/book/cefns9/)
 - [娶了女装心机太子](https://www.revwarny.com/book/cefn24/)

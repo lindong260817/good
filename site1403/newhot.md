@@ -1,20 +1,32 @@
 
 # 微雨数据小说,新笔趣小说阅读网,顶点小说网备份-热门小说大全
 
-更新时间：2026-08-27 03:33:16
+更新时间：2026-08-28 03:34:21
 
 微雨数据小说网作为广大书友喜爱的平台之一，同时也是顶点小说阅读网的官方备份网站，汇集了当前最受欢迎和最火热的小说资源。当遇到顶点小说网无法访问时，请访问笔趣看小说网继续享受精彩内容！
 
 - [微雨数据小说](https://www.weiyushuju.com/)
 
 ## 最新小说
-- [星际团宠小人鱼](https://www.weiyushuju.com/book/6rf2a5n/)
-- [纯爱宇智波基本恋爱法](https://www.weiyushuju.com/book/6rf29aj/)
-- [[封神]圣人生欲](https://www.weiyushuju.com/book/6rf295t/)
-- [你，后室管理员](https://www.weiyushuju.com/book/6rf2915/)
-- [高调装神，猥琐发育](https://www.weiyushuju.com/book/6rf289p/)
-- [他要和我谈恋爱](https://www.weiyushuju.com/book/6rf27in/)
-- [夺友妻（女尊）](https://www.weiyushuju.com/book/6rf27gr/)
+- [[诡秘之主]乌鸦童话](https://www.weiyushuju.com/book/6rf5ia2/)
+- [被天使之王骗婚后[诡秘之主]](https://www.weiyushuju.com/book/6rf58u4/)
+- [重生后雌君追来了](https://www.weiyushuju.com/book/6rf57u5/)
+- [骗失忆死对头修合欢道](https://www.weiyushuju.com/book/6rf570g/)
+- [就算是龙傲天也不可以[快穿]](https://www.weiyushuju.com/book/6rf56b9/)
+- [错嫁春笼（先婚后爱）](https://www.weiyushuju.com/book/6rf4u3r/)
+- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.weiyushuju.com/book/6rf4qdu/)
+- [与清冷O协议结婚后她失忆了](https://www.weiyushuju.com/book/6rf4q9p/)
+- [宝儿楼](https://www.weiyushuju.com/book/6rf4njo/)
+- [侯府打工人](https://www.weiyushuju.com/book/6rf4nag/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.weiyushuju.com/book/6rf4mcv/)
+- [全星际都想吃我做的菜](https://www.weiyushuju.com/book/6rf4lqt/)
+- [我将双打队友护至身前，自己站桩躺赢](https://www.weiyushuju.com/book/6rf4dgu/)
+- [和饲养的黑蛇恋爱后](https://www.weiyushuju.com/book/6rf4dbl/)
+- [我演的不是漂亮圣子攻吗?](https://www.weiyushuju.com/book/6rf29v1/)
+- [闺蜜就不能是妻子吗](https://www.weiyushuju.com/book/6rf29q2/)
+- [迷雾求生，种田玩家也能当榜一？](https://www.weiyushuju.com/book/6rf298c/)
+- [邻居小孩太有钱[快穿]](https://www.weiyushuju.com/book/6rf28r9/)
+- [海岛求生：生活玩家种田囤货](https://www.weiyushuju.com/book/6rf2866/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1403/index.md)
