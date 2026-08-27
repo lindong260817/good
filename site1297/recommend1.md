@@ -1,14 +1,13 @@
 
 # 笔趣阁_书友最值得收藏的网络小说阅读网_新笔趣阁5200
 
-更新时间：2026-08-25 03:21:48
+更新时间：2026-08-27 03:23:59
 
 笔趣阁是广大书友最值得收藏的网络小说阅读网，新笔趣阁网站收录了当前最火热的网络小说，笔趣阁5200免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
 - [笔趣阁](https://www.kangrunwangye.com/)
 
 ## 最新小说
-- [养父](https://www.kangrunwangye.com/book/1o9mg31/)
 - [小可怜替嫁给豪门古板Daddy后](https://www.kangrunwangye.com/book/1o9mg2v/)
 - [冥王陛下今天睡醒了吗[综英美]](https://www.kangrunwangye.com/book/1o9mg2u/)
 - [[综崩铁]你怎么知道我是令使](https://www.kangrunwangye.com/book/1o9mg2t/)
@@ -16,7 +15,7 @@
 - [分手后与诱系妻子再度热恋](https://www.kangrunwangye.com/book/1o9mg2r/)
 - [与冷脸糙汉相亲后](https://www.kangrunwangye.com/book/1o9mg2q/)
 - [老公你人设是不是崩了](https://www.kangrunwangye.com/book/1o9mg2p/)
-- [[综]成年人为什么会成为救世主](https://www.kangrunwangye.com/book/1o9mg2o/)
+- [[反穿]我的救世主生涯不对劲？](https://www.kangrunwangye.com/book/1o9mg2o/)
 - [[足球]小甜饼](https://www.kangrunwangye.com/book/1o9mg2n/)
 - [师尊分裂成两个后天天醋自己](https://www.kangrunwangye.com/book/1o9mg2m/)
 - [假道姑也要被真强取豪夺吗](https://www.kangrunwangye.com/book/1o9mg2l/)
@@ -27,7 +26,7 @@
 - [奉旨怼人](https://www.kangrunwangye.com/book/1o9mg2g/)
 - [医学大佬在年代文[穿书]](https://www.kangrunwangye.com/book/1o9mg2f/)
 - [小寡夫女装直播捞到了封建亡夫](https://www.kangrunwangye.com/book/1o9mg2e/)
-- [九零首富的替嫁小甜妻](https://www.kangrunwangye.com/book/1o9mg2d/)
+- [九零首富的替嫁小媳妇](https://www.kangrunwangye.com/book/1o9mg2d/)
 - [星际团宠小人鱼](https://www.kangrunwangye.com/book/1o9mg2c/)
 - [被四皇错看成小动物后](https://www.kangrunwangye.com/book/1o9mg2b/)
 - [继兄怀孕，孩子是我的](https://www.kangrunwangye.com/book/1o9mg2a/)
@@ -81,11 +80,9 @@
 - [[封神]圣人生欲](https://www.kangrunwangye.com/book/1o9mg0m/)
 - [始乱终弃清冷首辅后](https://www.kangrunwangye.com/book/1o9mg0l/)
 - [高调装神，猥琐发育](https://www.kangrunwangye.com/book/1o9mg0i/)
-- [暴君的赝品公主](https://www.kangrunwangye.com/book/1o9mg0h/)
 - [假少爷不想活了](https://www.kangrunwangye.com/book/1o9mg0f/)
 - [纯爱宇智波基本恋爱法](https://www.kangrunwangye.com/book/1o9mftb/)
 - [千禧年，拆迁分了十栋楼！](https://www.kangrunwangye.com/book/1o9mfru/)
-- [和八个男人身陷瘟疫之地](https://www.kangrunwangye.com/book/1o9mf3i/)
 - [道长他为何那样](https://www.kangrunwangye.com/book/1o9mejs/)
 - [六零之成了卷王的妹妹](https://www.kangrunwangye.com/book/1o9meja/)
 - [古代种田养娃日常](https://www.kangrunwangye.com/book/1o9lpq0/)
@@ -94,7 +91,7 @@
 - [老公对不起](https://www.kangrunwangye.com/book/1o9lbf0/)
 - [主角前任他分手分不掉了](https://www.kangrunwangye.com/book/1o9ksro/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kangrunwangye.com/book/1o9kn80/)
-- [七零回城女知青[穿书]](https://www.kangrunwangye.com/book/1o9ke70/)
+- [无限末日副本：我有移动安全屋](https://www.kangrunwangye.com/book/1o9k9jf/)
 - [御兽师，我打工养你啊](https://www.kangrunwangye.com/book/1o9k1ad/)
 - [穿成炮灰后我封神了［快穿］](https://www.kangrunwangye.com/book/1o9jn7g/)
 - [七零捡漏日常](https://www.kangrunwangye.com/book/1o9jn2o/)
@@ -110,15 +107,12 @@
 - [我演的不是漂亮圣子攻吗?](https://www.kangrunwangye.com/book/1o9iv1p/)
 - [禁止限制文主角转职龙傲天](https://www.kangrunwangye.com/book/1o9iund/)
 - [渣攻必须he（快穿）](https://www.kangrunwangye.com/book/1o9ip78/)
-- [前女友孩子三岁了](https://www.kangrunwangye.com/book/5k7o8l/)
 - [她是反派的背景板母亲](https://www.kangrunwangye.com/book/5k7nro/)
 - [绿茶男来袭（快穿）](https://www.kangrunwangye.com/book/5k7jch/)
 - [喜恶同因[青梅竹马]](https://www.kangrunwangye.com/book/5k7j87/)
 - [星际第一女A[穿书]](https://www.kangrunwangye.com/book/5k7h4q/)
 - [成为养成系练习生后](https://www.kangrunwangye.com/book/5k7csj/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.kangrunwangye.com/book/5k7c9b/)
 - [你对寡人的猫有什么意见？](https://www.kangrunwangye.com/book/5k7b4e/)
-- [废太子联盟](https://www.kangrunwangye.com/book/5k79sr/)
 - [闺蜜就不能是妻子吗](https://www.kangrunwangye.com/book/5k78gr/)
 - [木叶RPG，恋爱系物语](https://www.kangrunwangye.com/book/5k78gp/)
 - [迷雾求生，种田玩家也能当榜一？](https://www.kangrunwangye.com/book/5k76lr/)
@@ -128,6 +122,7 @@
 - [太宗今天又哭了吗](https://www.kangrunwangye.com/book/5k75e1/)
 - [邻居小孩太有钱[快穿]](https://www.kangrunwangye.com/book/5k71jv/)
 - [壮受虫母今天也想逃](https://www.kangrunwangye.com/book/5k71cc/)
+- [贵族学院女保安竟是万人迷](https://www.kangrunwangye.com/book/5k6s41/)
 - [至尊法师克拉克[综英美]](https://www.kangrunwangye.com/book/5k6n89/)
 - [夜偶](https://www.kangrunwangye.com/book/5k6m0p/)
 - [星露谷，但大秦帝国](https://www.kangrunwangye.com/book/5k6ltn/)
@@ -141,6 +136,7 @@
 - [暗涌[破镜重圆]](https://www.kangrunwangye.com/book/5k6boc/)
 - [性转成真千金靠写文逆袭了](https://www.kangrunwangye.com/book/5k6a7d/)
 - [惊！S级诡异竟是我自己](https://www.kangrunwangye.com/book/5k6a5g/)
+- [娶了女装心机太子](https://www.kangrunwangye.com/book/5k68hg/)
 - [雇佣毛茸茸开农场](https://www.kangrunwangye.com/book/5k679u/)
 - [立海大的水仙赛季](https://www.kangrunwangye.com/book/5k65gg/)
 - [在赛博世界手搓一座城](https://www.kangrunwangye.com/book/5k63of/)
@@ -152,6 +148,7 @@
 - [魏尔伦猫猫能有什么坏心思呢](https://www.kangrunwangye.com/book/5k5sba/)
 - [区区精灵[西幻]](https://www.kangrunwangye.com/book/5k5muf/)
 - [本官早知他是狐狸变的](https://www.kangrunwangye.com/book/5k5msk/)
+- [与宿敌他哥契约成婚后](https://www.kangrunwangye.com/book/5k5mp5/)
 - [我有一座安全城](https://www.kangrunwangye.com/book/i0ib9/)
 - [我是唯一地上神国](https://www.kangrunwangye.com/book/i0i4c/)
 - [卧底后被港岛大小姐缠上了](https://www.kangrunwangye.com/book/i0i1j/)
@@ -163,6 +160,7 @@
 - [穿到反派落魄时](https://www.kangrunwangye.com/book/i0h5b/)
 - [我真不是算命的！[香江]](https://www.kangrunwangye.com/book/i0h28/)
 - [清澈女大的六零年代](https://www.kangrunwangye.com/book/i0gsg/)
+- [完蛋！被恨孕男包围了！](https://www.kangrunwangye.com/book/i0ge6/)
 - [大瑛弟国](https://www.kangrunwangye.com/book/i0ge4/)
 - [[娱乐圈]过分美丽的她](https://www.kangrunwangye.com/book/i0gd5/)
 - [全民求生:从小木屋到魔法农场](https://www.kangrunwangye.com/book/i0gcm/)

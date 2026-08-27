@@ -1,7 +1,7 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-08-25 03:17:21
+更新时间：2026-08-27 03:19:19
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
@@ -13,24 +13,27 @@
 - [你，后室管理员](https://www.cialisgs.com/book/89ru3hl/)
 - [[封神]圣人生欲](https://www.cialisgs.com/book/89ru3h9/)
 - [他要和我谈恋爱](https://www.cialisgs.com/book/89ru3h2/)
+- [从异世界穿回来后](https://www.cialisgs.com/book/89ru3fd/)
 - [高调装神，猥琐发育](https://www.cialisgs.com/book/89ru3ed/)
-- [[希腊神话]蛇蛇神生美妙](https://www.cialisgs.com/book/89ru3bv/)
+- [直男咒术师的限制级游戏](https://www.cialisgs.com/book/89ru3bn/)
 - [纯爱宇智波基本恋爱法](https://www.cialisgs.com/book/89ru3bi/)
-- [高嫁之后](https://www.cialisgs.com/book/89ru3bh/)
+- [我的老公是暴君](https://www.cialisgs.com/book/89rsvl7/)
 - [某柯学的正义伙伴](https://www.cialisgs.com/book/89rr9va/)
-- [伪装纨绔，怎么成了名相](https://www.cialisgs.com/book/qir08j/)
-- [[足球]最佳前锋](https://www.cialisgs.com/book/qiquq6/)
+- [五美元在哥谭活一月](https://www.cialisgs.com/book/89rr0s3/)
+- [我有嘉宾](https://www.cialisgs.com/book/89rqrmr/)
+- [沈助理又在隐藏他的超能力](https://www.cialisgs.com/book/qirhaa/)
+- [野比春子穿越事件簿](https://www.cialisgs.com/book/qir618/)
+- [[全职高手]问就是没钱](https://www.cialisgs.com/book/qir13j/)
+- [作家与读者](https://www.cialisgs.com/book/qiqt5a/)
+- [绿叶](https://www.cialisgs.com/book/qiqqth/)
+- [我与龙傲天寿命共享](https://www.cialisgs.com/book/qiqnof/)
 - [简单罗曼史](https://www.cialisgs.com/book/qiqmep/)
 - [老公是松散生命体](https://www.cialisgs.com/book/qiqkpk/)
 - [这谁的沙雕二次元心声！](https://www.cialisgs.com/book/qiqk7h/)
-- [一枝枝怨](https://www.cialisgs.com/book/qiqjop/)
-- [在魔法世界屯田争霸](https://www.cialisgs.com/book/qiqe85/)
 - [[足球]罗蜜第一志愿](https://www.cialisgs.com/book/qiq7jp/)
+- [多梦你一会儿](https://www.cialisgs.com/book/qiq6i6/)
 - [拯救世界从扮演反派开始](https://www.cialisgs.com/book/qiq44v/)
 - [和前女友的心上人he了](https://www.cialisgs.com/book/qiq1ii/)
-- [在民俗惊悚片被诸神庇护](https://www.cialisgs.com/book/qips5g/)
-- [哥你不能不要我](https://www.cialisgs.com/book/qipjq5/)
-- [被奇犽告白以后](https://www.cialisgs.com/book/8g8oa/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1283/index.md)

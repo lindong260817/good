@@ -1,43 +1,46 @@
 
 # 书社1687小说免费-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-08-25 03:29:12
+更新时间：2026-08-27 03:31:43
 
 书社1687小说免费提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏书社1687小说，享受便捷的小说阅读体验。
 
 - [书社1687小说免费](https://www.shushe1687.com/)
 
 ## 最新小说
+- [从异世界穿回来后](https://www.shushe1687.com/book/489gokg/)
+- [我有嘉宾](https://www.shushe1687.com/book/489gock/)
+- [我的老公是暴君](https://www.shushe1687.com/book/489g5ge/)
 - [星际团宠小人鱼](https://www.shushe1687.com/book/489fuk7/)
 - [夺友妻（女尊）](https://www.shushe1687.com/book/489fui6/)
 - [你，后室管理员](https://www.shushe1687.com/book/489fui2/)
 - [高调装神，猥琐发育](https://www.shushe1687.com/book/489fnds/)
-- [失而复得的白月光[快穿]](https://www.shushe1687.com/book/489f770/)
-- [如何正确哄睡暴君](https://www.shushe1687.com/book/489f3st/)
+- [五美元在哥谭活一月](https://www.shushe1687.com/book/489fc0g/)
+- [我与龙傲天寿命共享](https://www.shushe1687.com/book/489f5hj/)
+- [绿叶](https://www.shushe1687.com/book/489f1mf/)
 - [我不可能舔一个漂亮捞子](https://www.shushe1687.com/book/489epv2/)
+- [沈助理又在隐藏他的超能力](https://www.shushe1687.com/book/489em6a/)
 - [简单罗曼史](https://www.shushe1687.com/book/489em3v/)
-- [在民俗惊悚片被诸神庇护](https://www.shushe1687.com/book/489elb7/)
 - [老公是松散生命体](https://www.shushe1687.com/book/489ekhh/)
-- [被鬼怪宠爱的漂亮书生](https://www.shushe1687.com/book/489ejae/)
 - [微臣怜惜公主](https://www.shushe1687.com/book/489eiie/)
-- [被奇犽告白以后](https://www.shushe1687.com/book/489efbf/)
+- [同时扮演贵族学院F4和平民校花](https://www.shushe1687.com/book/489eff3/)
 - [他要和我谈恋爱](https://www.shushe1687.com/book/489e8j8/)
-- [在魔法世界屯田争霸](https://www.shushe1687.com/book/489e48e/)
-- [炮灰的我该如何上位？](https://www.shushe1687.com/book/489e3ur/)
+- [野比春子穿越事件簿](https://www.shushe1687.com/book/489e72c/)
+- [多梦你一会儿](https://www.shushe1687.com/book/489e4ge/)
+- [大美人beta带球跑了](https://www.shushe1687.com/book/489e43o/)
 - [[封神]圣人生欲](https://www.shushe1687.com/book/489e3op/)
-- [[足球]最佳前锋](https://www.shushe1687.com/book/489e1vk/)
-- [哥你不能不要我](https://www.shushe1687.com/book/489e1sk/)
 - [这谁的沙雕二次元心声！](https://www.shushe1687.com/book/489e1lo/)
-- [伪装纨绔，怎么成了名相](https://www.shushe1687.com/book/489e01f/)
-- [我司艺人永不塌房](https://www.shushe1687.com/book/489du35/)
+- [作家与读者](https://www.shushe1687.com/book/489e1g0/)
+- [[全职高手]问就是没钱](https://www.shushe1687.com/book/489e0jf/)
 - [和前女友的心上人he了](https://www.shushe1687.com/book/489dtpp/)
 - [[足球]罗蜜第一志愿](https://www.shushe1687.com/book/489dppr/)
 - [某柯学的正义伙伴](https://www.shushe1687.com/book/489dpaj/)
 - [井闼山经理每天都被挖墙脚](https://www.shushe1687.com/book/489donc/)
-- [一枝枝怨](https://www.shushe1687.com/book/489dnep/)
-- [幼崽假少爷选择回归寒门](https://www.shushe1687.com/book/489df8g/)
-- [[希腊神话]蛇蛇神生美妙](https://www.shushe1687.com/book/489bno4/)
-- [高嫁之后](https://www.shushe1687.com/book/489bn41/)
+- [[足球]小小鸟堂堂来袭](https://www.shushe1687.com/book/489dfs6/)
+- [好兄弟暴富后非要跟我结婚](https://www.shushe1687.com/book/489d95h/)
+- [法外狂猫](https://www.shushe1687.com/book/489d65a/)
+- [和室友他爸恋爱后](https://www.shushe1687.com/book/489cudm/)
+- [直男咒术师的限制级游戏](https://www.shushe1687.com/book/489bnc9/)
 - [拯救世界从扮演反派开始](https://www.shushe1687.com/book/489bmpl/)
 - [纯爱宇智波基本恋爱法](https://www.shushe1687.com/book/489blvd/)
 ## 相关内容

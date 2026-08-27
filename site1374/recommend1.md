@@ -1,7 +1,7 @@
 
 # 看居中文网_免费小说在线阅读|无弹窗广告值得收藏
 
-更新时间：2026-08-25 03:22:05
+更新时间：2026-08-27 03:24:16
 
 看居中文网是最热门的免费小说网站，提供包括但不限于玄幻、都市、言情等多种类型的小说在线阅读服务。本站实时更新小说最新章节列表，拥有全面的小说排行榜，致力于为读者提供一个干净舒适的阅读环境，无弹窗广告干扰，是您寻找好书的理想之地。
 
@@ -9,8 +9,7 @@
 
 ## 最新小说
 - [人妻O救赎指南](https://www.kanju688.com/book/pavigt/)
-- [养父](https://www.kanju688.com/book/pavif5/)
-- [七零回城女知青[穿书]](https://www.kanju688.com/book/pavcug/)
+- [无限末日副本：我有移动安全屋](https://www.kanju688.com/book/pav88u/)
 - [[足球]如此足球，怎能不恨](https://www.kanju688.com/book/pauvm2/)
 - [把讨厌的师兄写进限制文后](https://www.kanju688.com/book/pauvln/)
 - [医学大佬在年代文[穿书]](https://www.kanju688.com/book/pauvlk/)
@@ -51,7 +50,7 @@
 - [恶毒女配决定去死后](https://www.kanju688.com/book/pauvfo/)
 - [我靠卖盲盒复苏华夏神灵](https://www.kanju688.com/book/pauvfn/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.kanju688.com/book/pauvfi/)
-- [[综]成年人为什么会成为救世主](https://www.kanju688.com/book/pauvfb/)
+- [[反穿]我的救世主生涯不对劲？](https://www.kanju688.com/book/pauvfb/)
 - [漂亮男知青下乡后](https://www.kanju688.com/book/pauvf9/)
 - [师尊分裂成两个后天天醋自己](https://www.kanju688.com/book/pauvf7/)
 - [我和马甲真没在一起](https://www.kanju688.com/book/pauveu/)
@@ -77,7 +76,7 @@
 - [假道姑也要被真强取豪夺吗](https://www.kanju688.com/book/pauval/)
 - [[综英美]穿过你的黑发我的手](https://www.kanju688.com/book/pauvak/)
 - [荒滩种田记](https://www.kanju688.com/book/pauvab/)
-- [暴君的赝品公主](https://www.kanju688.com/book/pauoco/)
+- [完蛋！被恨孕男包围了！](https://www.kanju688.com/book/pauofb/)
 - [高调装神，猥琐发育](https://www.kanju688.com/book/pauoa8/)
 - [捡了龙傲天金手指后](https://www.kanju688.com/book/paudfq/)
 - [[足球]替补门将](https://www.kanju688.com/book/paudba/)
@@ -86,13 +85,12 @@
 - [禁止限制文主角转职龙傲天](https://www.kanju688.com/book/paucnp/)
 - [我演的不是漂亮圣子攻吗?](https://www.kanju688.com/book/pau629/)
 - [[希腊神话]基建拯救世界](https://www.kanju688.com/book/pau28o/)
-- [九零首富的替嫁小甜妻](https://www.kanju688.com/book/patvmh/)
+- [九零首富的替嫁小媳妇](https://www.kanju688.com/book/patvmh/)
 - [为诡异打工，但反封建迷信](https://www.kanju688.com/book/patp19/)
 - [渣攻必须he（快穿）](https://www.kanju688.com/book/pato95/)
 - [在民俗惊悚片被诸神庇护](https://www.kanju688.com/book/patnsn/)
 - [星际第一女A[穿书]](https://www.kanju688.com/book/patne7/)
 - [绿茶男来袭（快穿）](https://www.kanju688.com/book/patl22/)
-- [废太子联盟](https://www.kanju688.com/book/pativl/)
 - [你对寡人的猫有什么意见？](https://www.kanju688.com/book/patiku/)
 - [闺蜜就不能是妻子吗](https://www.kanju688.com/book/patga2/)
 - [我是封建大爹的好孕小娇妻](https://www.kanju688.com/book/patel5/)
@@ -108,6 +106,7 @@
 - [壮受虫母今天也想逃](https://www.kanju688.com/book/pat33c/)
 - [八零恶毒后妈杀疯了](https://www.kanju688.com/book/pat0vn/)
 - [夜偶](https://www.kanju688.com/book/pat0c7/)
+- [贵族学院女保安竟是万人迷](https://www.kanju688.com/book/pasuon/)
 - [星露谷，但大秦帝国](https://www.kanju688.com/book/passj0/)
 - [至尊法师克拉克[综英美]](https://www.kanju688.com/book/pasns9/)
 - [是NPC就来和玩家合影](https://www.kanju688.com/book/pasmkc/)
@@ -119,6 +118,7 @@
 - [道长在诡异世界捉诡](https://www.kanju688.com/book/pase2f/)
 - [人气反派的马甲演绎实录](https://www.kanju688.com/book/pascun/)
 - [性转成真千金靠写文逆袭了](https://www.kanju688.com/book/pas8rq/)
+- [娶了女装心机太子](https://www.kanju688.com/book/pas8lp/)
 - [惊！S级诡异竟是我自己](https://www.kanju688.com/book/pas7ve/)
 - [雇佣毛茸茸开农场](https://www.kanju688.com/book/pas7r9/)
 - [立海大的水仙赛季](https://www.kanju688.com/book/pas514/)
@@ -134,10 +134,9 @@
 - [区区精灵[西幻]](https://www.kanju688.com/book/parn52/)
 - [[西幻]玛赫里魔药店经营实录](https://www.kanju688.com/book/parn0v/)
 - [救命！白无常每天都在钓我](https://www.kanju688.com/book/parmg5/)
-- [和八个男人身陷瘟疫之地](https://www.kanju688.com/book/parlnc/)
+- [与宿敌他哥契约成婚后](https://www.kanju688.com/book/parl0e/)
 - [道长他为何那样](https://www.kanju688.com/book/park2d/)
 - [太宗今天又哭了吗](https://www.kanju688.com/book/paqq7n/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.kanju688.com/book/paqq3t/)
 - [她是反派的背景板母亲](https://www.kanju688.com/book/paqpqh/)
 - [假少爷不想活了](https://www.kanju688.com/book/paqppu/)
 - [[娱乐圈]过分美丽的她](https://www.kanju688.com/book/paqppb/)
@@ -157,7 +156,6 @@
 - [海岛求生：生活玩家种田囤货](https://www.kanju688.com/book/paqomg/)
 - [警察，但犯罪大师系统[刑侦]](https://www.kanju688.com/book/paqolt/)
 - [95美国贵族高中模拟](https://www.kanju688.com/book/paqob4/)
-- [前女友孩子三岁了](https://www.kanju688.com/book/paqo7i/)
 - [六零之成了卷王的妹妹](https://www.kanju688.com/book/paqo70/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kanju688.com/book/paqo6m/)
 - [古代种田养娃日常](https://www.kanju688.com/book/paqo1s/)

@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-25 03:32:04
+更新时间：2026-08-27 03:34:45
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
@@ -15,22 +15,26 @@
 - [他要和我谈恋爱](https://www.wsfsx.com/book/5ts294j/)
 - [高调装神，猥琐发育](https://www.wsfsx.com/book/5ts294e/)
 - [纯爱宇智波基本恋爱法](https://www.wsfsx.com/book/5ts2945/)
-- [高嫁之后](https://www.wsfsx.com/book/5ts293g/)
-- [[希腊神话]蛇蛇神生美妙](https://www.wsfsx.com/book/5ts290n/)
+- [直男咒术师的限制级游戏](https://www.wsfsx.com/book/5ts291p/)
+- [从异世界穿回来后](https://www.wsfsx.com/book/5ts290s/)
+- [我的老公是暴君](https://www.wsfsx.com/book/5ts159l/)
 - [某柯学的正义伙伴](https://www.wsfsx.com/book/5trvebu/)
-- [[足球]最佳前锋](https://www.wsfsx.com/book/ivl26j/)
-- [伪装纨绔，怎么成了名相](https://www.wsfsx.com/book/ivkvnm/)
+- [五美元在哥谭活一月](https://www.wsfsx.com/book/5trv5bs/)
+- [我有嘉宾](https://www.wsfsx.com/book/5trv00k/)
+- [沈助理又在隐藏他的超能力](https://www.wsfsx.com/book/ivli57/)
+- [野比春子穿越事件簿](https://www.wsfsx.com/book/ivl58p/)
+- [[全职高手]问就是没钱](https://www.wsfsx.com/book/ivl2gg/)
+- [作家与读者](https://www.wsfsx.com/book/ivkt8n/)
+- [绿叶](https://www.wsfsx.com/book/ivkt44/)
+- [我与龙傲天寿命共享](https://www.wsfsx.com/book/ivknhh/)
 - [简单罗曼史](https://www.wsfsx.com/book/ivknfi/)
 - [这谁的沙雕二次元心声！](https://www.wsfsx.com/book/ivkmp2/)
 - [老公是松散生命体](https://www.wsfsx.com/book/ivkk58/)
-- [一枝枝怨](https://www.wsfsx.com/book/ivkjnn/)
-- [在魔法世界屯田争霸](https://www.wsfsx.com/book/ivkgc7/)
+- [多梦你一会儿](https://www.wsfsx.com/book/ivk99v/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.wsfsx.com/book/ivk896/)
 - [拯救世界从扮演反派开始](https://www.wsfsx.com/book/ivk6la/)
 - [[足球]罗蜜第一志愿](https://www.wsfsx.com/book/ivk65b/)
 - [和前女友的心上人he了](https://www.wsfsx.com/book/ivk2gi/)
-- [在民俗惊悚片被诸神庇护](https://www.wsfsx.com/book/ivjqq1/)
-- [哥你不能不要我](https://www.wsfsx.com/book/ivjkvn/)
-- [被奇犽告白以后](https://www.wsfsx.com/book/1soa35/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1299/index.md)

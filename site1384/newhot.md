@@ -1,31 +1,41 @@
 
 # 积家健康小说 - 无弹窗无广告小说在线阅读
 
-更新时间：2026-08-25 03:21:09
+更新时间：2026-08-27 03:23:15
 
 积家健康小说提供一个干净简洁的平台让您享受无弹窗无广告的小说在线阅读体验。无论是在线阅读还是下载小说，都是完全免费的。
 
 - [积家健康小说](https://www.jijiajk.com/)
 
 ## 最新小说
-- [哥你不能不要我](https://www.jijiajk.com/book/3ab0fan/)
-- [被奇犽告白以后](https://www.jijiajk.com/book/3ab0bdr/)
-- [我司艺人永不塌房](https://www.jijiajk.com/book/3ab03qv/)
+- [五美元在哥谭活一月](https://www.jijiajk.com/book/3ab17do/)
+- [我与龙傲天寿命共享](https://www.jijiajk.com/book/3ab15a5/)
+- [绿叶](https://www.jijiajk.com/book/3ab13l6/)
+- [我不可能舔一个漂亮捞子](https://www.jijiajk.com/book/3ab0v6l/)
+- [简单罗曼史](https://www.jijiajk.com/book/3ab0nh4/)
+- [微臣怜惜公主](https://www.jijiajk.com/book/3ab0n86/)
+- [老公是松散生命体](https://www.jijiajk.com/book/3ab0mu8/)
+- [豪门养子怀了大哥的崽](https://www.jijiajk.com/book/3ab0hth/)
+- [沈助理又在隐藏他的超能力](https://www.jijiajk.com/book/3ab0g9j/)
+- [同时扮演贵族学院F4和平民校花](https://www.jijiajk.com/book/3ab0etc/)
+- [大美人beta带球跑了](https://www.jijiajk.com/book/3ab0df3/)
+- [直男咒术师的限制级游戏](https://www.jijiajk.com/book/3ab06lm/)
+- [多梦你一会儿](https://www.jijiajk.com/book/3ab03ug/)
 - [这谁的沙雕二次元心声！](https://www.jijiajk.com/book/3ab02fm/)
-- [在魔法世界屯田争霸](https://www.jijiajk.com/book/3ab01t8/)
 - [穿为清冷影后的污点A](https://www.jijiajk.com/book/3ab01gf/)
 - [就算是龙傲天也不可以[快穿]](https://www.jijiajk.com/book/3ab018b/)
-- [[足球]最佳前锋](https://www.jijiajk.com/book/3aavvsq/)
-- [炮灰的我该如何上位？](https://www.jijiajk.com/book/3aavvli/)
+- [野比春子穿越事件簿](https://www.jijiajk.com/book/3aavvkc/)
 - [和前女友的心上人he了](https://www.jijiajk.com/book/3aavv0u/)
-- [伪装纨绔，怎么成了名相](https://www.jijiajk.com/book/3aavuri/)
 - [拯救世界从扮演反派开始](https://www.jijiajk.com/book/3aavti0/)
+- [作家与读者](https://www.jijiajk.com/book/3aavr9s/)
 - [井闼山经理每天都被挖墙脚](https://www.jijiajk.com/book/3aavqde/)
+- [[全职高手]问就是没钱](https://www.jijiajk.com/book/3aavpom/)
 - [[足球]罗蜜第一志愿](https://www.jijiajk.com/book/3aavop2/)
 - [某柯学的正义伙伴](https://www.jijiajk.com/book/3aavnku/)
-- [幼崽假少爷选择回归寒门](https://www.jijiajk.com/book/3aavmf1/)
-- [一枝枝怨](https://www.jijiajk.com/book/3aavm8t/)
-- [在民俗惊悚片被诸神庇护](https://www.jijiajk.com/book/3aatj93/)
+- [[足球]小小鸟堂堂来袭](https://www.jijiajk.com/book/3aavmhk/)
+- [法外狂猫](https://www.jijiajk.com/book/3aavjto/)
+- [和室友他爸恋爱后](https://www.jijiajk.com/book/3aavie1/)
+- [好兄弟暴富后非要跟我结婚](https://www.jijiajk.com/book/3aavda1/)
 - [星际团宠小人鱼](https://www.jijiajk.com/book/3aatj10/)
 - [你，后室管理员](https://www.jijiajk.com/book/3aativ3/)
 - [纯爱宇智波基本恋爱法](https://www.jijiajk.com/book/3aatiri/)

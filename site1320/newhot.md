@@ -1,7 +1,7 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-08-25 03:19:50
+更新时间：2026-08-27 03:21:57
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
@@ -14,23 +14,26 @@
 - [你，后室管理员](https://www.gushi1314.com/book/8m9ju36/)
 - [星际团宠小人鱼](https://www.gushi1314.com/book/8m9ju2l/)
 - [高调装神，猥琐发育](https://www.gushi1314.com/book/8m9ju2f/)
-- [[希腊神话]蛇蛇神生美妙](https://www.gushi1314.com/book/8m9ju07/)
-- [高嫁之后](https://www.gushi1314.com/book/8m9jtu2/)
+- [直男咒术师的限制级游戏](https://www.gushi1314.com/book/8m9ju1p/)
+- [从异世界穿回来后](https://www.gushi1314.com/book/8m9jtuv/)
 - [纯爱宇智波基本恋爱法](https://www.gushi1314.com/book/8m9jtta/)
+- [我的老公是暴君](https://www.gushi1314.com/book/8m9iq80/)
 - [某柯学的正义伙伴](https://www.gushi1314.com/book/8m9h4g7/)
-- [伪装纨绔，怎么成了名相](https://www.gushi1314.com/book/rqjhnu/)
-- [[足球]最佳前锋](https://www.gushi1314.com/book/rqjh80/)
+- [五美元在哥谭活一月](https://www.gushi1314.com/book/8m9gre5/)
+- [我有嘉宾](https://www.gushi1314.com/book/8m9gl73/)
+- [沈助理又在隐藏他的超能力](https://www.gushi1314.com/book/rqk36j/)
+- [野比春子穿越事件簿](https://www.gushi1314.com/book/rqjopn/)
+- [[全职高手]问就是没钱](https://www.gushi1314.com/book/rqjjca/)
+- [绿叶](https://www.gushi1314.com/book/rqjg2p/)
+- [作家与读者](https://www.gushi1314.com/book/rqjenf/)
+- [我与龙傲天寿命共享](https://www.gushi1314.com/book/rqjanf/)
 - [这谁的沙雕二次元心声！](https://www.gushi1314.com/book/rqj9pb/)
 - [简单罗曼史](https://www.gushi1314.com/book/rqj7ki/)
 - [老公是松散生命体](https://www.gushi1314.com/book/rqj719/)
-- [一枝枝怨](https://www.gushi1314.com/book/rqj6j9/)
-- [在魔法世界屯田争霸](https://www.gushi1314.com/book/rqivm1/)
 - [[足球]罗蜜第一志愿](https://www.gushi1314.com/book/rqirav/)
+- [多梦你一会儿](https://www.gushi1314.com/book/rqiqt9/)
 - [拯救世界从扮演反派开始](https://www.gushi1314.com/book/rqim81/)
 - [和前女友的心上人he了](https://www.gushi1314.com/book/rqij4r/)
-- [在民俗惊悚片被诸神庇护](https://www.gushi1314.com/book/rqict0/)
-- [哥你不能不要我](https://www.gushi1314.com/book/rqi56o/)
-- [被奇犽告白以后](https://www.gushi1314.com/book/2p1pgi/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1320/index.md)

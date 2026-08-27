@@ -1,45 +1,45 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-08-25 03:16:01
+更新时间：2026-08-27 03:17:55
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。
 
 - [阿舍岛小说](https://www.ashedao.com/)
 
 ## 最新小说
+- [我有嘉宾](https://www.ashedao.com/book/99d2u32/)
+- [从异世界穿回来后](https://www.ashedao.com/book/99d2tdl/)
 - [夺友妻（女尊）](https://www.ashedao.com/book/99d2p2j/)
 - [星际团宠小人鱼](https://www.ashedao.com/book/99d2p2b/)
 - [你，后室管理员](https://www.ashedao.com/book/99d2p0a/)
+- [我的老公是暴君](https://www.ashedao.com/book/99d27u2/)
 - [高调装神，猥琐发育](https://www.ashedao.com/book/99d1e8j/)
-- [幼崽假少爷选择回归寒门](https://www.ashedao.com/book/99d19cu/)
-- [失而复得的白月光[快穿]](https://www.ashedao.com/book/99d0u4n/)
-- [如何正确哄睡暴君](https://www.ashedao.com/book/99d0t5l/)
-- [[希腊神话]蛇蛇神生美妙](https://www.ashedao.com/book/99d0t3d/)
+- [五美元在哥谭活一月](https://www.ashedao.com/book/99d1d2n/)
+- [直男咒术师的限制级游戏](https://www.ashedao.com/book/99d162r/)
+- [我与龙傲天寿命共享](https://www.ashedao.com/book/99d11lg/)
+- [绿叶](https://www.ashedao.com/book/99d0qaj/)
 - [简单罗曼史](https://www.ashedao.com/book/99d0iua/)
+- [沈助理又在隐藏他的超能力](https://www.ashedao.com/book/99d0i9j/)
 - [我不可能舔一个漂亮捞子](https://www.ashedao.com/book/99d0i2e/)
-- [被奇犽告白以后](https://www.ashedao.com/book/99d0djt/)
-- [在民俗惊悚片被诸神庇护](https://www.ashedao.com/book/99d0dcf/)
-- [高嫁之后](https://www.ashedao.com/book/99d04vl/)
-- [[足球]最佳前锋](https://www.ashedao.com/book/99d0400/)
-- [伪装纨绔，怎么成了名相](https://www.ashedao.com/book/99d026b/)
+- [同时扮演贵族学院F4和平民校花](https://www.ashedao.com/book/99d02vb/)
+- [野比春子穿越事件簿](https://www.ashedao.com/book/99d02q4/)
+- [大美人beta带球跑了](https://www.ashedao.com/book/99d022v/)
 - [微臣怜惜公主](https://www.ashedao.com/book/99d01r8/)
-- [哥你不能不要我](https://www.ashedao.com/book/99d00la/)
+- [[全职高手]问就是没钱](https://www.ashedao.com/book/99d01qc/)
+- [多梦你一会儿](https://www.ashedao.com/book/99d012r/)
 - [他要和我谈恋爱](https://www.ashedao.com/book/99d0075/)
-- [被鬼怪宠爱的漂亮书生](https://www.ashedao.com/book/99cvvkd/)
+- [作家与读者](https://www.ashedao.com/book/99cvvf0/)
 - [拯救世界从扮演反派开始](https://www.ashedao.com/book/99cvumc/)
-- [炮灰的我该如何上位？](https://www.ashedao.com/book/99cvspb/)
 - [这谁的沙雕二次元心声！](https://www.ashedao.com/book/99cvroa/)
 - [和前女友的心上人he了](https://www.ashedao.com/book/99cvqhr/)
 - [[封神]圣人生欲](https://www.ashedao.com/book/99cvnte/)
-- [我司艺人永不塌房](https://www.ashedao.com/book/99cvnqa/)
 - [某柯学的正义伙伴](https://www.ashedao.com/book/99cvn4r/)
 - [老公是松散生命体](https://www.ashedao.com/book/99cvm9o/)
-- [一枝枝怨](https://www.ashedao.com/book/99cvlgu/)
 - [纯爱宇智波基本恋爱法](https://www.ashedao.com/book/99cvl5k/)
 - [[足球]罗蜜第一志愿](https://www.ashedao.com/book/99cvh5s/)
 - [井闼山经理每天都被挖墙脚](https://www.ashedao.com/book/99cvgp0/)
-- [在魔法世界屯田争霸](https://www.ashedao.com/book/99cto73/)
+- [好兄弟暴富后非要跟我结婚](https://www.ashedao.com/book/99cv3n9/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1342/index.md)

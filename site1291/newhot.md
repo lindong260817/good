@@ -1,7 +1,7 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-08-25 03:27:07
+更新时间：2026-08-27 03:29:32
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
@@ -14,23 +14,26 @@
 - [你，后室管理员](https://www.qingyuchun.com/book/10578dr/)
 - [夺友妻（女尊）](https://www.qingyuchun.com/book/10578dh/)
 - [高调装神，猥琐发育](https://www.qingyuchun.com/book/10578ce/)
-- [[希腊神话]蛇蛇神生美妙](https://www.qingyuchun.com/book/10578ap/)
-- [高嫁之后](https://www.qingyuchun.com/book/105789i/)
+- [直男咒术师的限制级游戏](https://www.qingyuchun.com/book/105789t/)
 - [纯爱宇智波基本恋爱法](https://www.qingyuchun.com/book/105788k/)
 - [某柯学的正义伙伴](https://www.qingyuchun.com/book/1054fqs/)
-- [[足球]最佳前锋](https://www.qingyuchun.com/book/36v4mv/)
-- [伪装纨绔，怎么成了名相](https://www.qingyuchun.com/book/36v30u/)
+- [我的老公是暴君](https://www.qingyuchun.com/book/10548h1/)
+- [五美元在哥谭活一月](https://www.qingyuchun.com/book/10544ti/)
+- [我有嘉宾](https://www.qingyuchun.com/book/1053upq/)
+- [沈助理又在隐藏他的超能力](https://www.qingyuchun.com/book/36vlen/)
+- [野比春子穿越事件簿](https://www.qingyuchun.com/book/36vava/)
+- [[全职高手]问就是没钱](https://www.qingyuchun.com/book/36v46a/)
+- [作家与读者](https://www.qingyuchun.com/book/36uuk1/)
+- [绿叶](https://www.qingyuchun.com/book/36usge/)
 - [简单罗曼史](https://www.qingyuchun.com/book/36urem/)
+- [我与龙傲天寿命共享](https://www.qingyuchun.com/book/36uqil/)
 - [这谁的沙雕二次元心声！](https://www.qingyuchun.com/book/36uon7/)
-- [一枝枝怨](https://www.qingyuchun.com/book/36un6v/)
 - [老公是松散生命体](https://www.qingyuchun.com/book/36umob/)
-- [在魔法世界屯田争霸](https://www.qingyuchun.com/book/36uh4s/)
+- [多梦你一会儿](https://www.qingyuchun.com/book/36ub5l/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.qingyuchun.com/book/36uahu/)
 - [拯救世界从扮演反派开始](https://www.qingyuchun.com/book/36u8kj/)
 - [[足球]罗蜜第一志愿](https://www.qingyuchun.com/book/36u8i7/)
 - [和前女友的心上人he了](https://www.qingyuchun.com/book/36u78u/)
-- [在民俗惊悚片被诸神庇护](https://www.qingyuchun.com/book/36u052/)
-- [哥你不能不要我](https://www.qingyuchun.com/book/36tlq2/)
-- [被奇犽告白以后](https://www.qingyuchun.com/book/10ue7/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1291/index.md)

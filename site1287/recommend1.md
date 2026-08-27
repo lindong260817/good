@@ -1,14 +1,13 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-25 03:20:52
+更新时间：2026-08-27 03:22:58
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
 - [随梦小说网](https://www.hzciic.com/)
 
 ## 最新小说
-- [养父](https://www.hzciic.com/book/1sjvhkt/)
 - [你，后室管理员](https://www.hzciic.com/book/1sjvhkr/)
 - [我靠卖盲盒复苏华夏神灵](https://www.hzciic.com/book/1sjvhkq/)
 - [我家刀男不可能是诡异BOSS](https://www.hzciic.com/book/1sjvhkp/)
@@ -16,7 +15,7 @@
 - [[西幻]玛赫里魔药店经营实录](https://www.hzciic.com/book/1sjvhkn/)
 - [老公你人设是不是崩了](https://www.hzciic.com/book/1sjvhkm/)
 - [救命！白无常每天都在钓我](https://www.hzciic.com/book/1sjvhkl/)
-- [[综]成年人为什么会成为救世主](https://www.hzciic.com/book/1sjvhkk/)
+- [[反穿]我的救世主生涯不对劲？](https://www.hzciic.com/book/1sjvhkk/)
 - [我和马甲真没在一起](https://www.hzciic.com/book/1sjvhkj/)
 - [朕看上的少年是侠女](https://www.hzciic.com/book/1sjvhki/)
 - [当咒术高专来了个杀鬼道士](https://www.hzciic.com/book/1sjvhkh/)
@@ -70,7 +69,7 @@
 - [从死亡开始的猎人笔记](https://www.hzciic.com/book/1sjvhis/)
 - [[足球]小甜饼](https://www.hzciic.com/book/1sjvhir/)
 - [冥王陛下今天睡醒了吗[综英美]](https://www.hzciic.com/book/1sjvhiq/)
-- [九零首富的替嫁小甜妻](https://www.hzciic.com/book/1sjvhip/)
+- [九零首富的替嫁小媳妇](https://www.hzciic.com/book/1sjvhip/)
 - [御赐厨娘在九零[古穿今]](https://www.hzciic.com/book/1sjvhio/)
 - [荒滩种田记](https://www.hzciic.com/book/1sjvhin/)
 - [被四皇错看成小动物后](https://www.hzciic.com/book/1sjvhim/)
@@ -80,12 +79,10 @@
 - [神之子严胜](https://www.hzciic.com/book/1sjvhii/)
 - [漂亮男知青下乡后](https://www.hzciic.com/book/1sjvhih/)
 - [[综英美]在综恐世界逃生](https://www.hzciic.com/book/1sjvhig/)
-- [暴君的赝品公主](https://www.hzciic.com/book/1sjvhie/)
 - [高调装神，猥琐发育](https://www.hzciic.com/book/1sjvhid/)
 - [假少爷不想活了](https://www.hzciic.com/book/1sjvhib/)
 - [千禧年，拆迁分了十栋楼！](https://www.hzciic.com/book/1sjvhdt/)
 - [纯爱宇智波基本恋爱法](https://www.hzciic.com/book/1sjvhd6/)
-- [和八个男人身陷瘟疫之地](https://www.hzciic.com/book/1sjvgle/)
 - [六零之成了卷王的妹妹](https://www.hzciic.com/book/1sjvg6e/)
 - [道长他为何那样](https://www.hzciic.com/book/1sjvg64/)
 - [古代种田养娃日常](https://www.hzciic.com/book/1sjuh0f/)
@@ -94,7 +91,7 @@
 - [老公对不起](https://www.hzciic.com/book/1sju39t/)
 - [主角前任他分手分不掉了](https://www.hzciic.com/book/1sjtv72/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.hzciic.com/book/1sjtojr/)
-- [七零回城女知青[穿书]](https://www.hzciic.com/book/1sjte11/)
+- [无限末日副本：我有移动安全屋](https://www.hzciic.com/book/1sjt9bg/)
 - [御兽师，我打工养你啊](https://www.hzciic.com/book/1sjt152/)
 - [穿成炮灰后我封神了［快穿］](https://www.hzciic.com/book/1sjsncp/)
 - [七零捡漏日常](https://www.hzciic.com/book/1sjsn5i/)
@@ -110,15 +107,12 @@
 - [禁止限制文主角转职龙傲天](https://www.hzciic.com/book/1sjs0gp/)
 - [我演的不是漂亮圣子攻吗?](https://www.hzciic.com/book/1sjrvd0/)
 - [渣攻必须he（快穿）](https://www.hzciic.com/book/6229bp/)
-- [前女友孩子三岁了](https://www.hzciic.com/book/6227tm/)
 - [她是反派的背景板母亲](https://www.hzciic.com/book/6227qh/)
 - [绿茶男来袭（快穿）](https://www.hzciic.com/book/6223be/)
 - [星际第一女A[穿书]](https://www.hzciic.com/book/6221r4/)
 - [喜恶同因[青梅竹马]](https://www.hzciic.com/book/6221m3/)
 - [成为养成系练习生后](https://www.hzciic.com/book/62200t/)
 - [你对寡人的猫有什么意见？](https://www.hzciic.com/book/621rv2/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.hzciic.com/book/621rl5/)
-- [废太子联盟](https://www.hzciic.com/book/621qre/)
 - [迷雾求生，种田玩家也能当榜一？](https://www.hzciic.com/book/621qen/)
 - [木叶RPG，恋爱系物语](https://www.hzciic.com/book/621qe0/)
 - [为诡异打工，但反封建迷信](https://www.hzciic.com/book/621ocf/)
@@ -128,6 +122,7 @@
 - [我是封建大爹的好孕小娇妻](https://www.hzciic.com/book/621i9o/)
 - [太宗今天又哭了吗](https://www.hzciic.com/book/621hv7/)
 - [壮受虫母今天也想逃](https://www.hzciic.com/book/621g1b/)
+- [贵族学院女保安竟是万人迷](https://www.hzciic.com/book/621c8e/)
 - [京华无尽夏](https://www.hzciic.com/book/62170p/)
 - [至尊法师克拉克[综英美]](https://www.hzciic.com/book/6216tm/)
 - [星露谷，但大秦帝国](https://www.hzciic.com/book/621586/)
@@ -140,6 +135,7 @@
 - [道长在诡异世界捉诡](https://www.hzciic.com/book/620riv/)
 - [惊！S级诡异竟是我自己](https://www.hzciic.com/book/620rfe/)
 - [误入反派培养直播后](https://www.hzciic.com/book/620pkt/)
+- [娶了女装心机太子](https://www.hzciic.com/book/620o2o/)
 - [性转成真千金靠写文逆袭了](https://www.hzciic.com/book/620nbs/)
 - [雇佣毛茸茸开农场](https://www.hzciic.com/book/620mn5/)
 - [立海大的水仙赛季](https://www.hzciic.com/book/620lf3/)
@@ -151,6 +147,7 @@
 - [魏尔伦猫猫能有什么坏心思呢](https://www.hzciic.com/book/620bvd/)
 - [在民俗惊悚片被诸神庇护](https://www.hzciic.com/book/620be2/)
 - [本官早知他是狐狸变的](https://www.hzciic.com/book/6209mc/)
+- [与宿敌他哥契约成婚后](https://www.hzciic.com/book/6207tv/)
 - [区区精灵[西幻]](https://www.hzciic.com/book/6207ql/)
 - [捡了龙傲天金手指后](https://www.hzciic.com/book/jcqd5/)
 - [全民求生:从小木屋到魔法农场](https://www.hzciic.com/book/jcpmc/)
@@ -163,6 +160,7 @@
 - [穿到反派落魄时](https://www.hzciic.com/book/jcodl/)
 - [五十年代港城日常](https://www.hzciic.com/book/jco9v/)
 - [海岛求生：生活玩家种田囤货](https://www.hzciic.com/book/1u388/)
+- [完蛋！被恨孕男包围了！](https://www.hzciic.com/book/1u380/)
 - [大瑛弟国](https://www.hzciic.com/book/1u365/)
 - [[娱乐圈]过分美丽的她](https://www.hzciic.com/book/1u2vm/)
 - [卧底后被港岛大小姐缠上了](https://www.hzciic.com/book/1u2ri/)

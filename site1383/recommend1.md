@@ -1,18 +1,19 @@
 
 # 紫竹原始小说 - 最新最全的小说文学网站
 
-更新时间：2026-08-25 03:17:38
+更新时间：2026-08-27 03:19:37
 
 紫竹原始小说是一个专注于分享最新、最全的小说文学作品的网站。我们致力于为读者带来全新的阅读体验，欢迎访问我们的网站，尽情享受文学的魅力。
 
 - [紫竹原始小说](https://www.cnysxc.com/)
 
 ## 最新小说
+- [无限末日副本：我有移动安全屋](https://www.cnysxc.com/book/8edv96i/)
+- [完蛋！被恨孕男包围了！](https://www.cnysxc.com/book/8eduamc/)
+- [贵族学院女保安竟是万人迷](https://www.cnysxc.com/book/8edtjls/)
+- [娶了女装心机太子](https://www.cnysxc.com/book/8edsosd/)
+- [与宿敌他哥契约成婚后](https://www.cnysxc.com/book/8eds774/)
 - [人妻O救赎指南](https://www.cnysxc.com/book/8eds6pp/)
-- [七零回城女知青[穿书]](https://www.cnysxc.com/book/8eds6gl/)
-- [和八个男人身陷瘟疫之地](https://www.cnysxc.com/book/8eds5pp/)
-- [暴君的赝品公主](https://www.cnysxc.com/book/8eds4hj/)
-- [养父](https://www.cnysxc.com/book/8eds4es/)
 - [金手指夫妻在六零](https://www.cnysxc.com/book/8edrccr/)
 - [她是反派的背景板母亲](https://www.cnysxc.com/book/8edrccq/)
 - [我演的不是漂亮圣子攻吗?](https://www.cnysxc.com/book/8edrcck/)
@@ -35,7 +36,6 @@
 - [在民俗惊悚片被诸神庇护](https://www.cnysxc.com/book/8edrc25/)
 - [我家刀男不可能是诡异BOSS](https://www.cnysxc.com/book/8edrc1s/)
 - [高门小婢](https://www.cnysxc.com/book/8edrc1o/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.cnysxc.com/book/8edrc14/)
 - [穿到反派落魄时](https://www.cnysxc.com/book/8edrbvm/)
 - [海上求生:生活玩家战力爆表](https://www.cnysxc.com/book/8edrbvb/)
 - [性转成真千金靠写文逆袭了](https://www.cnysxc.com/book/8edrbv2/)
@@ -47,7 +47,6 @@
 - [穿成炮灰后我封神了［快穿］](https://www.cnysxc.com/book/8edrbrv/)
 - [在尤文图斯养超巨[足球]](https://www.cnysxc.com/book/8edrbrk/)
 - [立海大的水仙赛季](https://www.cnysxc.com/book/8edrbr6/)
-- [废太子联盟](https://www.cnysxc.com/book/8edrbol/)
 - [清澈女大的六零年代](https://www.cnysxc.com/book/8edrbl0/)
 - [魅魔就不能打网球了吗？](https://www.cnysxc.com/book/8edrbju/)
 - [木叶RPG，恋爱系物语](https://www.cnysxc.com/book/8edrbjr/)
@@ -85,7 +84,7 @@
 - [绿茶男来袭（快穿）](https://www.cnysxc.com/book/8edras2/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.cnysxc.com/book/8edraru/)
 - [[封神]圣人生欲](https://www.cnysxc.com/book/8edrare/)
-- [[综]成年人为什么会成为救世主](https://www.cnysxc.com/book/8edraqb/)
+- [[反穿]我的救世主生涯不对劲？](https://www.cnysxc.com/book/8edraqb/)
 - [他要和我谈恋爱](https://www.cnysxc.com/book/8edraov/)
 - [林中的黑巫师](https://www.cnysxc.com/book/8edraok/)
 - [[希腊神话]基建拯救世界](https://www.cnysxc.com/book/8edraoh/)
@@ -94,7 +93,7 @@
 - [玄意未尽时 [穿书]](https://www.cnysxc.com/book/8edranb/)
 - [开局忽悠煤老板拍偶像剧[九零]](https://www.cnysxc.com/book/8edran6/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.cnysxc.com/book/8edrale/)
-- [九零首富的替嫁小甜妻](https://www.cnysxc.com/book/8edraju/)
+- [九零首富的替嫁小媳妇](https://www.cnysxc.com/book/8edraju/)
 - [当咒术高专来了个杀鬼道士](https://www.cnysxc.com/book/8edraj1/)
 - [高调装神，猥琐发育](https://www.cnysxc.com/book/8edraiu/)
 - [八零恶毒后妈杀疯了](https://www.cnysxc.com/book/8edrai4/)
@@ -111,7 +110,6 @@
 - [从死亡开始的猎人笔记](https://www.cnysxc.com/book/8edrab9/)
 - [我真不是算命的！[香江]](https://www.cnysxc.com/book/8edraap/)
 - [主角前任他分手分不掉了](https://www.cnysxc.com/book/8edraam/)
-- [前女友孩子三岁了](https://www.cnysxc.com/book/8edra96/)
 - [神之子严胜](https://www.cnysxc.com/book/8edra94/)
 - [和冰山上司隐婚生崽了](https://www.cnysxc.com/book/8edra8v/)
 - [救命！白无常每天都在钓我](https://www.cnysxc.com/book/8edra8h/)

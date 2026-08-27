@@ -1,14 +1,13 @@
 
 # 国威御林小说_国威御林小说小说在线阅读
 
-更新时间：2026-08-25 03:19:36
+更新时间：2026-08-27 03:21:43
 
 国威御林小说是拥有海量的完结全本小说作品, 提供热门小说排行榜免费在线阅读, 每日更新言情、都市、穿越、青春、悬疑等作品连载。
 
 - [国威御林小说](https://www.guoweiyulin.com/)
 
 ## 最新小说
-- [养父](https://www.guoweiyulin.com/book/360po8b/)
 - [人妻O救赎指南](https://www.guoweiyulin.com/book/360po1t/)
 - [虫族雌兄，你好香啊](https://www.guoweiyulin.com/book/360phan/)
 - [漂亮男知青下乡后](https://www.guoweiyulin.com/book/360pham/)
@@ -43,7 +42,7 @@
 - [[足球]如此足球，怎能不恨](https://www.guoweiyulin.com/book/360ph8e/)
 - [云深不知处](https://www.guoweiyulin.com/book/360ph8c/)
 - [继兄怀孕，孩子是我的](https://www.guoweiyulin.com/book/360ph8a/)
-- [[综]成年人为什么会成为救世主](https://www.guoweiyulin.com/book/360ph89/)
+- [[反穿]我的救世主生涯不对劲？](https://www.guoweiyulin.com/book/360ph89/)
 - [原配夫人](https://www.guoweiyulin.com/book/360ph82/)
 - [师尊分裂成两个后天天醋自己](https://www.guoweiyulin.com/book/360ph80/)
 - [神之子严胜](https://www.guoweiyulin.com/book/360ph7s/)
@@ -73,10 +72,10 @@
 - [朕看上的少年是侠女](https://www.guoweiyulin.com/book/360ph5s/)
 - [御赐厨娘在九零[古穿今]](https://www.guoweiyulin.com/book/360ph5l/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.guoweiyulin.com/book/360pee9/)
-- [暴君的赝品公主](https://www.guoweiyulin.com/book/360pe7f/)
 - [七零捡漏日常](https://www.guoweiyulin.com/book/360pc6e/)
-- [七零回城女知青[穿书]](https://www.guoweiyulin.com/book/360p4et/)
 - [趁她之危](https://www.guoweiyulin.com/book/360p421/)
+- [完蛋！被恨孕男包围了！](https://www.guoweiyulin.com/book/360p0b6/)
+- [无限末日副本：我有移动安全屋](https://www.guoweiyulin.com/book/360ovik/)
 - [假少爷不想活了](https://www.guoweiyulin.com/book/360om0b/)
 - [十九世纪贵族厨房（美食）](https://www.guoweiyulin.com/book/360o8an/)
 - [高调装神，猥琐发育](https://www.guoweiyulin.com/book/360o5ap/)
@@ -85,7 +84,6 @@
 - [[西幻]玛赫里魔药店经营实录](https://www.guoweiyulin.com/book/360o385/)
 - [[足球]替补门将](https://www.guoweiyulin.com/book/360o2on/)
 - [捡了龙傲天金手指后](https://www.guoweiyulin.com/book/360o2bo/)
-- [前女友孩子三岁了](https://www.guoweiyulin.com/book/360o0im/)
 - [绝色美人模拟器](https://www.guoweiyulin.com/book/360o0ep/)
 - [被反派暴君听到心声后[穿书]](https://www.guoweiyulin.com/book/360nvdp/)
 - [千禧年，拆迁分了十栋楼！](https://www.guoweiyulin.com/book/360nun5/)
@@ -93,12 +91,10 @@
 - [喜恶同因[青梅竹马]](https://www.guoweiyulin.com/book/360nqip/)
 - [[希腊神话]基建拯救世界](https://www.guoweiyulin.com/book/360njp9/)
 - [渣攻必须he（快穿）](https://www.guoweiyulin.com/book/360nglj/)
-- [九零首富的替嫁小甜妻](https://www.guoweiyulin.com/book/360ng1g/)
+- [九零首富的替嫁小媳妇](https://www.guoweiyulin.com/book/360ng1g/)
 - [为诡异打工，但反封建迷信](https://www.guoweiyulin.com/book/360ndtl/)
 - [星际第一女A[穿书]](https://www.guoweiyulin.com/book/360nbv8/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.guoweiyulin.com/book/360nbdn/)
 - [绿茶男来袭（快穿）](https://www.guoweiyulin.com/book/360n9kb/)
-- [废太子联盟](https://www.guoweiyulin.com/book/360n8a5/)
 - [你对寡人的猫有什么意见？](https://www.guoweiyulin.com/book/360n75r/)
 - [在民俗惊悚片被诸神庇护](https://www.guoweiyulin.com/book/360n576/)
 - [我是封建大爹的好孕小娇妻](https://www.guoweiyulin.com/book/360n41f/)
@@ -112,6 +108,7 @@
 - [壮受虫母今天也想逃](https://www.guoweiyulin.com/book/360moun/)
 - [他要和我谈恋爱](https://www.guoweiyulin.com/book/360moba/)
 - [替嫁后咸鱼继母佛系日常](https://www.guoweiyulin.com/book/360mo5m/)
+- [贵族学院女保安竟是万人迷](https://www.guoweiyulin.com/book/360mnb1/)
 - [八零恶毒后妈杀疯了](https://www.guoweiyulin.com/book/360mj2v/)
 - [夜偶](https://www.guoweiyulin.com/book/360mh5l/)
 - [[封神]圣人生欲](https://www.guoweiyulin.com/book/360mgqq/)
@@ -126,6 +123,7 @@
 - [暗涌[破镜重圆]](https://www.guoweiyulin.com/book/360m5jd/)
 - [道长在诡异世界捉诡](https://www.guoweiyulin.com/book/360m4am/)
 - [人气反派的马甲演绎实录](https://www.guoweiyulin.com/book/360m16l/)
+- [娶了女装心机太子](https://www.guoweiyulin.com/book/360m03c/)
 - [惊！S级诡异竟是我自己](https://www.guoweiyulin.com/book/360lua2/)
 - [雇佣毛茸茸开农场](https://www.guoweiyulin.com/book/360ltpi/)
 - [性转成真千金靠写文逆袭了](https://www.guoweiyulin.com/book/360lto1/)
@@ -138,7 +136,7 @@
 - [巴黎恋人](https://www.guoweiyulin.com/book/360lhnd/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.guoweiyulin.com/book/360lfjt/)
 - [嘲讽力拉满的我该如何在异世界生活](https://www.guoweiyulin.com/book/360lebc/)
-- [和八个男人身陷瘟疫之地](https://www.guoweiyulin.com/book/360lcus/)
+- [与宿敌他哥契约成婚后](https://www.guoweiyulin.com/book/360le77/)
 - [区区精灵[西幻]](https://www.guoweiyulin.com/book/360lbuf/)
 - [本官早知他是狐狸变的](https://www.guoweiyulin.com/book/360lbqs/)
 - [救命！白无常每天都在钓我](https://www.guoweiyulin.com/book/360la8k/)
