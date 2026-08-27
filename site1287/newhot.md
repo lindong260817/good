@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-25 03:20:52
+更新时间：2026-08-27 03:22:58
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -14,23 +14,26 @@
 - [他要和我谈恋爱](https://www.hzciic.com/book/1sjvhj6/)
 - [[封神]圣人生欲](https://www.hzciic.com/book/1sjvhiu/)
 - [高调装神，猥琐发育](https://www.hzciic.com/book/1sjvhid/)
-- [高嫁之后](https://www.hzciic.com/book/1sjvhhn/)
-- [[希腊神话]蛇蛇神生美妙](https://www.hzciic.com/book/1sjvhdp/)
+- [直男咒术师的限制级游戏](https://www.hzciic.com/book/1sjvhgi/)
+- [从异世界穿回来后](https://www.hzciic.com/book/1sjvhf3/)
 - [纯爱宇智波基本恋爱法](https://www.hzciic.com/book/1sjvhd6/)
+- [我的老公是暴君](https://www.hzciic.com/book/1sjudnj/)
 - [某柯学的正义伙伴](https://www.hzciic.com/book/1sjsnuu/)
-- [伪装纨绔，怎么成了名相](https://www.hzciic.com/book/621hjd/)
-- [[足球]最佳前锋](https://www.hzciic.com/book/621f8f/)
+- [五美元在哥谭活一月](https://www.hzciic.com/book/1sjsf8v/)
+- [我有嘉宾](https://www.hzciic.com/book/1sjs9l6/)
+- [沈助理又在隐藏他的超能力](https://www.hzciic.com/book/6221fh/)
+- [野比春子穿越事件簿](https://www.hzciic.com/book/621lu5/)
+- [[全职高手]问就是没钱](https://www.hzciic.com/book/621i7b/)
+- [绿叶](https://www.hzciic.com/book/621dh8/)
+- [作家与读者](https://www.hzciic.com/book/621c85/)
 - [简单罗曼史](https://www.hzciic.com/book/621a3d/)
+- [我与龙傲天寿命共享](https://www.hzciic.com/book/6218cj/)
 - [这谁的沙雕二次元心声！](https://www.hzciic.com/book/6216m6/)
-- [一枝枝怨](https://www.hzciic.com/book/62157n/)
 - [老公是松散生命体](https://www.hzciic.com/book/6213e5/)
-- [在魔法世界屯田争霸](https://www.hzciic.com/book/6211ho/)
+- [多梦你一会儿](https://www.hzciic.com/book/620qki/)
 - [拯救世界从扮演反派开始](https://www.hzciic.com/book/620ope/)
 - [[足球]罗蜜第一志愿](https://www.hzciic.com/book/620nqt/)
 - [和前女友的心上人he了](https://www.hzciic.com/book/620i86/)
-- [在民俗惊悚片被诸神庇护](https://www.hzciic.com/book/620be2/)
-- [哥你不能不要我](https://www.hzciic.com/book/6203sr/)
-- [被奇犽告白以后](https://www.hzciic.com/book/jcq22/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1287/index.md)

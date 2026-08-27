@@ -1,20 +1,18 @@
 
 # 精英文学 - 书友最值得收藏的小说免费阅读网
 
-更新时间：2026-08-25 03:32:49
+更新时间：2026-08-27 03:35:32
 
 精英文学为您提供一个干净舒适的阅读环境，作为书友最值得收藏的小说免费阅读网之一，我们致力于打造无广告干扰的最佳在线阅读体验。
 
 - [精英文学](https://www.xcposji.com/)
 
 ## 最新小说
+- [无限末日副本：我有移动安全屋](https://www.xcposji.com/book/jnlrdv/)
 - [人妻O救赎指南](https://www.xcposji.com/book/jnldf9/)
-- [养父](https://www.xcposji.com/book/jnldem/)
-- [七零回城女知青[穿书]](https://www.xcposji.com/book/jnld9h/)
-- [暴君的赝品公主](https://www.xcposji.com/book/jnics9/)
-- [和八个男人身陷瘟疫之地](https://www.xcposji.com/book/jnicc4/)
+- [娶了女装心机太子](https://www.xcposji.com/book/jniv26/)
+- [与宿敌他哥契约成婚后](https://www.xcposji.com/book/jnicbl/)
 - [道长他为何那样](https://www.xcposji.com/book/jni8cj/)
-- [废太子联盟](https://www.xcposji.com/book/jnhgkh/)
 - [分手后与诱系妻子再度热恋](https://www.xcposji.com/book/jnhgk6/)
 - [渣攻必须he（快穿）](https://www.xcposji.com/book/jnhgk0/)
 - [始乱终弃清冷首辅后](https://www.xcposji.com/book/jnhgjs/)
@@ -24,6 +22,7 @@
 - [美人魔头绑定龙傲天系统后](https://www.xcposji.com/book/jnhgha/)
 - [高门小婢](https://www.xcposji.com/book/jnhggt/)
 - [[希腊神话]基建拯救世界](https://www.xcposji.com/book/jnhgft/)
+- [贵族学院女保安竟是万人迷](https://www.xcposji.com/book/jnhgf9/)
 - [我有一座安全城](https://www.xcposji.com/book/jnhged/)
 - [御赐厨娘在九零[古穿今]](https://www.xcposji.com/book/jnhge7/)
 - [替嫁后咸鱼继母佛系日常](https://www.xcposji.com/book/jnhgdj/)
@@ -58,10 +57,10 @@
 - [如何扮演源氏重宝](https://www.xcposji.com/book/jnhfsv/)
 - [她是反派的背景板母亲](https://www.xcposji.com/book/jnhfss/)
 - [窃春欢](https://www.xcposji.com/book/jnhfrp/)
+- [完蛋！被恨孕男包围了！](https://www.xcposji.com/book/jnhfrc/)
 - [在民俗惊悚片被诸神庇护](https://www.xcposji.com/book/jnhfqf/)
 - [金手指夫妻在六零](https://www.xcposji.com/book/jnhfqe/)
 - [红楼之玉成佳事](https://www.xcposji.com/book/jnhfp8/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.xcposji.com/book/jnhfol/)
 - [虫族雌兄，你好香啊](https://www.xcposji.com/book/jnhfnt/)
 - [千禧年，拆迁分了十栋楼！](https://www.xcposji.com/book/jnhfms/)
 - [朕看上的少年是侠女](https://www.xcposji.com/book/jnhfm9/)
@@ -103,7 +102,7 @@
 - [小寡夫女装直播捞到了封建亡夫](https://www.xcposji.com/book/jnheup/)
 - [至尊法师克拉克[综英美]](https://www.xcposji.com/book/jnheu4/)
 - [我和马甲真没在一起](https://www.xcposji.com/book/jnhetk/)
-- [[综]成年人为什么会成为救世主](https://www.xcposji.com/book/jnhet3/)
+- [[反穿]我的救世主生涯不对劲？](https://www.xcposji.com/book/jnhet3/)
 - [被反派暴君听到心声后[穿书]](https://www.xcposji.com/book/jnhesu/)
 - [夺友妻（女尊）](https://www.xcposji.com/book/jnhert/)
 - [巨物致富：回乡开钓场](https://www.xcposji.com/book/jnherk/)
@@ -123,7 +122,7 @@
 - [[西幻]玛赫里魔药店经营实录](https://www.xcposji.com/book/jnhefu/)
 - [他要和我谈恋爱](https://www.xcposji.com/book/jnhefd/)
 - [[娱乐圈]过分美丽的她](https://www.xcposji.com/book/jnhef6/)
-- [九零首富的替嫁小甜妻](https://www.xcposji.com/book/jnheep/)
+- [九零首富的替嫁小媳妇](https://www.xcposji.com/book/jnheep/)
 - [把讨厌的师兄写进限制文后](https://www.xcposji.com/book/jnhee8/)
 - [我是唯一地上神国](https://www.xcposji.com/book/jnhee4/)
 - [猫猫也要养家糊口](https://www.xcposji.com/book/jnhee2/)
@@ -149,7 +148,6 @@
 - [荒滩种田记](https://www.xcposji.com/book/jnhe01/)
 - [穿到反派落魄时](https://www.xcposji.com/book/jnhdu0/)
 - [我不是正夫吗？](https://www.xcposji.com/book/jnhdtm/)
-- [前女友孩子三岁了](https://www.xcposji.com/book/jnhdtb/)
 - [巴黎恋人](https://www.xcposji.com/book/jnhdt1/)
 - [误入反派培养直播后](https://www.xcposji.com/book/jnhdri/)
 - [[足球]替补门将](https://www.xcposji.com/book/jnhdrb/)

@@ -1,45 +1,45 @@
 
 # 国威御林小说_国威御林小说小说在线阅读
 
-更新时间：2026-08-25 03:19:36
+更新时间：2026-08-27 03:21:43
 
 国威御林小说是拥有海量的完结全本小说作品, 提供热门小说排行榜免费在线阅读, 每日更新言情、都市、穿越、青春、悬疑等作品连载。
 
 - [国威御林小说](https://www.guoweiyulin.com/)
 
 ## 最新小说
+- [我有嘉宾](https://www.guoweiyulin.com/book/360pmca/)
+- [从异世界穿回来后](https://www.guoweiyulin.com/book/360plkl/)
 - [你，后室管理员](https://www.guoweiyulin.com/book/360ph9h/)
 - [夺友妻（女尊）](https://www.guoweiyulin.com/book/360ph8p/)
 - [星际团宠小人鱼](https://www.guoweiyulin.com/book/360ph67/)
+- [我的老公是暴君](https://www.guoweiyulin.com/book/360p07q/)
 - [高调装神，猥琐发育](https://www.guoweiyulin.com/book/360o5ap/)
-- [幼崽假少爷选择回归寒门](https://www.guoweiyulin.com/book/360nv3b/)
-- [失而复得的白月光[快穿]](https://www.guoweiyulin.com/book/360nmqr/)
-- [[希腊神话]蛇蛇神生美妙](https://www.guoweiyulin.com/book/360nma7/)
-- [如何正确哄睡暴君](https://www.guoweiyulin.com/book/360nl2q/)
+- [五美元在哥谭活一月](https://www.guoweiyulin.com/book/360o4ll/)
+- [直男咒术师的限制级游戏](https://www.guoweiyulin.com/book/360nuk5/)
+- [我与龙傲天寿命共享](https://www.guoweiyulin.com/book/360np24/)
+- [绿叶](https://www.guoweiyulin.com/book/360njes/)
+- [沈助理又在隐藏他的超能力](https://www.guoweiyulin.com/book/360nc2h/)
 - [我不可能舔一个漂亮捞子](https://www.guoweiyulin.com/book/360nair/)
 - [简单罗曼史](https://www.guoweiyulin.com/book/360n9j8/)
-- [被奇犽告白以后](https://www.guoweiyulin.com/book/360n603/)
-- [在民俗惊悚片被诸神庇护](https://www.guoweiyulin.com/book/360n576/)
-- [高嫁之后](https://www.guoweiyulin.com/book/360mte1/)
-- [[足球]最佳前锋](https://www.guoweiyulin.com/book/360mr63/)
-- [哥你不能不要我](https://www.guoweiyulin.com/book/360mpoh/)
-- [伪装纨绔，怎么成了名相](https://www.guoweiyulin.com/book/360mp7n/)
+- [野比春子穿越事件簿](https://www.guoweiyulin.com/book/360mt8h/)
+- [同时扮演贵族学院F4和平民校花](https://www.guoweiyulin.com/book/360mstm/)
+- [[全职高手]问就是没钱](https://www.guoweiyulin.com/book/360mq3r/)
 - [他要和我谈恋爱](https://www.guoweiyulin.com/book/360moba/)
-- [被鬼怪宠爱的漂亮书生](https://www.guoweiyulin.com/book/360mo93/)
+- [大美人beta带球跑了](https://www.guoweiyulin.com/book/360mo5b/)
 - [微臣怜惜公主](https://www.guoweiyulin.com/book/360mo0f/)
-- [炮灰的我该如何上位？](https://www.guoweiyulin.com/book/360mn7h/)
+- [多梦你一会儿](https://www.guoweiyulin.com/book/360mnu3/)
+- [作家与读者](https://www.guoweiyulin.com/book/360mm3v/)
 - [拯救世界从扮演反派开始](https://www.guoweiyulin.com/book/360mlhn/)
 - [这谁的沙雕二次元心声！](https://www.guoweiyulin.com/book/360mjnk/)
 - [和前女友的心上人he了](https://www.guoweiyulin.com/book/360mi06/)
-- [我司艺人永不塌房](https://www.guoweiyulin.com/book/360mhqa/)
 - [[封神]圣人生欲](https://www.guoweiyulin.com/book/360mgqq/)
 - [某柯学的正义伙伴](https://www.guoweiyulin.com/book/360mfcn/)
 - [纯爱宇智波基本恋爱法](https://www.guoweiyulin.com/book/360mee6/)
 - [老公是松散生命体](https://www.guoweiyulin.com/book/360mdov/)
-- [一枝枝怨](https://www.guoweiyulin.com/book/360mdmi/)
 - [[足球]罗蜜第一志愿](https://www.guoweiyulin.com/book/360m9k3/)
 - [井闼山经理每天都被挖墙脚](https://www.guoweiyulin.com/book/360m66q/)
-- [在魔法世界屯田争霸](https://www.guoweiyulin.com/book/360kf5m/)
+- [好兄弟暴富后非要跟我结婚](https://www.guoweiyulin.com/book/360lr6f/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1344/index.md)

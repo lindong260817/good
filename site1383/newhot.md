@@ -1,31 +1,41 @@
 
 # 紫竹原始小说 - 最新最全的小说文学网站
 
-更新时间：2026-08-25 03:17:38
+更新时间：2026-08-27 03:19:37
 
 紫竹原始小说是一个专注于分享最新、最全的小说文学作品的网站。我们致力于为读者带来全新的阅读体验，欢迎访问我们的网站，尽情享受文学的魅力。
 
 - [紫竹原始小说](https://www.cnysxc.com/)
 
 ## 最新小说
-- [哥你不能不要我](https://www.cnysxc.com/book/8edu9dg/)
-- [被奇犽告白以后](https://www.cnysxc.com/book/8edu53e/)
-- [我司艺人永不塌房](https://www.cnysxc.com/book/8edtt40/)
+- [五美元在哥谭活一月](https://www.cnysxc.com/book/8eduv5k/)
+- [我与龙傲天寿命共享](https://www.cnysxc.com/book/8edutsq/)
+- [绿叶](https://www.cnysxc.com/book/8edut60/)
+- [我不可能舔一个漂亮捞子](https://www.cnysxc.com/book/8eduokj/)
+- [简单罗曼史](https://www.cnysxc.com/book/8eduiol/)
+- [微臣怜惜公主](https://www.cnysxc.com/book/8edui35/)
+- [老公是松散生命体](https://www.cnysxc.com/book/8edugg9/)
+- [豪门养子怀了大哥的崽](https://www.cnysxc.com/book/8educ17/)
+- [沈助理又在隐藏他的超能力](https://www.cnysxc.com/book/8edua3s/)
+- [同时扮演贵族学院F4和平民校花](https://www.cnysxc.com/book/8edu9th/)
+- [大美人beta带球跑了](https://www.cnysxc.com/book/8edu5ju/)
+- [直男咒术师的限制级游戏](https://www.cnysxc.com/book/8edtvt9/)
+- [多梦你一会儿](https://www.cnysxc.com/book/8edtu70/)
 - [这谁的沙雕二次元心声！](https://www.cnysxc.com/book/8edtt37/)
-- [[足球]最佳前锋](https://www.cnysxc.com/book/8edtrfq/)
 - [就算是龙傲天也不可以[快穿]](https://www.cnysxc.com/book/8edtrfh/)
 - [穿为清冷影后的污点A](https://www.cnysxc.com/book/8edtr8f/)
-- [炮灰的我该如何上位？](https://www.cnysxc.com/book/8edtqiv/)
-- [在魔法世界屯田争霸](https://www.cnysxc.com/book/8edtq30/)
-- [伪装纨绔，怎么成了名相](https://www.cnysxc.com/book/8edtnmv/)
+- [野比春子穿越事件簿](https://www.cnysxc.com/book/8edtojl/)
 - [拯救世界从扮演反派开始](https://www.cnysxc.com/book/8edtmtu/)
 - [和前女友的心上人he了](https://www.cnysxc.com/book/8edtm8e/)
 - [井闼山经理每天都被挖墙脚](https://www.cnysxc.com/book/8edtk88/)
+- [作家与读者](https://www.cnysxc.com/book/8edtj92/)
+- [[全职高手]问就是没钱](https://www.cnysxc.com/book/8edtit8/)
 - [某柯学的正义伙伴](https://www.cnysxc.com/book/8edti98/)
 - [[足球]罗蜜第一志愿](https://www.cnysxc.com/book/8edtgds/)
-- [幼崽假少爷选择回归寒门](https://www.cnysxc.com/book/8edtdq1/)
-- [一枝枝怨](https://www.cnysxc.com/book/8edtd30/)
-- [在民俗惊悚片被诸神庇护](https://www.cnysxc.com/book/8edrc25/)
+- [[足球]小小鸟堂堂来袭](https://www.cnysxc.com/book/8edte1h/)
+- [法外狂猫](https://www.cnysxc.com/book/8edtcvc/)
+- [和室友他爸恋爱后](https://www.cnysxc.com/book/8edtat8/)
+- [好兄弟暴富后非要跟我结婚](https://www.cnysxc.com/book/8edt6ug/)
 - [纯爱宇智波基本恋爱法](https://www.cnysxc.com/book/8edrbfo/)
 - [你，后室管理员](https://www.cnysxc.com/book/8edrauk/)
 - [[封神]圣人生欲](https://www.cnysxc.com/book/8edrare/)

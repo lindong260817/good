@@ -1,14 +1,13 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-08-25 03:16:46
+更新时间：2026-08-27 03:18:44
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
 - [速阅阁小说网](https://www.ccccenergy.com/)
 
 ## 最新小说
-- [养父](https://www.ccccenergy.com/book/7car650/)
 - [[娱乐圈]重生之从编剧开始的快乐生活](https://www.ccccenergy.com/book/7car64u/)
 - [我家刀男不可能是诡异BOSS](https://www.ccccenergy.com/book/7car64t/)
 - [[综崩铁]你怎么知道我是令使](https://www.ccccenergy.com/book/7car64s/)
@@ -51,7 +50,7 @@
 - [夺养媳](https://www.ccccenergy.com/book/7car63k/)
 - [小白花是黑暗向导](https://www.ccccenergy.com/book/7car63j/)
 - [分手后与诱系妻子再度热恋](https://www.ccccenergy.com/book/7car63h/)
-- [[综]成年人为什么会成为救世主](https://www.ccccenergy.com/book/7car63g/)
+- [[反穿]我的救世主生涯不对劲？](https://www.ccccenergy.com/book/7car63g/)
 - [断供留子，老公赛级白男](https://www.ccccenergy.com/book/7car63f/)
 - [荒滩种田记](https://www.ccccenergy.com/book/7car63e/)
 - [继兄怀孕，孩子是我的](https://www.ccccenergy.com/book/7car63d/)
@@ -67,7 +66,7 @@
 - [十九世纪贵族厨房（美食）](https://www.ccccenergy.com/book/7car633/)
 - [[综英美]在综恐世界逃生](https://www.ccccenergy.com/book/7car632/)
 - [玄意未尽时 [穿书]](https://www.ccccenergy.com/book/7car631/)
-- [九零首富的替嫁小甜妻](https://www.ccccenergy.com/book/7car630/)
+- [九零首富的替嫁小媳妇](https://www.ccccenergy.com/book/7car630/)
 - [开局忽悠煤老板拍偶像剧[九零]](https://www.ccccenergy.com/book/7car62v/)
 - [彭格列的大空](https://www.ccccenergy.com/book/7car62u/)
 - [漂亮男知青下乡后](https://www.ccccenergy.com/book/7car62s/)
@@ -81,11 +80,9 @@
 - [把讨厌的师兄写进限制文后](https://www.ccccenergy.com/book/7car62k/)
 - [海上求生:生活玩家战力爆表](https://www.ccccenergy.com/book/7car62j/)
 - [高调装神，猥琐发育](https://www.ccccenergy.com/book/7car62g/)
-- [暴君的赝品公主](https://www.ccccenergy.com/book/7car62f/)
 - [假少爷不想活了](https://www.ccccenergy.com/book/7car62e/)
 - [千禧年，拆迁分了十栋楼！](https://www.ccccenergy.com/book/7car62a/)
 - [纯爱宇智波基本恋爱法](https://www.ccccenergy.com/book/7car5tc/)
-- [和八个男人身陷瘟疫之地](https://www.ccccenergy.com/book/7car55h/)
 - [六零之成了卷王的妹妹](https://www.ccccenergy.com/book/7car4m9/)
 - [道长他为何那样](https://www.ccccenergy.com/book/7car4lr/)
 - [古代种田养娃日常](https://www.ccccenergy.com/book/7caqfap/)
@@ -94,7 +91,7 @@
 - [老公对不起](https://www.ccccenergy.com/book/7capnpu/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ccccenergy.com/book/7capi8k/)
 - [主角前任他分手分不掉了](https://www.ccccenergy.com/book/7cap48a/)
-- [七零回城女知青[穿书]](https://www.ccccenergy.com/book/7cap3di/)
+- [无限末日副本：我有移动安全屋](https://www.ccccenergy.com/book/7caoulc/)
 - [御兽师，我打工养你啊](https://www.ccccenergy.com/book/7caomll/)
 - [七零捡漏日常](https://www.ccccenergy.com/book/7caoclh/)
 - [穿成炮灰后我封神了［快穿］](https://www.ccccenergy.com/book/7caoch3/)
@@ -110,13 +107,10 @@
 - [我演的不是漂亮圣子攻吗?](https://www.ccccenergy.com/book/7cank6c/)
 - [禁止限制文主角转职龙傲天](https://www.ccccenergy.com/book/7canip6/)
 - [渣攻必须he（快穿）](https://www.ccccenergy.com/book/7cangia/)
-- [前女友孩子三岁了](https://www.ccccenergy.com/book/nkbelp/)
 - [她是反派的背景板母亲](https://www.ccccenergy.com/book/nkb9n4/)
 - [星际第一女A[穿书]](https://www.ccccenergy.com/book/nkb7ng/)
 - [喜恶同因[青梅竹马]](https://www.ccccenergy.com/book/nkb6uq/)
 - [绿茶男来袭（快穿）](https://www.ccccenergy.com/book/nkb6i4/)
-- [废太子联盟](https://www.ccccenergy.com/book/nkb37o/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.ccccenergy.com/book/nkb371/)
 - [成为养成系练习生后](https://www.ccccenergy.com/book/nkb2ol/)
 - [闺蜜就不能是妻子吗](https://www.ccccenergy.com/book/nkb0le/)
 - [为诡异打工，但反封建迷信](https://www.ccccenergy.com/book/nkavao/)
@@ -128,6 +122,7 @@
 - [和冰山上司隐婚生崽了](https://www.ccccenergy.com/book/nkaorg/)
 - [我是封建大爹的好孕小娇妻](https://www.ccccenergy.com/book/nkao61/)
 - [壮受虫母今天也想逃](https://www.ccccenergy.com/book/nkaljo/)
+- [贵族学院女保安竟是万人迷](https://www.ccccenergy.com/book/nkag3c/)
 - [至尊法师克拉克[综英美]](https://www.ccccenergy.com/book/nkabn0/)
 - [是NPC就来和玩家合影](https://www.ccccenergy.com/book/nkabj8/)
 - [绝对占有](https://www.ccccenergy.com/book/nkab8d/)
@@ -142,6 +137,7 @@
 - [性转成真千金靠写文逆袭了](https://www.ccccenergy.com/book/nk9vkm/)
 - [惊！S级诡异竟是我自己](https://www.ccccenergy.com/book/nk9u91/)
 - [雇佣毛茸茸开农场](https://www.ccccenergy.com/book/nk9sn7/)
+- [娶了女装心机太子](https://www.ccccenergy.com/book/nk9s4c/)
 - [美人魔头绑定龙傲天系统后](https://www.ccccenergy.com/book/nk9q27/)
 - [立海大的水仙赛季](https://www.ccccenergy.com/book/nk9pof/)
 - [人气反派的马甲演绎实录](https://www.ccccenergy.com/book/nk9pgm/)
@@ -151,11 +147,13 @@
 - [巴黎恋人](https://www.ccccenergy.com/book/nk9jqi/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.ccccenergy.com/book/nk9eoi/)
 - [本官早知他是狐狸变的](https://www.ccccenergy.com/book/nk9dl2/)
+- [与宿敌他哥契约成婚后](https://www.ccccenergy.com/book/nk9dg2/)
 - [区区精灵[西幻]](https://www.ccccenergy.com/book/nk9d7v/)
 - [大瑛弟国](https://www.ccccenergy.com/book/2bk4eo/)
 - [高门小婢](https://www.ccccenergy.com/book/2bk43r/)
 - [我是唯一地上神国](https://www.ccccenergy.com/book/2bk43m/)
 - [穿到反派落魄时](https://www.ccccenergy.com/book/2bk3q5/)
+- [完蛋！被恨孕男包围了！](https://www.ccccenergy.com/book/2bk3q0/)
 - [我有一座安全城](https://www.ccccenergy.com/book/2bk3ao/)
 - [如何扮演源氏重宝](https://www.ccccenergy.com/book/2bk39c/)
 - [95美国贵族高中模拟](https://www.ccccenergy.com/book/2bk36l/)

@@ -1,16 +1,15 @@
 
 # 故事来书吧-免费阅读全网最新最热小说
 
-更新时间：2026-08-25 03:20:21
+更新时间：2026-08-27 03:22:28
 
 故事来书吧提供海量免费无弹窗小说在线阅读服务，涵盖言情、都市、玄幻、武侠等多种类型，让你随时随地享受阅读的乐趣。
 
 - [故事来书吧](https://www.gushi688.com/)
 
 ## 最新小说
-- [养父](https://www.gushi688.com/book/5120kqk/)
 - [人妻O救赎指南](https://www.gushi688.com/book/5120kkp/)
-- [七零回城女知青[穿书]](https://www.gushi688.com/book/5120enb/)
+- [无限末日副本：我有移动安全屋](https://www.gushi688.com/book/5120a1g/)
 - [冥王陛下今天睡醒了吗[综英美]](https://www.gushi688.com/book/512025m/)
 - [与冷脸糙汉相亲后](https://www.gushi688.com/book/512025g/)
 - [海上求生:生活玩家战力爆表](https://www.gushi688.com/book/512025e/)
@@ -32,7 +31,7 @@
 - [从死亡开始的猎人笔记](https://www.gushi688.com/book/512022m/)
 - [你，后室管理员](https://www.gushi688.com/book/512022j/)
 - [高三一班[无限]](https://www.gushi688.com/book/5120226/)
-- [[综]成年人为什么会成为救世主](https://www.gushi688.com/book/5120225/)
+- [[反穿]我的救世主生涯不对劲？](https://www.gushi688.com/book/5120225/)
 - [断供留子，老公赛级白男](https://www.gushi688.com/book/5120224/)
 - [星际团宠小人鱼](https://www.gushi688.com/book/512021u/)
 - [金手指夫妻在六零](https://www.gushi688.com/book/512021r/)
@@ -77,8 +76,8 @@
 - [玄意未尽时 [穿书]](https://www.gushi688.com/book/51201q4/)
 - [窃春欢](https://www.gushi688.com/book/51201q1/)
 - [医学大佬在年代文[穿书]](https://www.gushi688.com/book/51201q0/)
+- [完蛋！被恨孕男包围了！](https://www.gushi688.com/book/511vqtq/)
 - [高调装神，猥琐发育](https://www.gushi688.com/book/511vqpi/)
-- [暴君的赝品公主](https://www.gushi688.com/book/511vqpb/)
 - [魅魔就不能打网球了吗？](https://www.gushi688.com/book/511vgpg/)
 - [喜恶同因[青梅竹马]](https://www.gushi688.com/book/511vg9r/)
 - [捡了龙傲天金手指后](https://www.gushi688.com/book/511vg5r/)
@@ -86,13 +85,12 @@
 - [禁止限制文主角转职龙傲天](https://www.gushi688.com/book/511vf0c/)
 - [我演的不是漂亮圣子攻吗?](https://www.gushi688.com/book/511v6rp/)
 - [[希腊神话]基建拯救世界](https://www.gushi688.com/book/511v451/)
-- [九零首富的替嫁小甜妻](https://www.gushi688.com/book/511v17b/)
+- [九零首富的替嫁小媳妇](https://www.gushi688.com/book/511v17b/)
 - [为诡异打工，但反封建迷信](https://www.gushi688.com/book/511uqhi/)
 - [渣攻必须he（快穿）](https://www.gushi688.com/book/511uqe6/)
 - [星际第一女A[穿书]](https://www.gushi688.com/book/511up05/)
 - [在民俗惊悚片被诸神庇护](https://www.gushi688.com/book/511umpk/)
 - [绿茶男来袭（快穿）](https://www.gushi688.com/book/511umg3/)
-- [废太子联盟](https://www.gushi688.com/book/511ulq3/)
 - [你对寡人的猫有什么意见？](https://www.gushi688.com/book/511ujrf/)
 - [闺蜜就不能是妻子吗](https://www.gushi688.com/book/511uij4/)
 - [我是封建大爹的好孕小娇妻](https://www.gushi688.com/book/511udvh/)
@@ -108,6 +106,7 @@
 - [壮受虫母今天也想逃](https://www.gushi688.com/book/511u43p/)
 - [八零恶毒后妈杀疯了](https://www.gushi688.com/book/511u36a/)
 - [夜偶](https://www.gushi688.com/book/511u1ht/)
+- [贵族学院女保安竟是万人迷](https://www.gushi688.com/book/511u0ta/)
 - [星露谷，但大秦帝国](https://www.gushi688.com/book/511tuk6/)
 - [至尊法师克拉克[综英美]](https://www.gushi688.com/book/511ts6c/)
 - [是NPC就来和玩家合影](https://www.gushi688.com/book/511tou2/)
@@ -118,6 +117,7 @@
 - [道长在诡异世界捉诡](https://www.gushi688.com/book/511tf1h/)
 - [人气反派的马甲演绎实录](https://www.gushi688.com/book/511tdns/)
 - [趁她之危](https://www.gushi688.com/book/511tcp8/)
+- [娶了女装心机太子](https://www.gushi688.com/book/511ta5s/)
 - [雇佣毛茸茸开农场](https://www.gushi688.com/book/511t9aq/)
 - [[综崩铁]你怎么知道我是令使](https://www.gushi688.com/book/511t8pt/)
 - [性转成真千金靠写文逆袭了](https://www.gushi688.com/book/511t8kh/)
@@ -133,8 +133,8 @@
 - [在尤文图斯养超巨[足球]](https://www.gushi688.com/book/511sqd9/)
 - [救命！白无常每天都在钓我](https://www.gushi688.com/book/511solh/)
 - [[西幻]玛赫里魔药店经营实录](https://www.gushi688.com/book/511soi0/)
+- [与宿敌他哥契约成婚后](https://www.gushi688.com/book/511sogn/)
 - [区区精灵[西幻]](https://www.gushi688.com/book/511snro/)
-- [和八个男人身陷瘟疫之地](https://www.gushi688.com/book/511smdu/)
 - [道长他为何那样](https://www.gushi688.com/book/511sknf/)
 - [六零之成了卷王的妹妹](https://www.gushi688.com/book/511rrqv/)
 - [纯爱宇智波基本恋爱法](https://www.gushi688.com/book/511rrob/)
@@ -145,7 +145,6 @@
 - [巨物致富：回乡开钓场](https://www.gushi688.com/book/511rqv9/)
 - [大瑛弟国](https://www.gushi688.com/book/511rqld/)
 - [警察，但犯罪大师系统[刑侦]](https://www.gushi688.com/book/511rqja/)
-- [前女友孩子三岁了](https://www.gushi688.com/book/511rqik/)
 - [我是唯一地上神国](https://www.gushi688.com/book/511rqi8/)
 - [太宗今天又哭了吗](https://www.gushi688.com/book/511rqbs/)
 - [穿成炮灰后我封神了［快穿］](https://www.gushi688.com/book/511rq9m/)
@@ -157,7 +156,6 @@
 - [绝色美人模拟器](https://www.gushi688.com/book/511rpue/)
 - [[娱乐圈]过分美丽的她](https://www.gushi688.com/book/511rpqt/)
 - [我有一座安全城](https://www.gushi688.com/book/511rppg/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.gushi688.com/book/511rpnp/)
 - [95美国贵族高中模拟](https://www.gushi688.com/book/511rpl8/)
 - [古代种田养娃日常](https://www.gushi688.com/book/511rphf/)
 - [日化人生[科研]](https://www.gushi688.com/book/511rpaj/)
