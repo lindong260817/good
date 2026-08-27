@@ -1,7 +1,7 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-08-27 03:37:33
+更新时间：2026-08-28 03:38:49
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
@@ -109,7 +109,6 @@
 - [禁止限制文主角转职龙傲天](https://www.yuedu687.com/book/2bu220h/)
 - [始皇闺女躺平失败的日子](https://www.yuedu687.com/book/2bu1uug/)
 - [渣攻必须he（快穿）](https://www.yuedu687.com/book/7j2t6h/)
-- [喜恶同因[青梅竹马]](https://www.yuedu687.com/book/7j2o0g/)
 - [星际第一女A[穿书]](https://www.yuedu687.com/book/7j2is5/)
 - [成为养成系练习生后](https://www.yuedu687.com/book/7j2g9a/)
 - [你对寡人的猫有什么意见？](https://www.yuedu687.com/book/7j2d15/)
@@ -132,7 +131,6 @@
 - [将妹妹嫁给别人后](https://www.yuedu687.com/book/7j1j35/)
 - [掌中春莺](https://www.yuedu687.com/book/7j1h61/)
 - [误入反派培养直播后](https://www.yuedu687.com/book/7j1fuf/)
-- [暗涌[破镜重圆]](https://www.yuedu687.com/book/7j1fss/)
 - [道长在诡异世界捉诡](https://www.yuedu687.com/book/7j1fnr/)
 - [惊！S级诡异竟是我自己](https://www.yuedu687.com/book/7j1cqr/)
 - [性转成真千金靠写文逆袭了](https://www.yuedu687.com/book/7j1cou/)

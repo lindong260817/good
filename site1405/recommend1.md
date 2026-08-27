@@ -1,7 +1,7 @@
 
 # 耽美小说 - 最新全本免费手机小说阅读推荐
 
-更新时间：2026-08-27 03:30:55
+更新时间：2026-08-28 03:31:35
 
 耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！
 
@@ -46,7 +46,6 @@
 - [星露谷，但大秦帝国](https://www.shgifts8.com/book/32ud71f/)
 - [美人魔头绑定龙傲天系统后](https://www.shgifts8.com/book/32ud71a/)
 - [万人嫌他真不想掉马](https://www.shgifts8.com/book/32ud702/)
-- [喜恶同因[青梅竹马]](https://www.shgifts8.com/book/32ud6vp/)
 - [夜偶](https://www.shgifts8.com/book/32ud6vm/)
 - [小寡夫女装直播捞到了封建亡夫](https://www.shgifts8.com/book/32ud6us/)
 - [替嫁后咸鱼继母佛系日常](https://www.shgifts8.com/book/32ud6u6/)
@@ -78,7 +77,6 @@
 - [在尤文图斯养超巨[足球]](https://www.shgifts8.com/book/32ud6be/)
 - [巫女的乱世逃荒记](https://www.shgifts8.com/book/32ud6aj/)
 - [玄意未尽时 [穿书]](https://www.shgifts8.com/book/32ud6a3/)
-- [暗涌[破镜重圆]](https://www.shgifts8.com/book/32ud69p/)
 - [窃春欢](https://www.shgifts8.com/book/32ud69o/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shgifts8.com/book/32ud69n/)
 - [当咒术高专来了个杀鬼道士](https://www.shgifts8.com/book/32ud69b/)

@@ -1,7 +1,7 @@
 
 # 探秘书院-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-08-27 03:32:42
+更新时间：2026-08-28 03:33:41
 
 探秘书院提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
@@ -82,7 +82,6 @@
 - [高调装神，猥琐发育](https://www.tanmi918.com/book/80r3a1i/)
 - [[足球]替补门将](https://www.tanmi918.com/book/80r2vjj/)
 - [禁止限制文主角转职龙傲天](https://www.tanmi918.com/book/80r2v67/)
-- [喜恶同因[青梅竹马]](https://www.tanmi918.com/book/80r2ur9/)
 - [魅魔就不能打网球了吗？](https://www.tanmi918.com/book/80r2ug6/)
 - [捡了龙傲天金手指后](https://www.tanmi918.com/book/80r2u7d/)
 - [我演的不是漂亮圣子攻吗?](https://www.tanmi918.com/book/80r2o2j/)
@@ -115,7 +114,6 @@
 - [京华无尽夏](https://www.tanmi918.com/book/80r17n9/)
 - [绝对占有](https://www.tanmi918.com/book/80r15lj/)
 - [掌中春莺](https://www.tanmi918.com/book/80r14pr/)
-- [暗涌[破镜重圆]](https://www.tanmi918.com/book/80r112a/)
 - [道长在诡异世界捉诡](https://www.tanmi918.com/book/80r0vme/)
 - [[综崩铁]你怎么知道我是令使](https://www.tanmi918.com/book/80r0vbr/)
 - [人气反派的马甲演绎实录](https://www.tanmi918.com/book/80r0v9o/)

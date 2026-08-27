@@ -1,13 +1,14 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-08-27 03:23:45
+更新时间：2026-08-28 03:24:16
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。
 
 - [奇书网](https://www.jxbfsz.com/)
 
 ## 最新小说
+- [我真的只会Ctrl啊！！！](https://www.jxbfsz.com/book/29i1f58/)
 - [人妻O救赎指南](https://www.jxbfsz.com/book/29i1ero/)
 - [冥王陛下今天睡醒了吗[综英美]](https://www.jxbfsz.com/book/29i183t/)
 - [咖啡大亨模拟经营指南](https://www.jxbfsz.com/book/29i183s/)
@@ -74,8 +75,9 @@
 - [漂亮小瞎子捡到直男龙傲天](https://www.jxbfsz.com/book/29i15c3/)
 - [七零捡漏日常](https://www.jxbfsz.com/book/29i12vq/)
 - [趁她之危](https://www.jxbfsz.com/book/29i0qqn/)
-- [完蛋！被恨孕男包围了！](https://www.jxbfsz.com/book/29i0n6h/)
 - [无限末日副本：我有移动安全屋](https://www.jxbfsz.com/book/29i0m6n/)
+- [我有特殊的升官技巧](https://www.jxbfsz.com/book/29i0ga0/)
+- [反派人生，易如反掌[快穿]](https://www.jxbfsz.com/book/29i0d03/)
 - [假少爷不想活了](https://www.jxbfsz.com/book/29i0cq6/)
 - [十九世纪贵族厨房（美食）](https://www.jxbfsz.com/book/29hvu8o/)
 - [禁止限制文主角转职龙傲天](https://www.jxbfsz.com/book/29hvsot/)
@@ -84,17 +86,15 @@
 - [捡了龙傲天金手指后](https://www.jxbfsz.com/book/29hvq4d/)
 - [[足球]替补门将](https://www.jxbfsz.com/book/29hvo2n/)
 - [[西幻]玛赫里魔药店经营实录](https://www.jxbfsz.com/book/29hvo0k/)
-- [千禧年，拆迁分了十栋楼！](https://www.jxbfsz.com/book/29hvllh/)
 - [绝色美人模拟器](https://www.jxbfsz.com/book/29hvleu/)
 - [被反派暴君听到心声后[穿书]](https://www.jxbfsz.com/book/29hvl9j/)
 - [我演的不是漂亮圣子攻吗?](https://www.jxbfsz.com/book/29hvimj/)
-- [喜恶同因[青梅竹马]](https://www.jxbfsz.com/book/29hvg65/)
 - [[希腊神话]基建拯救世界](https://www.jxbfsz.com/book/29hvamj/)
+- [始皇闺女躺平失败的日子](https://www.jxbfsz.com/book/29hv9gm/)
 - [渣攻必须he（快穿）](https://www.jxbfsz.com/book/29hv7nh/)
 - [九零首富的替嫁小媳妇](https://www.jxbfsz.com/book/29hv7co/)
 - [为诡异打工，但反封建迷信](https://www.jxbfsz.com/book/29hv5fq/)
 - [星际第一女A[穿书]](https://www.jxbfsz.com/book/29hv20t/)
-- [绿茶男来袭（快穿）](https://www.jxbfsz.com/book/29hv0p8/)
 - [你对寡人的猫有什么意见？](https://www.jxbfsz.com/book/29huube/)
 - [在民俗惊悚片被诸神庇护](https://www.jxbfsz.com/book/29hussh/)
 - [闺蜜就不能是妻子吗](https://www.jxbfsz.com/book/29huslu/)
@@ -108,7 +108,6 @@
 - [他要和我谈恋爱](https://www.jxbfsz.com/book/29huftc/)
 - [替嫁后咸鱼继母佛系日常](https://www.jxbfsz.com/book/29huf7o/)
 - [邻居小孩太有钱[快穿]](https://www.jxbfsz.com/book/29huf71/)
-- [贵族学院女保安竟是万人迷](https://www.jxbfsz.com/book/29huego/)
 - [八零恶毒后妈杀疯了](https://www.jxbfsz.com/book/29huael/)
 - [[封神]圣人生欲](https://www.jxbfsz.com/book/29hu85n/)
 - [至尊法师克拉克[综英美]](https://www.jxbfsz.com/book/29hu7ss/)
@@ -117,10 +116,10 @@
 - [纯爱宇智波基本恋爱法](https://www.jxbfsz.com/book/29hu5hu/)
 - [是NPC就来和玩家合影](https://www.jxbfsz.com/book/29hu3l6/)
 - [京华无尽夏](https://www.jxbfsz.com/book/29hu3em/)
+- [将妹妹嫁给别人后](https://www.jxbfsz.com/book/29hu2s0/)
 - [被四皇错看成小动物后](https://www.jxbfsz.com/book/29hu1i4/)
 - [绝对占有](https://www.jxbfsz.com/book/29hu181/)
 - [掌中春莺](https://www.jxbfsz.com/book/29httn0/)
-- [暗涌[破镜重圆]](https://www.jxbfsz.com/book/29htsnm/)
 - [道长在诡异世界捉诡](https://www.jxbfsz.com/book/29hts0n/)
 - [人气反派的马甲演绎实录](https://www.jxbfsz.com/book/29htp55/)
 - [雇佣毛茸茸开农场](https://www.jxbfsz.com/book/29htmac/)
@@ -136,7 +135,6 @@
 - [巴黎恋人](https://www.jxbfsz.com/book/29ht9hh/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.jxbfsz.com/book/29ht5rn/)
 - [本官早知他是狐狸变的](https://www.jxbfsz.com/book/29ht4mf/)
-- [与宿敌他哥契约成婚后](https://www.jxbfsz.com/book/29ht437/)
 - [嘲讽力拉满的我该如何在异世界生活](https://www.jxbfsz.com/book/29ht3ah/)
 - [区区精灵[西幻]](https://www.jxbfsz.com/book/29ht360/)
 - [救命！白无常每天都在钓我](https://www.jxbfsz.com/book/29ht1on/)
@@ -156,9 +154,7 @@
 - [日化人生[科研]](https://www.jxbfsz.com/book/29hs6p3/)
 - [成为养成系练习生后](https://www.jxbfsz.com/book/29hs6ep/)
 - [主角前任他分手分不掉了](https://www.jxbfsz.com/book/29hs6c5/)
-- [她是反派的背景板母亲](https://www.jxbfsz.com/book/29hs6af/)
 - [古代种田养娃日常](https://www.jxbfsz.com/book/29hs69j/)
-- [老公对不起](https://www.jxbfsz.com/book/29hs5vj/)
 - [六零之成了卷王的妹妹](https://www.jxbfsz.com/book/29hs5t6/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.jxbfsz.com/book/29hs5gv/)
 - [警察，但犯罪大师系统[刑侦]](https://www.jxbfsz.com/book/29hs5fr/)

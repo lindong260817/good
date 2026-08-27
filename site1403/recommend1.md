@@ -1,7 +1,7 @@
 
 # 微雨数据小说,新笔趣小说阅读网,顶点小说网备份-热门小说大全
 
-更新时间：2026-08-27 03:33:16
+更新时间：2026-08-28 03:34:21
 
 微雨数据小说网作为广大书友喜爱的平台之一，同时也是顶点小说阅读网的官方备份网站，汇集了当前最受欢迎和最火热的小说资源。当遇到顶点小说网无法访问时，请访问笔趣看小说网继续享受精彩内容！
 
@@ -35,7 +35,6 @@
 - [[娱乐圈]重生之从编剧开始的快乐生活](https://www.weiyushuju.com/book/6rf2a5o/)
 - [星际团宠小人鱼](https://www.weiyushuju.com/book/6rf2a5n/)
 - [日化人生[科研]](https://www.weiyushuju.com/book/6rf2a4d/)
-- [喜恶同因[青梅竹马]](https://www.weiyushuju.com/book/6rf2a41/)
 - [御赐厨娘在九零[古穿今]](https://www.weiyushuju.com/book/6rf2a34/)
 - [惊！S级诡异竟是我自己](https://www.weiyushuju.com/book/6rf2a32/)
 - [原配夫人](https://www.weiyushuju.com/book/6rf2a1q/)
@@ -60,7 +59,6 @@
 - [老公你人设是不是崩了](https://www.weiyushuju.com/book/6rf29kj/)
 - [越界沉溺](https://www.weiyushuju.com/book/6rf29k0/)
 - [虫族雌兄，你好香啊](https://www.weiyushuju.com/book/6rf29jm/)
-- [暗涌[破镜重圆]](https://www.weiyushuju.com/book/6rf29jb/)
 - [警察，但犯罪大师系统[刑侦]](https://www.weiyushuju.com/book/6rf29ia/)
 - [误入反派培养直播后](https://www.weiyushuju.com/book/6rf29g6/)
 - [[足球]如此足球，怎能不恨](https://www.weiyushuju.com/book/6rf29fd/)

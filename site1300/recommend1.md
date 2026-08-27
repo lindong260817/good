@@ -1,7 +1,7 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-08-27 03:26:36
+更新时间：2026-08-28 03:27:10
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。
 
@@ -81,18 +81,19 @@
 - [分手后与诱系妻子再度热恋](https://www.littlemissribbon.com/book/5asiiqk/)
 - [高调装神，猥琐发育](https://www.littlemissribbon.com/book/5asiiqh/)
 - [假少爷不想活了](https://www.littlemissribbon.com/book/5asiiqf/)
-- [千禧年，拆迁分了十栋楼！](https://www.littlemissribbon.com/book/5asiipr/)
 - [纯爱宇智波基本恋爱法](https://www.littlemissribbon.com/book/5asiiob/)
 - [六零之成了卷王的妹妹](https://www.littlemissribbon.com/book/5asihea/)
 - [道长他为何那样](https://www.littlemissribbon.com/book/5asihdk/)
 - [古代种田养娃日常](https://www.littlemissribbon.com/book/5ashsab/)
 - [恶犬品德](https://www.littlemissribbon.com/book/5ashi35/)
 - [被反派暴君听到心声后[穿书]](https://www.littlemissribbon.com/book/5asheti/)
-- [老公对不起](https://www.littlemissribbon.com/book/5ash52d/)
 - [主角前任他分手分不掉了](https://www.littlemissribbon.com/book/5asgqvt/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.littlemissribbon.com/book/5asgq6f/)
 - [无限末日副本：我有移动安全屋](https://www.littlemissribbon.com/book/5asgbvi/)
+- [我有特殊的升官技巧](https://www.littlemissribbon.com/book/5asg5pi/)
 - [御兽师，我打工养你啊](https://www.littlemissribbon.com/book/5asg3p9/)
+- [反派人生，易如反掌[快穿]](https://www.littlemissribbon.com/book/5asg2bc/)
+- [我真的只会Ctrl啊！！！](https://www.littlemissribbon.com/book/5asfpji/)
 - [穿成炮灰后我封神了［快穿］](https://www.littlemissribbon.com/book/5asfpig/)
 - [七零捡漏日常](https://www.littlemissribbon.com/book/5asfpc3/)
 - [日化人生[科研]](https://www.littlemissribbon.com/book/5asfff9/)
@@ -106,10 +107,8 @@
 - [我演的不是漂亮圣子攻吗?](https://www.littlemissribbon.com/book/5asf35t/)
 - [禁止限制文主角转职龙傲天](https://www.littlemissribbon.com/book/5asf1ei/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.littlemissribbon.com/book/5asf1a1/)
+- [始皇闺女躺平失败的日子](https://www.littlemissribbon.com/book/5asf0p2/)
 - [渣攻必须he（快穿）](https://www.littlemissribbon.com/book/5aseshu/)
-- [她是反派的背景板母亲](https://www.littlemissribbon.com/book/h2tlr0/)
-- [绿茶男来袭（快穿）](https://www.littlemissribbon.com/book/h2tkpf/)
-- [喜恶同因[青梅竹马]](https://www.littlemissribbon.com/book/h2tjeo/)
 - [星际第一女A[穿书]](https://www.littlemissribbon.com/book/h2tfnp/)
 - [成为养成系练习生后](https://www.littlemissribbon.com/book/h2teo9/)
 - [你对寡人的猫有什么意见？](https://www.littlemissribbon.com/book/h2tbfd/)
@@ -122,7 +121,6 @@
 - [太宗今天又哭了吗](https://www.littlemissribbon.com/book/h2t3ue/)
 - [邻居小孩太有钱[快穿]](https://www.littlemissribbon.com/book/h2t2qc/)
 - [壮受虫母今天也想逃](https://www.littlemissribbon.com/book/h2t0g6/)
-- [贵族学院女保安竟是万人迷](https://www.littlemissribbon.com/book/h2srq7/)
 - [星露谷，但大秦帝国](https://www.littlemissribbon.com/book/h2smos/)
 - [是NPC就来和玩家合影](https://www.littlemissribbon.com/book/h2slof/)
 - [夜偶](https://www.littlemissribbon.com/book/h2slm3/)
@@ -130,9 +128,9 @@
 - [京华无尽夏](https://www.littlemissribbon.com/book/h2ska9/)
 - [至尊法师克拉克[综英美]](https://www.littlemissribbon.com/book/h2sk68/)
 - [[希腊神话]基建拯救世界](https://www.littlemissribbon.com/book/h2sgvq/)
+- [将妹妹嫁给别人后](https://www.littlemissribbon.com/book/h2setm/)
 - [掌中春莺](https://www.littlemissribbon.com/book/h2se9f/)
 - [道长在诡异世界捉诡](https://www.littlemissribbon.com/book/h2sc7q/)
-- [暗涌[破镜重圆]](https://www.littlemissribbon.com/book/h2sbsm/)
 - [误入反派培养直播后](https://www.littlemissribbon.com/book/h2sbo8/)
 - [惊！S级诡异竟是我自己](https://www.littlemissribbon.com/book/h2s9r2/)
 - [性转成真千金靠写文逆袭了](https://www.littlemissribbon.com/book/h2s8ke/)
@@ -147,7 +145,6 @@
 - [在民俗惊悚片被诸神庇护](https://www.littlemissribbon.com/book/h2rv7m/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.littlemissribbon.com/book/h2rsju/)
 - [本官早知他是狐狸变的](https://www.littlemissribbon.com/book/h2rp0h/)
-- [与宿敌他哥契约成婚后](https://www.littlemissribbon.com/book/h2rov1/)
 - [区区精灵[西幻]](https://www.littlemissribbon.com/book/h2rnhl/)
 - [95美国贵族高中模拟](https://www.littlemissribbon.com/book/1mluv6/)
 - [替嫁后咸鱼继母佛系日常](https://www.littlemissribbon.com/book/1mluof/)
@@ -156,7 +153,6 @@
 - [穿到反派落魄时](https://www.littlemissribbon.com/book/1mlu57/)
 - [大瑛弟国](https://www.littlemissribbon.com/book/1mltqc/)
 - [卧底后被港岛大小姐缠上了](https://www.littlemissribbon.com/book/1mltlu/)
-- [完蛋！被恨孕男包围了！](https://www.littlemissribbon.com/book/1mltl8/)
 - [猫猫也要养家糊口](https://www.littlemissribbon.com/book/1mltic/)
 - [我有一座安全城](https://www.littlemissribbon.com/book/1mltgd/)
 - [高门小婢](https://www.littlemissribbon.com/book/1mltf3/)

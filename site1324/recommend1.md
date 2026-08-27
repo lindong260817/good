@@ -1,7 +1,7 @@
 
 # 笔趣阁小说网 - 免费在线阅读百万小说
 
-更新时间：2026-08-27 03:35:45
+更新时间：2026-08-28 03:36:55
 
 笔趣阁小说网提供免费的小说在线阅读服务，包括但不限于各类热门小说、经典文学等。网站支持书架同步功能，确保用户阅读进度永不丢失。快来加入我们，享受无障碍、无广告的纯净阅读体验吧！
 
@@ -109,7 +109,6 @@
 - [禁止限制文主角转职龙傲天](https://www.xiaoshuo139.com/book/2ch4ct9/)
 - [始皇闺女躺平失败的日子](https://www.xiaoshuo139.com/book/2ch4cg6/)
 - [渣攻必须he（快穿）](https://www.xiaoshuo139.com/book/2ch4941/)
-- [喜恶同因[青梅竹马]](https://www.xiaoshuo139.com/book/7kvnaf/)
 - [星际第一女A[穿书]](https://www.xiaoshuo139.com/book/7kvk7o/)
 - [成为养成系练习生后](https://www.xiaoshuo139.com/book/7kvh3j/)
 - [你对寡人的猫有什么意见？](https://www.xiaoshuo139.com/book/7kve0s/)
@@ -132,7 +131,6 @@
 - [将妹妹嫁给别人后](https://www.xiaoshuo139.com/book/7kujj4/)
 - [道长在诡异世界捉诡](https://www.xiaoshuo139.com/book/7kuj0b/)
 - [误入反派培养直播后](https://www.xiaoshuo139.com/book/7kuic8/)
-- [暗涌[破镜重圆]](https://www.xiaoshuo139.com/book/7kuhuf/)
 - [掌中春莺](https://www.xiaoshuo139.com/book/7kugps/)
 - [惊！S级诡异竟是我自己](https://www.xiaoshuo139.com/book/7kuep4/)
 - [性转成真千金靠写文逆袭了](https://www.xiaoshuo139.com/book/7kuej4/)

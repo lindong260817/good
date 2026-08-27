@@ -1,39 +1,31 @@
 
 # 文学小说网手机版_好看的文学小说TXT下载,无弹窗手机小说网
 
-更新时间：2026-08-27 03:33:31
+更新时间：2026-08-28 03:34:43
 
 文学小说网收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者最值得收藏的网络小说阅读网,精彩小说尽在文学小说网(无弹窗小说网)。
 
 - [文学小说网](https://www.wenxue521.com/)
 
 ## 最新小说
-- [你，后室管理员](https://www.wenxue521.com/book/93olscq/)
-- [星际团宠小人鱼](https://www.wenxue521.com/book/93olsc5/)
-- [夺友妻（女尊）](https://www.wenxue521.com/book/93olsbg/)
-- [[封神]圣人生欲](https://www.wenxue521.com/book/93olsba/)
-- [他要和我谈恋爱](https://www.wenxue521.com/book/93olsb5/)
-- [高调装神，猥琐发育](https://www.wenxue521.com/book/93olsaf/)
-- [直男咒术师的限制级游戏](https://www.wenxue521.com/book/93ols9s/)
-- [纯爱宇智波基本恋爱法](https://www.wenxue521.com/book/93ols72/)
-- [某柯学的正义伙伴](https://www.wenxue521.com/book/93oj3l9/)
-- [我的老公是暴君](https://www.wenxue521.com/book/93oit7a/)
-- [五美元在哥谭活一月](https://www.wenxue521.com/book/93oio6a/)
-- [我有嘉宾](https://www.wenxue521.com/book/93oihaa/)
-- [沈助理又在隐藏他的超能力](https://www.wenxue521.com/book/t5nj0r/)
-- [野比春子穿越事件簿](https://www.wenxue521.com/book/t5n2d4/)
-- [[全职高手]问就是没钱](https://www.wenxue521.com/book/t5n17d/)
-- [作家与读者](https://www.wenxue521.com/book/t5mr03/)
-- [绿叶](https://www.wenxue521.com/book/t5mop7/)
-- [简单罗曼史](https://www.wenxue521.com/book/t5moeu/)
-- [我与龙傲天寿命共享](https://www.wenxue521.com/book/t5mo2l/)
-- [这谁的沙雕二次元心声！](https://www.wenxue521.com/book/t5mjaj/)
-- [老公是松散生命体](https://www.wenxue521.com/book/t5mit0/)
-- [多梦你一会儿](https://www.wenxue521.com/book/t5m9h9/)
-- [[足球]罗蜜第一志愿](https://www.wenxue521.com/book/t5m68n/)
-- [拯救世界从扮演反派开始](https://www.wenxue521.com/book/t5m4p2/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.wenxue521.com/book/t5m454/)
-- [和前女友的心上人he了](https://www.wenxue521.com/book/t5m0b9/)
+- [我在虫族监狱写小说](https://www.wenxue521.com/book/93oj2bt/)
+- [我演的不是漂亮圣子攻吗?](https://www.wenxue521.com/book/93oicl6/)
+- [[诡秘之主]乌鸦童话](https://www.wenxue521.com/book/93oicij/)
+- [错嫁春笼（先婚后爱）](https://www.wenxue521.com/book/t5nbk2/)
+- [与清冷O协议结婚后她失忆了](https://www.wenxue521.com/book/t5na7o/)
+- [被天使之王骗婚后[诡秘之主]](https://www.wenxue521.com/book/t5n9ov/)
+- [闺蜜就不能是妻子吗](https://www.wenxue521.com/book/t5n691/)
+- [迷雾求生，种田玩家也能当榜一？](https://www.wenxue521.com/book/t5n525/)
+- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.wenxue521.com/book/t5n4ug/)
+- [邻居小孩太有钱[快穿]](https://www.wenxue521.com/book/t5n0qq/)
+- [宝儿楼](https://www.wenxue521.com/book/t5n0fu/)
+- [重生后雌君追来了](https://www.wenxue521.com/book/t5msp7/)
+- [全星际都想吃我做的菜](https://www.wenxue521.com/book/t5msn7/)
+- [和饲养的黑蛇恋爱后](https://www.wenxue521.com/book/t5mq0d/)
+- [我将双打队友护至身前，自己站桩躺赢](https://www.wenxue521.com/book/t5mnmf/)
+- [骗失忆死对头修合欢道](https://www.wenxue521.com/book/t5mlb8/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.wenxue521.com/book/t5m8s5/)
+- [海岛求生：生活玩家种田囤货](https://www.wenxue521.com/book/2tbom7/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1322/index.md)
