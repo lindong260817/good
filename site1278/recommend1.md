@@ -1,7 +1,7 @@
 
 # 自由屋 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-08-27 03:38:55
+更新时间：2026-08-28 03:40:09
 
 自由屋文学网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
@@ -109,7 +109,6 @@
 - [禁止限制文主角转职龙傲天](https://www.ziyuhai.com/book/84rjjj5/)
 - [始皇闺女躺平失败的日子](https://www.ziyuhai.com/book/84rjgsr/)
 - [渣攻必须he（快穿）](https://www.ziyuhai.com/book/84rjepf/)
-- [喜恶同因[青梅竹马]](https://www.ziyuhai.com/book/q2qqsj/)
 - [星际第一女A[穿书]](https://www.ziyuhai.com/book/q2qq1v/)
 - [成为养成系练习生后](https://www.ziyuhai.com/book/q2qlih/)
 - [你对寡人的猫有什么意见？](https://www.ziyuhai.com/book/q2qhqi/)
@@ -133,7 +132,6 @@
 - [将妹妹嫁给别人后](https://www.ziyuhai.com/book/q2pmrj/)
 - [道长在诡异世界捉诡](https://www.ziyuhai.com/book/q2pmf4/)
 - [误入反派培养直播后](https://www.ziyuhai.com/book/q2pm7h/)
-- [暗涌[破镜重圆]](https://www.ziyuhai.com/book/q2pk41/)
 - [惊！S级诡异竟是我自己](https://www.ziyuhai.com/book/q2pihb/)
 - [性转成真千金靠写文逆袭了](https://www.ziyuhai.com/book/q2ph6f/)
 - [雇佣毛茸茸开农场](https://www.ziyuhai.com/book/q2pfn4/)

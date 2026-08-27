@@ -1,7 +1,7 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-08-27 03:28:06
+更新时间：2026-08-28 03:28:47
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。
 
@@ -126,7 +126,6 @@
 - [穿到反派落魄时](https://www.panyuplastic.com/book/6h8s5mb/)
 - [魅魔就不能打网球了吗？](https://www.panyuplastic.com/book/6h8s5jj/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.panyuplastic.com/book/6h8s5gl/)
-- [暗涌[破镜重圆]](https://www.panyuplastic.com/book/6h8s5eg/)
 - [是NPC就来和玩家合影](https://www.panyuplastic.com/book/6h8s57j/)
 - [雇佣毛茸茸开农场](https://www.panyuplastic.com/book/6h8s4po/)
 - [猫猫也要养家糊口](https://www.panyuplastic.com/book/6h8s4pl/)
@@ -135,7 +134,6 @@
 - [邻居小孩太有钱[快穿]](https://www.panyuplastic.com/book/6h8s422/)
 - [道长在诡异世界捉诡](https://www.panyuplastic.com/book/6h8s3n3/)
 - [高门小婢](https://www.panyuplastic.com/book/6h8s36c/)
-- [喜恶同因[青梅竹马]](https://www.panyuplastic.com/book/6h8s2t0/)
 - [京华无尽夏](https://www.panyuplastic.com/book/6h8rob7/)
 - [性转成真千金靠写文逆袭了](https://www.panyuplastic.com/book/6h8roam/)
 - [[足球]替补门将](https://www.panyuplastic.com/book/6h8ro89/)

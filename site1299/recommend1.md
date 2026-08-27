@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-27 03:34:45
+更新时间：2026-08-28 03:35:56
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
@@ -109,7 +109,6 @@
 - [禁止限制文主角转职龙傲天](https://www.wsfsx.com/book/5trunf4/)
 - [始皇闺女躺平失败的日子](https://www.wsfsx.com/book/5trule1/)
 - [渣攻必须he（快穿）](https://www.wsfsx.com/book/5truhbf/)
-- [喜恶同因[青梅竹马]](https://www.wsfsx.com/book/ivlimf/)
 - [星际第一女A[穿书]](https://www.wsfsx.com/book/ivlfid/)
 - [成为养成系练习生后](https://www.wsfsx.com/book/ivlc5d/)
 - [你对寡人的猫有什么意见？](https://www.wsfsx.com/book/ivlbk2/)
@@ -132,7 +131,6 @@
 - [将妹妹嫁给别人后](https://www.wsfsx.com/book/ivkf2m/)
 - [掌中春莺](https://www.wsfsx.com/book/ivkcvm/)
 - [道长在诡异世界捉诡](https://www.wsfsx.com/book/ivkc3a/)
-- [暗涌[破镜重圆]](https://www.wsfsx.com/book/ivkbi5/)
 - [惊！S级诡异竟是我自己](https://www.wsfsx.com/book/ivkb99/)
 - [误入反派培养直播后](https://www.wsfsx.com/book/ivk9ie/)
 - [娶了女装心机太子](https://www.wsfsx.com/book/ivk6gg/)

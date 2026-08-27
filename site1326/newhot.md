@@ -1,40 +1,31 @@
 
 # 欣怡书屋 - 免费最新章节小说阅读,全本无弹窗
 
-更新时间：2026-08-27 03:39:13
+更新时间：2026-08-28 03:40:27
 
 欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。
 
 - [欣怡书屋](https://www.znenghs.com/)
 
 ## 最新小说
-- [[封神]圣人生欲](https://www.znenghs.com/book/5n2k8uq/)
-- [他要和我谈恋爱](https://www.znenghs.com/book/5n2k8u2/)
-- [你，后室管理员](https://www.znenghs.com/book/5n2k8th/)
-- [夺友妻（女尊）](https://www.znenghs.com/book/5n2k8st/)
-- [星际团宠小人鱼](https://www.znenghs.com/book/5n2k8ss/)
-- [高调装神，猥琐发育](https://www.znenghs.com/book/5n2k8sf/)
-- [从异世界穿回来后](https://www.znenghs.com/book/5n2k8ql/)
-- [直男咒术师的限制级游戏](https://www.znenghs.com/book/5n2k8nt/)
-- [纯爱宇智波基本恋爱法](https://www.znenghs.com/book/5n2k8nf/)
-- [我的老公是暴君](https://www.znenghs.com/book/5n2j50e/)
-- [某柯学的正义伙伴](https://www.znenghs.com/book/5n2hedk/)
-- [五美元在哥谭活一月](https://www.znenghs.com/book/5n2h4pg/)
-- [我有嘉宾](https://www.znenghs.com/book/5n2gvde/)
-- [沈助理又在隐藏他的超能力](https://www.znenghs.com/book/i9tpf4/)
-- [野比春子穿越事件簿](https://www.znenghs.com/book/i9tamm/)
-- [[全职高手]问就是没钱](https://www.znenghs.com/book/i9t8o0/)
-- [绿叶](https://www.znenghs.com/book/i9t1lh/)
-- [作家与读者](https://www.znenghs.com/book/i9t16t/)
-- [简单罗曼史](https://www.znenghs.com/book/i9svfm/)
-- [我与龙傲天寿命共享](https://www.znenghs.com/book/i9sv3e/)
-- [这谁的沙雕二次元心声！](https://www.znenghs.com/book/i9sthj/)
-- [老公是松散生命体](https://www.znenghs.com/book/i9sptm/)
-- [多梦你一会儿](https://www.znenghs.com/book/i9sfpj/)
-- [[足球]罗蜜第一志愿](https://www.znenghs.com/book/i9sdb6/)
-- [拯救世界从扮演反派开始](https://www.znenghs.com/book/i9sca6/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.znenghs.com/book/i9sc7q/)
-- [和前女友的心上人he了](https://www.znenghs.com/book/i9s68h/)
+- [我在虫族监狱写小说](https://www.znenghs.com/book/5n2hcd3/)
+- [我演的不是漂亮圣子攻吗?](https://www.znenghs.com/book/5n2go5t/)
+- [[诡秘之主]乌鸦童话](https://www.znenghs.com/book/5n2gno0/)
+- [被天使之王骗婚后[诡秘之主]](https://www.znenghs.com/book/i9thbc/)
+- [与清冷O协议结婚后她失忆了](https://www.znenghs.com/book/i9tgcm/)
+- [错嫁春笼（先婚后爱）](https://www.znenghs.com/book/i9tfve/)
+- [迷雾求生，种田玩家也能当榜一？](https://www.znenghs.com/book/i9teth/)
+- [闺蜜就不能是妻子吗](https://www.znenghs.com/book/i9te3p/)
+- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.znenghs.com/book/i9td35/)
+- [宝儿楼](https://www.znenghs.com/book/i9t9km/)
+- [邻居小孩太有钱[快穿]](https://www.znenghs.com/book/i9t6ub/)
+- [重生后雌君追来了](https://www.znenghs.com/book/i9t5gg/)
+- [全星际都想吃我做的菜](https://www.znenghs.com/book/i9t4qc/)
+- [和饲养的黑蛇恋爱后](https://www.znenghs.com/book/i9t313/)
+- [我将双打队友护至身前，自己站桩躺赢](https://www.znenghs.com/book/i9stvq/)
+- [骗失忆死对头修合欢道](https://www.znenghs.com/book/i9ss1e/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.znenghs.com/book/i9sf47/)
+- [海岛求生：生活玩家种田囤货](https://www.znenghs.com/book/1qioop/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1326/index.md)

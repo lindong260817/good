@@ -1,7 +1,7 @@
 
 # 书香小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-27 03:32:11
+更新时间：2026-08-28 03:32:57
 
 书香小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -81,7 +81,6 @@
 - [反派人生，易如反掌[快穿]](https://www.shuxiang368.com/book/3qkmrb7/)
 - [高调装神，猥琐发育](https://www.shuxiang368.com/book/3qkmkum/)
 - [魅魔就不能打网球了吗？](https://www.shuxiang368.com/book/3qkmb0s/)
-- [喜恶同因[青梅竹马]](https://www.shuxiang368.com/book/3qkmatp/)
 - [[足球]替补门将](https://www.shuxiang368.com/book/3qkmamj/)
 - [捡了龙傲天金手指后](https://www.shuxiang368.com/book/3qkmaeq/)
 - [禁止限制文主角转职龙傲天](https://www.shuxiang368.com/book/3qkma9b/)
@@ -115,7 +114,6 @@
 - [京华无尽夏](https://www.shuxiang368.com/book/3qkkiq4/)
 - [掌中春莺](https://www.shuxiang368.com/book/3qkkhai/)
 - [绝对占有](https://www.shuxiang368.com/book/3qkkfok/)
-- [暗涌[破镜重圆]](https://www.shuxiang368.com/book/3qkkcaj/)
 - [[综崩铁]你怎么知道我是令使](https://www.shuxiang368.com/book/3qkkbes/)
 - [道长在诡异世界捉诡](https://www.shuxiang368.com/book/3qkkaqk/)
 - [人气反派的马甲演绎实录](https://www.shuxiang368.com/book/3qkk9k0/)

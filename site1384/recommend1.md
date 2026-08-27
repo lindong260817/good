@@ -1,18 +1,20 @@
 
 # 积家健康小说 - 无弹窗无广告小说在线阅读
 
-更新时间：2026-08-27 03:23:15
+更新时间：2026-08-28 03:23:46
 
 积家健康小说提供一个干净简洁的平台让您享受无弹窗无广告的小说在线阅读体验。无论是在线阅读还是下载小说，都是完全免费的。
 
 - [积家健康小说](https://www.jijiajk.com/)
 
 ## 最新小说
+- [我有特殊的升官技巧](https://www.jijiajk.com/book/3ab1mos/)
+- [反派人生，易如反掌[快穿]](https://www.jijiajk.com/book/3ab1mlv/)
+- [我真的只会Ctrl啊！！！](https://www.jijiajk.com/book/3ab1ml1/)
 - [无限末日副本：我有移动安全屋](https://www.jijiajk.com/book/3ab1g0o/)
-- [完蛋！被恨孕男包围了！](https://www.jijiajk.com/book/3ab0ilr/)
-- [贵族学院女保安竟是万人迷](https://www.jijiajk.com/book/3aavs5q/)
+- [始皇闺女躺平失败的日子](https://www.jijiajk.com/book/3ab0pjq/)
+- [将妹妹嫁给别人后](https://www.jijiajk.com/book/3aavqka/)
 - [娶了女装心机太子](https://www.jijiajk.com/book/3aauvqi/)
-- [与宿敌他哥契约成婚后](https://www.jijiajk.com/book/3aaug6l/)
 - [人妻O救赎指南](https://www.jijiajk.com/book/3aaubgi/)
 - [在民俗惊悚片被诸神庇护](https://www.jijiajk.com/book/3aatj93/)
 - [本官早知他是狐狸变的](https://www.jijiajk.com/book/3aatj7p/)
@@ -46,7 +48,6 @@
 - [绝色美人模拟器](https://www.jijiajk.com/book/3aatime/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.jijiajk.com/book/3aatike/)
 - [十九世纪贵族厨房（美食）](https://www.jijiajk.com/book/3aatik0/)
-- [她是反派的背景板母亲](https://www.jijiajk.com/book/3aatij4/)
 - [[综英美]穿过你的黑发我的手](https://www.jijiajk.com/book/3aatij3/)
 - [海岛求生：生活玩家种田囤货](https://www.jijiajk.com/book/3aatij1/)
 - [性转成真千金靠写文逆袭了](https://www.jijiajk.com/book/3aatiig/)
@@ -90,7 +91,6 @@
 - [人气反派的马甲演绎实录](https://www.jijiajk.com/book/3aathmg/)
 - [区区精灵[西幻]](https://www.jijiajk.com/book/3aathm8/)
 - [朕看上的少年是侠女](https://www.jijiajk.com/book/3aathl5/)
-- [老公对不起](https://www.jijiajk.com/book/3aathl4/)
 - [断供留子，老公赛级白男](https://www.jijiajk.com/book/3aathkp/)
 - [病弱世子娇养手札](https://www.jijiajk.com/book/3aathk8/)
 - [主角前任他分手分不掉了](https://www.jijiajk.com/book/3aathjf/)
@@ -99,7 +99,6 @@
 - [[希腊神话]基建拯救世界](https://www.jijiajk.com/book/3aathil/)
 - [我是唯一地上神国](https://www.jijiajk.com/book/3aathhu/)
 - [全民求生:从小木屋到魔法农场](https://www.jijiajk.com/book/3aathhe/)
-- [绿茶男来袭（快穿）](https://www.jijiajk.com/book/3aathg7/)
 - [你对寡人的猫有什么意见？](https://www.jijiajk.com/book/3aathfa/)
 - [邻居小孩太有钱[快穿]](https://www.jijiajk.com/book/3aathf0/)
 - [夺友妻（女尊）](https://www.jijiajk.com/book/3aathd1/)
@@ -115,7 +114,6 @@
 - [被四皇错看成小动物后](https://www.jijiajk.com/book/3aath12/)
 - [宿敌为我而死后](https://www.jijiajk.com/book/3aath0k/)
 - [医学大佬在年代文[穿书]](https://www.jijiajk.com/book/3aath03/)
-- [千禧年，拆迁分了十栋楼！](https://www.jijiajk.com/book/3aatgvb/)
 - [六零之成了卷王的妹妹](https://www.jijiajk.com/book/3aatgto/)
 - [迷雾求生，种田玩家也能当榜一？](https://www.jijiajk.com/book/3aatgtf/)
 - [夜莺不渡](https://www.jijiajk.com/book/3aatgsk/)
@@ -156,10 +154,8 @@
 - [越界沉溺](https://www.jijiajk.com/book/3aatg6d/)
 - [是NPC就来和玩家合影](https://www.jijiajk.com/book/3aatg5p/)
 - [清澈女大的六零年代](https://www.jijiajk.com/book/3aatg53/)
-- [暗涌[破镜重圆]](https://www.jijiajk.com/book/3aatg4s/)
 - [红楼之玉成佳事](https://www.jijiajk.com/book/3aatg4p/)
 - [趁她之危](https://www.jijiajk.com/book/3aatg4l/)
-- [喜恶同因[青梅竹马]](https://www.jijiajk.com/book/3aatg4a/)
 - [道长他为何那样](https://www.jijiajk.com/book/3aatg47/)
 - [与冷脸糙汉相亲后](https://www.jijiajk.com/book/3aatg37/)
 - [雇佣毛茸茸开农场](https://www.jijiajk.com/book/3aatg2a/)

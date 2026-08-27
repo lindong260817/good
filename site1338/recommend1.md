@@ -1,13 +1,14 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-08-27 03:21:02
+更新时间：2026-08-28 03:21:26
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。
 
 - [笔下文学](https://www.fshxjd.com/)
 
 ## 最新小说
+- [我真的只会Ctrl啊！！！](https://www.fshxjd.com/book/74i3co6/)
 - [人妻O救赎指南](https://www.fshxjd.com/book/74i3ccl/)
 - [师尊分裂成两个后天天醋自己](https://www.fshxjd.com/book/74i35md/)
 - [宿敌为我而死后](https://www.fshxjd.com/book/74i35mc/)
@@ -74,8 +75,9 @@
 - [漂亮小瞎子捡到直男龙傲天](https://www.fshxjd.com/book/74i32tr/)
 - [七零捡漏日常](https://www.fshxjd.com/book/74i30jo/)
 - [趁她之危](https://www.fshxjd.com/book/74i2odm/)
-- [完蛋！被恨孕男包围了！](https://www.fshxjd.com/book/74i2kha/)
 - [无限末日副本：我有移动安全屋](https://www.fshxjd.com/book/74i2jnn/)
+- [我有特殊的升官技巧](https://www.fshxjd.com/book/74i2dvq/)
+- [反派人生，易如反掌[快穿]](https://www.fshxjd.com/book/74i2ao7/)
 - [假少爷不想活了](https://www.fshxjd.com/book/74i2abl/)
 - [十九世纪贵族厨房（美食）](https://www.fshxjd.com/book/74i1tu2/)
 - [高调装神，猥琐发育](https://www.fshxjd.com/book/74i1qt1/)
@@ -84,17 +86,15 @@
 - [[西幻]玛赫里魔药店经营实录](https://www.fshxjd.com/book/74i1npq/)
 - [[足球]替补门将](https://www.fshxjd.com/book/74i1mbv/)
 - [捡了龙傲天金手指后](https://www.fshxjd.com/book/74i1lcn/)
-- [千禧年，拆迁分了十栋楼！](https://www.fshxjd.com/book/74i1jr3/)
 - [被反派暴君听到心声后[穿书]](https://www.fshxjd.com/book/74i1j78/)
 - [绝色美人模拟器](https://www.fshxjd.com/book/74i1j0a/)
 - [我演的不是漂亮圣子攻吗?](https://www.fshxjd.com/book/74i1grc/)
-- [喜恶同因[青梅竹马]](https://www.fshxjd.com/book/74i1crm/)
+- [始皇闺女躺平失败的日子](https://www.fshxjd.com/book/74i18te/)
 - [[希腊神话]基建拯救世界](https://www.fshxjd.com/book/74i18qa/)
 - [九零首富的替嫁小媳妇](https://www.fshxjd.com/book/74i13mv/)
 - [渣攻必须he（快穿）](https://www.fshxjd.com/book/74i13kh/)
 - [为诡异打工，但反封建迷信](https://www.fshxjd.com/book/74i12vd/)
 - [星际第一女A[穿书]](https://www.fshxjd.com/book/74i103m/)
-- [绿茶男来袭（快穿）](https://www.fshxjd.com/book/74i0vrn/)
 - [你对寡人的猫有什么意见？](https://www.fshxjd.com/book/74i0s2k/)
 - [在民俗惊悚片被诸神庇护](https://www.fshxjd.com/book/74i0pok/)
 - [我是封建大爹的好孕小娇妻](https://www.fshxjd.com/book/74i0p4m/)
@@ -108,7 +108,6 @@
 - [他要和我谈恋爱](https://www.fshxjd.com/book/74i0cqp/)
 - [邻居小孩太有钱[快穿]](https://www.fshxjd.com/book/74i0ccn/)
 - [壮受虫母今天也想逃](https://www.fshxjd.com/book/74i0ca8/)
-- [贵族学院女保安竟是万人迷](https://www.fshxjd.com/book/74i0bos/)
 - [八零恶毒后妈杀疯了](https://www.fshxjd.com/book/74i08g8/)
 - [星露谷，但大秦帝国](https://www.fshxjd.com/book/74i0626/)
 - [[封神]圣人生欲](https://www.fshxjd.com/book/74i053h/)
@@ -117,10 +116,10 @@
 - [京华无尽夏](https://www.fshxjd.com/book/74i036i/)
 - [是NPC就来和玩家合影](https://www.fshxjd.com/book/74i027a/)
 - [纯爱宇智波基本恋爱法](https://www.fshxjd.com/book/74i01di/)
+- [将妹妹嫁给别人后](https://www.fshxjd.com/book/74i00uh/)
 - [被四皇错看成小动物后](https://www.fshxjd.com/book/74hvv7b/)
 - [绝对占有](https://www.fshxjd.com/book/74hvu1o/)
 - [掌中春莺](https://www.fshxjd.com/book/74hvsct/)
-- [暗涌[破镜重圆]](https://www.fshxjd.com/book/74hvoki/)
 - [道长在诡异世界捉诡](https://www.fshxjd.com/book/74hvo02/)
 - [人气反派的马甲演绎实录](https://www.fshxjd.com/book/74hvl5q/)
 - [娶了女装心机太子](https://www.fshxjd.com/book/74hvjlk/)
@@ -137,7 +136,6 @@
 - [魏尔伦猫猫能有什么坏心思呢](https://www.fshxjd.com/book/74hv5su/)
 - [区区精灵[西幻]](https://www.fshxjd.com/book/74hv2qh/)
 - [嘲讽力拉满的我该如何在异世界生活](https://www.fshxjd.com/book/74hv1bg/)
-- [与宿敌他哥契约成婚后](https://www.fshxjd.com/book/74hv18k/)
 - [本官早知他是狐狸变的](https://www.fshxjd.com/book/74hv0i8/)
 - [道长他为何那样](https://www.fshxjd.com/book/74huurn/)
 - [救命！白无常每天都在钓我](https://www.fshxjd.com/book/74huumq/)
@@ -149,7 +147,6 @@
 - [成为养成系练习生后](https://www.fshxjd.com/book/74hu51p/)
 - [大瑛弟国](https://www.fshxjd.com/book/74hu4v1/)
 - [穿成炮灰后我封神了［快穿］](https://www.fshxjd.com/book/74hu4sk/)
-- [她是反派的背景板母亲](https://www.fshxjd.com/book/74hu4o5/)
 - [穿到反派落魄时](https://www.fshxjd.com/book/74hu4mb/)
 - [巨物致富：回乡开钓场](https://www.fshxjd.com/book/74hu4l3/)
 - [五十年代港城日常](https://www.fshxjd.com/book/74hu4g9/)
@@ -158,7 +155,6 @@
 - [95美国贵族高中模拟](https://www.fshxjd.com/book/74hu41o/)
 - [主角前任他分手分不掉了](https://www.fshxjd.com/book/74hu40t/)
 - [我有一座安全城](https://www.fshxjd.com/book/74hu3rs/)
-- [老公对不起](https://www.fshxjd.com/book/74hu3no/)
 - [警察，但犯罪大师系统[刑侦]](https://www.fshxjd.com/book/74hu3nk/)
 - [六零之成了卷王的妹妹](https://www.fshxjd.com/book/74hu3kj/)
 - [全民求生:从小木屋到魔法农场](https://www.fshxjd.com/book/74hu3ha/)

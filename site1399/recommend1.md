@@ -1,7 +1,7 @@
 
 # 佚名奇书小说 - 免费更新的小说阅读网站
 
-更新时间：2026-08-27 03:36:54
+更新时间：2026-08-28 03:38:09
 
 佚名奇书小说提供全网各类热门小说在线阅读服务，支持免费观看。这里汇集了丰富的小说资源，包括但不限于都市、玄幻、武侠等多种类型，并且保证章节更新及时，页面设计清爽无广告干扰，是广大书友不可多得的好去处。
 
@@ -135,10 +135,8 @@
 - [金手指夫妻在六零](https://www.yimingeduai.com/book/6adi67d/)
 - [朕看上的少年是侠女](https://www.yimingeduai.com/book/6adi677/)
 - [夺养媳](https://www.yimingeduai.com/book/6adi674/)
-- [暗涌[破镜重圆]](https://www.yimingeduai.com/book/6adi66s/)
 - [禁止限制文主角转职龙傲天](https://www.yimingeduai.com/book/6adi66n/)
 - [高门小婢](https://www.yimingeduai.com/book/6adi666/)
-- [喜恶同因[青梅竹马]](https://www.yimingeduai.com/book/6adi664/)
 - [夺友妻（女尊）](https://www.yimingeduai.com/book/6adi65m/)
 - [被反派暴君听到心声后[穿书]](https://www.yimingeduai.com/book/6adi63c/)
 - [绝色美人模拟器](https://www.yimingeduai.com/book/6adi62a/)

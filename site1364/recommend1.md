@@ -1,7 +1,7 @@
 
 # 科幻读书-免费小说阅读|言情小说|小说排行榜|全本完本小说下载
 
-更新时间：2026-08-27 03:25:15
+更新时间：2026-08-28 03:25:48
 
 科幻读书提供海量完结全本小说在线阅读服务，涵盖言情、都市、耽美、穿越等多种类型，并定期更新连载章节及发布最新小说排行榜单。支持有声小说推荐与下载。
 
@@ -84,7 +84,6 @@
 - [禁止限制文主角转职龙傲天](https://www.kehuan918.com/book/1d54l24/)
 - [魅魔就不能打网球了吗？](https://www.kehuan918.com/book/1d54ku8/)
 - [[足球]替补门将](https://www.kehuan918.com/book/1d54kii/)
-- [喜恶同因[青梅竹马]](https://www.kehuan918.com/book/1d54k3e/)
 - [我演的不是漂亮圣子攻吗?](https://www.kehuan918.com/book/1d54cb0/)
 - [[希腊神话]基建拯救世界](https://www.kehuan918.com/book/1d548u2/)
 - [九零首富的替嫁小媳妇](https://www.kehuan918.com/book/1d546ro/)
@@ -115,7 +114,6 @@
 - [是NPC就来和玩家合影](https://www.kehuan918.com/book/1d52sr7/)
 - [掌中春莺](https://www.kehuan918.com/book/1d52oet/)
 - [绝对占有](https://www.kehuan918.com/book/1d52oec/)
-- [暗涌[破镜重圆]](https://www.kehuan918.com/book/1d52ms5/)
 - [[综崩铁]你怎么知道我是令使](https://www.kehuan918.com/book/1d52kr0/)
 - [人气反派的马甲演绎实录](https://www.kehuan918.com/book/1d52km8/)
 - [道长在诡异世界捉诡](https://www.kehuan918.com/book/1d52k33/)

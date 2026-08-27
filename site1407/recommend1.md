@@ -1,7 +1,7 @@
 
 # 苏秦家小说网 - 免费在线阅读无弹窗小说
 
-更新时间：2026-08-27 03:32:25
+更新时间：2026-08-28 03:33:12
 
 苏秦家小说网为您提供一个干净、舒适的阅读环境，专注于提供免费且无任何弹窗干扰的小说在线阅读服务。
 
@@ -24,7 +24,6 @@
 - [替嫁后咸鱼继母佛系日常](https://www.suqinjia.com/book/3auueuj/)
 - [你，后室管理员](https://www.suqinjia.com/book/3auuetm/)
 - [神之子严胜](https://www.suqinjia.com/book/3auuet8/)
-- [暗涌[破镜重圆]](https://www.suqinjia.com/book/3auuess/)
 - [绝对占有](https://www.suqinjia.com/book/3auuesp/)
 - [夺友妻（女尊）](https://www.suqinjia.com/book/3auuerb/)
 - [恶毒女配决定去死后](https://www.suqinjia.com/book/3auueon/)
@@ -105,7 +104,6 @@
 - [大瑛弟国](https://www.suqinjia.com/book/3auud79/)
 - [为诡异打工，但反封建迷信](https://www.suqinjia.com/book/3auud77/)
 - [八零恶毒后妈杀疯了](https://www.suqinjia.com/book/3auud6r/)
-- [喜恶同因[青梅竹马]](https://www.suqinjia.com/book/3auud6b/)
 - [误入反派培养直播后](https://www.suqinjia.com/book/3auud44/)
 - [御赐厨娘在九零[古穿今]](https://www.suqinjia.com/book/3auud3u/)
 - [娶了女装心机太子](https://www.suqinjia.com/book/3auud34/)
