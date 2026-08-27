@@ -1,14 +1,14 @@
 
 # 时光树园-热门小说大全-小说排行榜-好看的小说推荐-热门小说推荐
 
-更新时间：2026-08-25 03:23:17
+更新时间：2026-08-27 03:25:29
 
 时光树园是一个热门小说推荐网站，这里有热门全本小说大全、好看的小说推荐、小说排行榜等。您可以在这里无广告在线阅读优质的豪门总裁小说、现代言情小说、古代言情小说、都市小说、穿越小说、玄幻小说、武侠仙侠等各类热门小说。
 
 - [时光树园小说](https://www.kltbl.com/)
 
 ## 最新小说
-- [养父](https://www.kltbl.com/book/5ach2hu/)
+- [我真的只会Ctrl啊！！！](https://www.kltbl.com/book/5ach2q9/)
 - [人妻O救赎指南](https://www.kltbl.com/book/5ach2ar/)
 - [假道姑也要被真强取豪夺吗](https://www.kltbl.com/book/5acgrm3/)
 - [星际团宠小人鱼](https://www.kltbl.com/book/5acgrm2/)
@@ -29,7 +29,7 @@
 - [[综英美]在综恐世界逃生](https://www.kltbl.com/book/5acgrkn/)
 - [[综英美]穿过你的黑发我的手](https://www.kltbl.com/book/5acgrkj/)
 - [海上求生:生活玩家战力爆表](https://www.kltbl.com/book/5acgrkf/)
-- [[综]成年人为什么会成为救世主](https://www.kltbl.com/book/5acgrka/)
+- [[反穿]我的救世主生涯不对劲？](https://www.kltbl.com/book/5acgrka/)
 - [[足球]如此足球，怎能不恨](https://www.kltbl.com/book/5acgrk1/)
 - [红楼之玉成佳事](https://www.kltbl.com/book/5acgrk0/)
 - [[娱乐圈]重生之从编剧开始的快乐生活](https://www.kltbl.com/book/5acgrjv/)
@@ -73,10 +73,11 @@
 - [病弱世子娇养手札](https://www.kltbl.com/book/5acgrgv/)
 - [原配夫人](https://www.kltbl.com/book/5acgrgt/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.kltbl.com/book/5acgoqn/)
-- [暴君的赝品公主](https://www.kltbl.com/book/5acgoep/)
 - [七零捡漏日常](https://www.kltbl.com/book/5acgmf2/)
-- [七零回城女知青[穿书]](https://www.kltbl.com/book/5acgepv/)
 - [趁她之危](https://www.kltbl.com/book/5acgee0/)
+- [无限末日副本：我有移动安全屋](https://www.kltbl.com/book/5acg9pv/)
+- [我有特殊的升官技巧](https://www.kltbl.com/book/5acg3sb/)
+- [反派人生，易如反掌[快穿]](https://www.kltbl.com/book/5acg0rf/)
 - [假少爷不想活了](https://www.kltbl.com/book/5acg0a3/)
 - [十九世纪贵族厨房（美食）](https://www.kltbl.com/book/5acfi7r/)
 - [高调装神，猥琐发育](https://www.kltbl.com/book/5acffu7/)
@@ -85,21 +86,17 @@
 - [[西幻]玛赫里魔药店经营实录](https://www.kltbl.com/book/5acfd9h/)
 - [捡了龙傲天金手指后](https://www.kltbl.com/book/5acfd3b/)
 - [[足球]替补门将](https://www.kltbl.com/book/5acfcnt/)
-- [前女友孩子三岁了](https://www.kltbl.com/book/5acf8pe/)
 - [被反派暴君听到心声后[穿书]](https://www.kltbl.com/book/5acf8fj/)
 - [绝色美人模拟器](https://www.kltbl.com/book/5acf8ba/)
-- [千禧年，拆迁分了十栋楼！](https://www.kltbl.com/book/5acf87s/)
 - [我演的不是漂亮圣子攻吗?](https://www.kltbl.com/book/5acf7p1/)
 - [喜恶同因[青梅竹马]](https://www.kltbl.com/book/5acf3oj/)
+- [始皇闺女躺平失败的日子](https://www.kltbl.com/book/5acev9o/)
 - [[希腊神话]基建拯救世界](https://www.kltbl.com/book/5aceu5t/)
-- [九零首富的替嫁小甜妻](https://www.kltbl.com/book/5acer20/)
+- [九零首富的替嫁小媳妇](https://www.kltbl.com/book/5acer20/)
 - [渣攻必须he（快穿）](https://www.kltbl.com/book/5aceplm/)
 - [为诡异打工，但反封建迷信](https://www.kltbl.com/book/5acep8s/)
-- [绿茶男来袭（快穿）](https://www.kltbl.com/book/5aceln1/)
 - [星际第一女A[穿书]](https://www.kltbl.com/book/5acel53/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.kltbl.com/book/5acejs4/)
 - [你对寡人的猫有什么意见？](https://www.kltbl.com/book/5acejij/)
-- [废太子联盟](https://www.kltbl.com/book/5aceit7/)
 - [闺蜜就不能是妻子吗](https://www.kltbl.com/book/5aceg1d/)
 - [在民俗惊悚片被诸神庇护](https://www.kltbl.com/book/5acefsu/)
 - [我是封建大爹的好孕小娇妻](https://www.kltbl.com/book/5aceeal/)
@@ -119,6 +116,7 @@
 - [[封神]圣人生欲](https://www.kltbl.com/book/5acdpre/)
 - [纯爱宇智波基本恋爱法](https://www.kltbl.com/book/5acdp37/)
 - [京华无尽夏](https://www.kltbl.com/book/5acdog6/)
+- [将妹妹嫁给别人后](https://www.kltbl.com/book/5acdncj/)
 - [是NPC就来和玩家合影](https://www.kltbl.com/book/5acdn68/)
 - [绝对占有](https://www.kltbl.com/book/5acdm3r/)
 - [被四皇错看成小动物后](https://www.kltbl.com/book/5acdlif/)
@@ -126,6 +124,7 @@
 - [暗涌[破镜重圆]](https://www.kltbl.com/book/5acdg44/)
 - [道长在诡异世界捉诡](https://www.kltbl.com/book/5acdev1/)
 - [人气反派的马甲演绎实录](https://www.kltbl.com/book/5acdd49/)
+- [娶了女装心机太子](https://www.kltbl.com/book/5acd8r1/)
 - [惊！S级诡异竟是我自己](https://www.kltbl.com/book/5acd8oo/)
 - [雇佣毛茸茸开农场](https://www.kltbl.com/book/5acd8ll/)
 - [性转成真千金靠写文逆袭了](https://www.kltbl.com/book/5acd8km/)
@@ -137,7 +136,6 @@
 - [巴黎恋人](https://www.kltbl.com/book/5accumd/)
 - [[足球]小甜饼](https://www.kltbl.com/book/5acctk3/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.kltbl.com/book/5accpsr/)
-- [和八个男人身陷瘟疫之地](https://www.kltbl.com/book/5accok3/)
 - [区区精灵[西幻]](https://www.kltbl.com/book/5accnqi/)
 - [本官早知他是狐狸变的](https://www.kltbl.com/book/5accms2/)
 - [嘲讽力拉满的我该如何在异世界生活](https://www.kltbl.com/book/5accm83/)
@@ -166,9 +164,7 @@
 - [我真不是算命的！[香江]](https://www.kltbl.com/book/5acbpks/)
 - [日化人生[科研]](https://www.kltbl.com/book/5acbpk9/)
 - [卧底后被港岛大小姐缠上了](https://www.kltbl.com/book/5acbpj0/)
-- [老公对不起](https://www.kltbl.com/book/5acbp7u/)
 - [全民求生:从小木屋到魔法农场](https://www.kltbl.com/book/5acbp78/)
-- [她是反派的背景板母亲](https://www.kltbl.com/book/5acborm/)
 - [如何扮演源氏重宝](https://www.kltbl.com/book/5acbohs/)
 ## 相关内容
 - [README](/README.md)

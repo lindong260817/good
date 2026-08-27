@@ -1,7 +1,7 @@
 
 # 泡泡中文书社-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-08-25 03:29:26
+更新时间：2026-08-27 03:31:57
 
 泡泡中文书社是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -9,8 +9,7 @@
 
 ## 最新小说
 - [人妻O救赎指南](https://www.shushe818.com/book/29bbclc/)
-- [养父](https://www.shushe818.com/book/29bbckv/)
-- [七零回城女知青[穿书]](https://www.shushe818.com/book/29bb71r/)
+- [无限末日副本：我有移动安全屋](https://www.shushe818.com/book/29bb2ee/)
 - [金手指夫妻在六零](https://www.shushe818.com/book/29bapre/)
 - [你，后室管理员](https://www.shushe818.com/book/29baprb/)
 - [夺友妻（女尊）](https://www.shushe818.com/book/29bapr4/)
@@ -58,7 +57,7 @@
 - [我靠卖盲盒复苏华夏神灵](https://www.shushe818.com/book/29bapit/)
 - [继兄怀孕，孩子是我的](https://www.shushe818.com/book/29bapil/)
 - [云深不知处](https://www.shushe818.com/book/29bapib/)
-- [[综]成年人为什么会成为救世主](https://www.shushe818.com/book/29bapia/)
+- [[反穿]我的救世主生涯不对劲？](https://www.shushe818.com/book/29bapia/)
 - [窃春欢](https://www.shushe818.com/book/29bapi4/)
 - [彭格列的大空](https://www.shushe818.com/book/29bapi3/)
 - [老公你人设是不是崩了](https://www.shushe818.com/book/29baphr/)
@@ -78,7 +77,7 @@
 - [冥王陛下今天睡醒了吗[综英美]](https://www.shushe818.com/book/29bapft/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.shushe818.com/book/29bapfp/)
 - [高调装神，猥琐发育](https://www.shushe818.com/book/29baim3/)
-- [暴君的赝品公主](https://www.shushe818.com/book/29baiii/)
+- [完蛋！被恨孕男包围了！](https://www.shushe818.com/book/29baihm/)
 - [喜恶同因[青梅竹马]](https://www.shushe818.com/book/29ba91a/)
 - [魅魔就不能打网球了吗？](https://www.shushe818.com/book/29ba89j/)
 - [禁止限制文主角转职龙傲天](https://www.shushe818.com/book/29ba7ab/)
@@ -86,13 +85,12 @@
 - [捡了龙傲天金手指后](https://www.shushe818.com/book/29ba6vs/)
 - [我演的不是漂亮圣子攻吗?](https://www.shushe818.com/book/29b9v0g/)
 - [[希腊神话]基建拯救世界](https://www.shushe818.com/book/29b9tc6/)
-- [九零首富的替嫁小甜妻](https://www.shushe818.com/book/29b9p6l/)
+- [九零首富的替嫁小媳妇](https://www.shushe818.com/book/29b9p6l/)
 - [渣攻必须he（快穿）](https://www.shushe818.com/book/29b9j3o/)
 - [为诡异打工，但反封建迷信](https://www.shushe818.com/book/29b9ifm/)
 - [在民俗惊悚片被诸神庇护](https://www.shushe818.com/book/29b9hvu/)
 - [星际第一女A[穿书]](https://www.shushe818.com/book/29b9for/)
 - [你对寡人的猫有什么意见？](https://www.shushe818.com/book/29b9e8v/)
-- [废太子联盟](https://www.shushe818.com/book/29b9e0o/)
 - [绿茶男来袭（快穿）](https://www.shushe818.com/book/29b9cr0/)
 - [闺蜜就不能是妻子吗](https://www.shushe818.com/book/29b9acc/)
 - [我是封建大爹的好孕小娇妻](https://www.shushe818.com/book/29b96mc/)
@@ -107,6 +105,7 @@
 - [被四皇错看成小动物后](https://www.shushe818.com/book/29b8tu9/)
 - [八零恶毒后妈杀疯了](https://www.shushe818.com/book/29b8t5f/)
 - [壮受虫母今天也想逃](https://www.shushe818.com/book/29b8skk/)
+- [贵族学院女保安竟是万人迷](https://www.shushe818.com/book/29b8qou/)
 - [夜偶](https://www.shushe818.com/book/29b8o7m/)
 - [星露谷，但大秦帝国](https://www.shushe818.com/book/29b8nqv/)
 - [至尊法师克拉克[综英美]](https://www.shushe818.com/book/29b8iva/)
@@ -121,6 +120,7 @@
 - [惊！S级诡异竟是我自己](https://www.shushe818.com/book/29b8385/)
 - [雇佣毛茸茸开农场](https://www.shushe818.com/book/29b82fd/)
 - [性转成真千金靠写文逆袭了](https://www.shushe818.com/book/29b82eg/)
+- [娶了女装心机太子](https://www.shushe818.com/book/29b81cl/)
 - [立海大的水仙赛季](https://www.shushe818.com/book/29b807s/)
 - [在赛博世界手搓一座城](https://www.shushe818.com/book/29b7uad/)
 - [趁她之危](https://www.shushe818.com/book/29b7rsu/)
@@ -131,8 +131,8 @@
 - [在尤文图斯养超巨[足球]](https://www.shushe818.com/book/29b7j0t/)
 - [本官早知他是狐狸变的](https://www.shushe818.com/book/29b7i6c/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.shushe818.com/book/29b7hqm/)
-- [和八个男人身陷瘟疫之地](https://www.shushe818.com/book/29b7glu/)
 - [救命！白无常每天都在钓我](https://www.shushe818.com/book/29b7ga9/)
+- [与宿敌他哥契约成婚后](https://www.shushe818.com/book/29b7fkg/)
 - [[西幻]玛赫里魔药店经营实录](https://www.shushe818.com/book/29b7fam/)
 - [区区精灵[西幻]](https://www.shushe818.com/book/29b7f3o/)
 - [道长他为何那样](https://www.shushe818.com/book/29b7c84/)
@@ -144,7 +144,6 @@
 - [御兽师，我打工养你啊](https://www.shushe818.com/book/29b6k3h/)
 - [穿到反派落魄时](https://www.shushe818.com/book/29b6jtk/)
 - [穿成炮灰后我封神了［快穿］](https://www.shushe818.com/book/29b6jrg/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.shushe818.com/book/29b6jpk/)
 - [老公对不起](https://www.shushe818.com/book/29b6joc/)
 - [古代种田养娃日常](https://www.shushe818.com/book/29b6jki/)
 - [猫猫也要养家糊口](https://www.shushe818.com/book/29b6jic/)
@@ -158,7 +157,6 @@
 - [我真不是算命的！[香江]](https://www.shushe818.com/book/29b6ir7/)
 - [绝色美人模拟器](https://www.shushe818.com/book/29b6iip/)
 - [[娱乐圈]过分美丽的她](https://www.shushe818.com/book/29b6ii6/)
-- [前女友孩子三岁了](https://www.shushe818.com/book/29b6igi/)
 - [千禧年，拆迁分了十栋楼！](https://www.shushe818.com/book/29b6ifk/)
 - [我有一座安全城](https://www.shushe818.com/book/29b6idf/)
 - [我是唯一地上神国](https://www.shushe818.com/book/29b6iah/)

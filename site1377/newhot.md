@@ -1,40 +1,41 @@
 
 # 牛魔王JJ电子书 - 小说阅读网, 全本免费完结小说在线阅读及下载
 
-更新时间：2026-08-25 03:25:33
+更新时间：2026-08-27 03:27:51
 
 牛魔王JJ电子书提供精彩小说阅读服务，包括各种类型的小说排行榜、免费好看的小说等。涵盖穿越小说、都市小说、言情小说、玄幻小说等多种类别，支持全本全集完结小说在线阅读以及TXT下载。
 
 - [牛魔王JJ电子书](https://www.nmwjj.com/)
 
 ## 最新小说
-- [失而复得的白月光[快穿]](https://www.nmwjj.com/book/18chpdj/)
-- [[希腊神话]蛇蛇神生美妙](https://www.nmwjj.com/book/18chokm/)
-- [如何正确哄睡暴君](https://www.nmwjj.com/book/18chht8/)
-- [被鬼怪宠爱的漂亮书生](https://www.nmwjj.com/book/18chg2q/)
+- [我的老公是暴君](https://www.nmwjj.com/book/18ciidf/)
+- [五美元在哥谭活一月](https://www.nmwjj.com/book/18chpkv/)
+- [我与龙傲天寿命共享](https://www.nmwjj.com/book/18chmo4/)
+- [绿叶](https://www.nmwjj.com/book/18chllh/)
 - [我不可能舔一个漂亮捞子](https://www.nmwjj.com/book/18chc2d/)
 - [老公是松散生命体](https://www.nmwjj.com/book/18ch9qj/)
 - [简单罗曼史](https://www.nmwjj.com/book/18ch7s0/)
 - [微臣怜惜公主](https://www.nmwjj.com/book/18ch4ma/)
-- [高嫁之后](https://www.nmwjj.com/book/18ch2e9/)
-- [哥你不能不要我](https://www.nmwjj.com/book/18ch0vf/)
-- [被奇犽告白以后](https://www.nmwjj.com/book/18cgt4e/)
+- [沈助理又在隐藏他的超能力](https://www.nmwjj.com/book/18ch2ej/)
+- [同时扮演贵族学院F4和平民校花](https://www.nmwjj.com/book/18cgv3o/)
+- [大美人beta带球跑了](https://www.nmwjj.com/book/18cgpr9/)
+- [直男咒术师的限制级游戏](https://www.nmwjj.com/book/18cgolp/)
+- [多梦你一会儿](https://www.nmwjj.com/book/18cgld5/)
 - [这谁的沙雕二次元心声！](https://www.nmwjj.com/book/18cglbq/)
-- [炮灰的我该如何上位？](https://www.nmwjj.com/book/18cgl0v/)
-- [在魔法世界屯田争霸](https://www.nmwjj.com/book/18cgk18/)
 - [穿为清冷影后的污点A](https://www.nmwjj.com/book/18cgjfg/)
-- [[足球]最佳前锋](https://www.nmwjj.com/book/18cgiuc/)
-- [我司艺人永不塌房](https://www.nmwjj.com/book/18cghhs/)
-- [伪装纨绔，怎么成了名相](https://www.nmwjj.com/book/18cgh80/)
+- [野比春子穿越事件簿](https://www.nmwjj.com/book/18cgj8q/)
 - [井闼山经理每天都被挖墙脚](https://www.nmwjj.com/book/18cgf7v/)
+- [作家与读者](https://www.nmwjj.com/book/18cgeoe/)
+- [[全职高手]问就是没钱](https://www.nmwjj.com/book/18cge22/)
 - [拯救世界从扮演反派开始](https://www.nmwjj.com/book/18cgdu7/)
 - [和前女友的心上人he了](https://www.nmwjj.com/book/18cgdln/)
 - [[足球]罗蜜第一志愿](https://www.nmwjj.com/book/18cgcfg/)
-- [一枝枝怨](https://www.nmwjj.com/book/18cg89m/)
 - [某柯学的正义伙伴](https://www.nmwjj.com/book/18cg6u5/)
-- [幼崽假少爷选择回归寒门](https://www.nmwjj.com/book/18cg6mf/)
+- [[足球]小小鸟堂堂来袭](https://www.nmwjj.com/book/18cg16g/)
+- [法外狂猫](https://www.nmwjj.com/book/18cg0a1/)
+- [好兄弟暴富后非要跟我结婚](https://www.nmwjj.com/book/18cft44/)
+- [和室友他爸恋爱后](https://www.nmwjj.com/book/18cfp7f/)
 - [你，后室管理员](https://www.nmwjj.com/book/18ce6ep/)
-- [在民俗惊悚片被诸神庇护](https://www.nmwjj.com/book/18ce5v2/)
 - [[封神]圣人生欲](https://www.nmwjj.com/book/18ce5p4/)
 - [纯爱宇智波基本恋爱法](https://www.nmwjj.com/book/18ce5ls/)
 - [他要和我谈恋爱](https://www.nmwjj.com/book/18ce5a6/)

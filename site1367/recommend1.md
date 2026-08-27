@@ -1,16 +1,15 @@
 
 # 奇幻笔趣屋 - 书友最值得收藏的网络小说阅读网
 
-更新时间：2026-08-25 03:26:40
+更新时间：2026-08-27 03:29:04
 
 奇幻笔趣屋收录整理最新最全的热门网络小说，提供所有小说首发最新章节免费阅读服务，是书友们最值得收藏的小说阅读网站。
 
 - [奇幻笔趣屋](https://www.qihuan958.com/)
 
 ## 最新小说
-- [养父](https://www.qihuan958.com/book/4rat853/)
 - [人妻O救赎指南](https://www.qihuan958.com/book/4rat83p/)
-- [七零回城女知青[穿书]](https://www.qihuan958.com/book/4rat2n3/)
+- [无限末日副本：我有移动安全屋](https://www.qihuan958.com/book/4rastqr/)
 - [十九世纪贵族厨房（美食）](https://www.qihuan958.com/book/4rasl9q/)
 - [漂亮男知青下乡后](https://www.qihuan958.com/book/4rasl9m/)
 - [林中的黑巫师](https://www.qihuan958.com/book/4rasl9k/)
@@ -52,7 +51,7 @@
 - [被天龙人圈养的老实人](https://www.qihuan958.com/book/4rasl2s/)
 - [病弱世子娇养手札](https://www.qihuan958.com/book/4rasl2o/)
 - [小白花是黑暗向导](https://www.qihuan958.com/book/4rasl2j/)
-- [[综]成年人为什么会成为救世主](https://www.qihuan958.com/book/4rasl2h/)
+- [[反穿]我的救世主生涯不对劲？](https://www.qihuan958.com/book/4rasl2h/)
 - [彭格列的大空](https://www.qihuan958.com/book/4rasl2b/)
 - [恶毒女配决定去死后](https://www.qihuan958.com/book/4rasl27/)
 - [虫族雌兄，你好香啊](https://www.qihuan958.com/book/4rasl24/)
@@ -77,7 +76,7 @@
 - [老公你人设是不是崩了](https://www.qihuan958.com/book/4raskud/)
 - [始乱终弃清冷首辅后](https://www.qihuan958.com/book/4raskub/)
 - [海上求生:生活玩家战力爆表](https://www.qihuan958.com/book/4rasku5/)
-- [暴君的赝品公主](https://www.qihuan958.com/book/4rase0c/)
+- [完蛋！被恨孕男包围了！](https://www.qihuan958.com/book/4rase1v/)
 - [高调装神，猥琐发育](https://www.qihuan958.com/book/4rasdul/)
 - [魅魔就不能打网球了吗？](https://www.qihuan958.com/book/4ras4gv/)
 - [捡了龙傲天金手指后](https://www.qihuan958.com/book/4ras2v7/)
@@ -86,13 +85,12 @@
 - [禁止限制文主角转职龙傲天](https://www.qihuan958.com/book/4ras25u/)
 - [我演的不是漂亮圣子攻吗?](https://www.qihuan958.com/book/4rarqqp/)
 - [[希腊神话]基建拯救世界](https://www.qihuan958.com/book/4rarn78/)
-- [九零首富的替嫁小甜妻](https://www.qihuan958.com/book/4rarjug/)
+- [九零首富的替嫁小媳妇](https://www.qihuan958.com/book/4rarjug/)
 - [为诡异打工，但反封建迷信](https://www.qihuan958.com/book/4rarg27/)
 - [渣攻必须he（快穿）](https://www.qihuan958.com/book/4raregp/)
 - [在民俗惊悚片被诸神庇护](https://www.qihuan958.com/book/4rarc7t/)
 - [星际第一女A[穿书]](https://www.qihuan958.com/book/4rarc7c/)
 - [你对寡人的猫有什么意见？](https://www.qihuan958.com/book/4rarank/)
-- [废太子联盟](https://www.qihuan958.com/book/4rar9l6/)
 - [绿茶男来袭（快穿）](https://www.qihuan958.com/book/4rar9fd/)
 - [闺蜜就不能是妻子吗](https://www.qihuan958.com/book/4rar5g4/)
 - [我是封建大爹的好孕小娇妻](https://www.qihuan958.com/book/4rar4fh/)
@@ -107,6 +105,7 @@
 - [邻居小孩太有钱[快穿]](https://www.qihuan958.com/book/4raqps4/)
 - [壮受虫母今天也想逃](https://www.qihuan958.com/book/4raqoq4/)
 - [八零恶毒后妈杀疯了](https://www.qihuan958.com/book/4raqojb/)
+- [贵族学院女保安竟是万人迷](https://www.qihuan958.com/book/4raql93/)
 - [夜偶](https://www.qihuan958.com/book/4raql64/)
 - [星露谷，但大秦帝国](https://www.qihuan958.com/book/4raqirt/)
 - [至尊法师克拉克[综英美]](https://www.qihuan958.com/book/4raqdkr/)
@@ -119,6 +118,7 @@
 - [人气反派的马甲演绎实录](https://www.qihuan958.com/book/4raq3bh/)
 - [道长在诡异世界捉诡](https://www.qihuan958.com/book/4raq2p5/)
 - [性转成真千金靠写文逆袭了](https://www.qihuan958.com/book/4rapu2q/)
+- [娶了女装心机太子](https://www.qihuan958.com/book/4raptp9/)
 - [惊！S级诡异竟是我自己](https://www.qihuan958.com/book/4raptnl/)
 - [雇佣毛茸茸开农场](https://www.qihuan958.com/book/4rapsk4/)
 - [立海大的水仙赛季](https://www.qihuan958.com/book/4rapr82/)
@@ -131,9 +131,9 @@
 - [魏尔伦猫猫能有什么坏心思呢](https://www.qihuan958.com/book/4rapfrt/)
 - [在尤文图斯养超巨[足球]](https://www.qihuan958.com/book/4rapfqa/)
 - [本官早知他是狐狸变的](https://www.qihuan958.com/book/4rapedj/)
-- [和八个男人身陷瘟疫之地](https://www.qihuan958.com/book/4rapc9j/)
 - [救命！白无常每天都在钓我](https://www.qihuan958.com/book/4rapc8q/)
 - [区区精灵[西幻]](https://www.qihuan958.com/book/4rapbd8/)
+- [与宿敌他哥契约成婚后](https://www.qihuan958.com/book/4rapb9u/)
 - [[西幻]玛赫里魔药店经营实录](https://www.qihuan958.com/book/4rapano/)
 - [道长他为何那样](https://www.qihuan958.com/book/4rap7u7/)
 - [日化人生[科研]](https://www.qihuan958.com/book/4raofs2/)
@@ -142,7 +142,6 @@
 - [95美国贵族高中模拟](https://www.qihuan958.com/book/4raofe7/)
 - [穿成炮灰后我封神了［快穿］](https://www.qihuan958.com/book/4raofbe/)
 - [卧底后被港岛大小姐缠上了](https://www.qihuan958.com/book/4raof9o/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.qihuan958.com/book/4raof8v/)
 - [五十年代港城日常](https://www.qihuan958.com/book/4raof2o/)
 - [被反派暴君听到心声后[穿书]](https://www.qihuan958.com/book/4raof0k/)
 - [[娱乐圈]过分美丽的她](https://www.qihuan958.com/book/4raoesk/)
@@ -159,7 +158,6 @@
 - [穿到反派落魄时](https://www.qihuan958.com/book/4raodsv/)
 - [太宗今天又哭了吗](https://www.qihuan958.com/book/4raodkf/)
 - [清澈女大的六零年代](https://www.qihuan958.com/book/4raodil/)
-- [前女友孩子三岁了](https://www.qihuan958.com/book/4raodc0/)
 - [我真不是算命的！[香江]](https://www.qihuan958.com/book/4raod99/)
 - [巨物致富：回乡开钓场](https://www.qihuan958.com/book/4raod6f/)
 - [纯爱宇智波基本恋爱法](https://www.qihuan958.com/book/4raod64/)

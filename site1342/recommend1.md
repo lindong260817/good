@@ -1,14 +1,13 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-08-25 03:16:01
+更新时间：2026-08-27 03:17:55
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。
 
 - [阿舍岛小说](https://www.ashedao.com/)
 
 ## 最新小说
-- [养父](https://www.ashedao.com/book/99d2vun/)
 - [人妻O救赎指南](https://www.ashedao.com/book/99d2vo9/)
 - [被天龙人圈养的老实人](https://www.ashedao.com/book/99d2p2s/)
 - [窃春欢](https://www.ashedao.com/book/99d2p2r/)
@@ -31,7 +30,7 @@
 - [彭格列的大空](https://www.ashedao.com/book/99d2p1o/)
 - [老公你人设是不是崩了](https://www.ashedao.com/book/99d2p1l/)
 - [从死亡开始的猎人笔记](https://www.ashedao.com/book/99d2p1b/)
-- [[综]成年人为什么会成为救世主](https://www.ashedao.com/book/99d2p18/)
+- [[反穿]我的救世主生涯不对劲？](https://www.ashedao.com/book/99d2p18/)
 - [李师傅拳打好莱坞[六零]](https://www.ashedao.com/book/99d2p15/)
 - [海上求生:生活玩家战力爆表](https://www.ashedao.com/book/99d2p13/)
 - [医学大佬在年代文[穿书]](https://www.ashedao.com/book/99d2p12/)
@@ -73,10 +72,10 @@
 - [夺养媳](https://www.ashedao.com/book/99d2otn/)
 - [[娱乐圈]重生之从编剧开始的快乐生活](https://www.ashedao.com/book/99d2otl/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.ashedao.com/book/99d2m8a/)
-- [暴君的赝品公主](https://www.ashedao.com/book/99d2lvp/)
 - [七零捡漏日常](https://www.ashedao.com/book/99d2ju9/)
-- [七零回城女知青[穿书]](https://www.ashedao.com/book/99d2c3j/)
 - [趁她之危](https://www.ashedao.com/book/99d2bu8/)
+- [完蛋！被恨孕男包围了！](https://www.ashedao.com/book/99d284i/)
+- [无限末日副本：我有移动安全屋](https://www.ashedao.com/book/99d2797/)
 - [假少爷不想活了](https://www.ashedao.com/book/99d1tn0/)
 - [十九世纪贵族厨房（美食）](https://www.ashedao.com/book/99d1go2/)
 - [高调装神，猥琐发育](https://www.ashedao.com/book/99d1e8j/)
@@ -87,19 +86,16 @@
 - [千禧年，拆迁分了十栋楼！](https://www.ashedao.com/book/99d19lv/)
 - [捡了龙傲天金手指后](https://www.ashedao.com/book/99d18lf/)
 - [绝色美人模拟器](https://www.ashedao.com/book/99d1837/)
-- [前女友孩子三岁了](https://www.ashedao.com/book/99d17tp/)
 - [被反派暴君听到心声后[穿书]](https://www.ashedao.com/book/99d16ji/)
 - [我演的不是漂亮圣子攻吗?](https://www.ashedao.com/book/99d14et/)
 - [喜恶同因[青梅竹马]](https://www.ashedao.com/book/99d1237/)
 - [[希腊神话]基建拯救世界](https://www.ashedao.com/book/99d0qas/)
 - [渣攻必须he（快穿）](https://www.ashedao.com/book/99d0ppi/)
-- [九零首富的替嫁小甜妻](https://www.ashedao.com/book/99d0neg/)
+- [九零首富的替嫁小媳妇](https://www.ashedao.com/book/99d0neg/)
 - [为诡异打工，但反封建迷信](https://www.ashedao.com/book/99d0k3h/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.ashedao.com/book/99d0ieu/)
 - [星际第一女A[穿书]](https://www.ashedao.com/book/99d0hq2/)
 - [绿茶男来袭（快穿）](https://www.ashedao.com/book/99d0hig/)
 - [你对寡人的猫有什么意见？](https://www.ashedao.com/book/99d0gk9/)
-- [废太子联盟](https://www.ashedao.com/book/99d0fvk/)
 - [闺蜜就不能是妻子吗](https://www.ashedao.com/book/99d0dup/)
 - [在民俗惊悚片被诸神庇护](https://www.ashedao.com/book/99d0dcf/)
 - [我是封建大爹的好孕小娇妻](https://www.ashedao.com/book/99d0c31/)
@@ -112,6 +108,7 @@
 - [替嫁后咸鱼继母佛系日常](https://www.ashedao.com/book/99d01l1/)
 - [壮受虫母今天也想逃](https://www.ashedao.com/book/99d00ue/)
 - [他要和我谈恋爱](https://www.ashedao.com/book/99d0075/)
+- [贵族学院女保安竟是万人迷](https://www.ashedao.com/book/99cvveu/)
 - [八零恶毒后妈杀疯了](https://www.ashedao.com/book/99cvqva/)
 - [夜偶](https://www.ashedao.com/book/99cvpgd/)
 - [星露谷，但大秦帝国](https://www.ashedao.com/book/99cvpd3/)
@@ -129,6 +126,7 @@
 - [惊！S级诡异竟是我自己](https://www.ashedao.com/book/99cv79n/)
 - [雇佣毛茸茸开农场](https://www.ashedao.com/book/99cv6u0/)
 - [性转成真千金靠写文逆袭了](https://www.ashedao.com/book/99cv6sc/)
+- [娶了女装心机太子](https://www.ashedao.com/book/99cv5t3/)
 - [[综崩铁]你怎么知道我是令使](https://www.ashedao.com/book/99cv4lc/)
 - [在尤文图斯养超巨[足球]](https://www.ashedao.com/book/99cv44o/)
 - [立海大的水仙赛季](https://www.ashedao.com/book/99cv37i/)
@@ -139,8 +137,8 @@
 - [魏尔伦猫猫能有什么坏心思呢](https://www.ashedao.com/book/99cuou2/)
 - [区区精灵[西幻]](https://www.ashedao.com/book/99cum68/)
 - [本官早知他是狐狸变的](https://www.ashedao.com/book/99cul4f/)
+- [与宿敌他哥契约成婚后](https://www.ashedao.com/book/99cujup/)
 - [嘲讽力拉满的我该如何在异世界生活](https://www.ashedao.com/book/99cujr9/)
-- [和八个男人身陷瘟疫之地](https://www.ashedao.com/book/99cujkv/)
 - [救命！白无常每天都在钓我](https://www.ashedao.com/book/99cuih7/)
 - [道长他为何那样](https://www.ashedao.com/book/99cuhsr/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ashedao.com/book/99ctp5o/)

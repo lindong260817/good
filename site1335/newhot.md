@@ -1,45 +1,45 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-08-25 03:21:33
+更新时间：2026-08-27 03:23:45
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。
 
 - [奇书网](https://www.jxbfsz.com/)
 
 ## 最新小说
+- [我有嘉宾](https://www.jxbfsz.com/book/29i1d50/)
+- [从异世界穿回来后](https://www.jxbfsz.com/book/29i1cej/)
 - [你，后室管理员](https://www.jxbfsz.com/book/29i181q/)
 - [夺友妻（女尊）](https://www.jxbfsz.com/book/29i180a/)
 - [星际团宠小人鱼](https://www.jxbfsz.com/book/29i17vc/)
+- [我的老公是暴君](https://www.jxbfsz.com/book/29i0n4i/)
+- [五美元在哥谭活一月](https://www.jxbfsz.com/book/29hvsds/)
 - [高调装神，猥琐发育](https://www.jxbfsz.com/book/29hvs6r/)
-- [幼崽假少爷选择回归寒门](https://www.jxbfsz.com/book/29hvl5v/)
-- [如何正确哄睡暴君](https://www.jxbfsz.com/book/29hvemd/)
-- [[希腊神话]蛇蛇神生美妙](https://www.jxbfsz.com/book/29hvdep/)
-- [失而复得的白月光[快穿]](https://www.jxbfsz.com/book/29hvc5d/)
+- [直男咒术师的限制级游戏](https://www.jxbfsz.com/book/29hvl7t/)
+- [我与龙傲天寿命共享](https://www.jxbfsz.com/book/29hvgeq/)
+- [绿叶](https://www.jxbfsz.com/book/29hvag7/)
 - [我不可能舔一个漂亮捞子](https://www.jxbfsz.com/book/29hv2hj/)
 - [简单罗曼史](https://www.jxbfsz.com/book/29hv1o6/)
-- [在民俗惊悚片被诸神庇护](https://www.jxbfsz.com/book/29hussh/)
-- [被奇犽告白以后](https://www.jxbfsz.com/book/29huqsn/)
-- [高嫁之后](https://www.jxbfsz.com/book/29huj4k/)
-- [[足球]最佳前锋](https://www.jxbfsz.com/book/29huira/)
+- [沈助理又在隐藏他的超能力](https://www.jxbfsz.com/book/29hv1ir/)
+- [野比春子穿越事件簿](https://www.jxbfsz.com/book/29huiv6/)
+- [同时扮演贵族学院F4和平民校花](https://www.jxbfsz.com/book/29huhkj/)
+- [大美人beta带球跑了](https://www.jxbfsz.com/book/29hugrj/)
+- [多梦你一会儿](https://www.jxbfsz.com/book/29hugot/)
 - [微臣怜惜公主](https://www.jxbfsz.com/book/29hugg0/)
 - [他要和我谈恋爱](https://www.jxbfsz.com/book/29huftc/)
-- [伪装纨绔，怎么成了名相](https://www.jxbfsz.com/book/29hufs9/)
-- [哥你不能不要我](https://www.jxbfsz.com/book/29hufj7/)
-- [被鬼怪宠爱的漂亮书生](https://www.jxbfsz.com/book/29hufhb/)
+- [[全职高手]问就是没钱](https://www.jxbfsz.com/book/29huf61/)
+- [作家与读者](https://www.jxbfsz.com/book/29hue5j/)
 - [拯救世界从扮演反派开始](https://www.jxbfsz.com/book/29hud2g/)
-- [炮灰的我该如何上位？](https://www.jxbfsz.com/book/29hucvb/)
 - [这谁的沙雕二次元心声！](https://www.jxbfsz.com/book/29hua9m/)
 - [和前女友的心上人he了](https://www.jxbfsz.com/book/29hua1g/)
 - [[封神]圣人生欲](https://www.jxbfsz.com/book/29hu85n/)
-- [我司艺人永不塌房](https://www.jxbfsz.com/book/29hu7vo/)
 - [某柯学的正义伙伴](https://www.jxbfsz.com/book/29hu68r/)
 - [老公是松散生命体](https://www.jxbfsz.com/book/29hu5mg/)
 - [纯爱宇智波基本恋爱法](https://www.jxbfsz.com/book/29hu5hu/)
-- [一枝枝怨](https://www.jxbfsz.com/book/29hu2v6/)
 - [[足球]罗蜜第一志愿](https://www.jxbfsz.com/book/29hu27p/)
 - [井闼山经理每天都被挖墙脚](https://www.jxbfsz.com/book/29htu83/)
-- [在魔法世界屯田争霸](https://www.jxbfsz.com/book/29hs63r/)
+- [好兄弟暴富后非要跟我结婚](https://www.jxbfsz.com/book/29htjav/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1335/index.md)

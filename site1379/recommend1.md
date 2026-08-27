@@ -1,18 +1,21 @@
 
 # 云南野人山野小说网 - 创意小说与文学作品分享平台
 
-更新时间：2026-08-25 03:34:08
+更新时间：2026-08-27 03:37:06
 
 欢迎来到云南野人山野小说网 - 专注于创意小说和文学作品分享的在线平台。探索精选的小说系列及文学佳作，加入我们，与众多才华横溢的作者交流心得，共同创造美好的阅读旅程。
 
 - [云南野人山野小说网](https://www.ynyrsy.com/)
 
 ## 最新小说
+- [我真的只会Ctrl啊！！！](https://www.ynyrsy.com/book/dfdbvs/)
+- [无限末日副本：我有移动安全屋](https://www.ynyrsy.com/book/dfd56m/)
+- [我有特殊的升官技巧](https://www.ynyrsy.com/book/dfd2jr/)
+- [反派人生，易如反掌[快穿]](https://www.ynyrsy.com/book/dfcv8d/)
 - [人妻O救赎指南](https://www.ynyrsy.com/book/dfcna3/)
-- [养父](https://www.ynyrsy.com/book/dfcn9t/)
-- [七零回城女知青[穿书]](https://www.ynyrsy.com/book/dfcn3l/)
-- [和八个男人身陷瘟疫之地](https://www.ynyrsy.com/book/df9n70/)
-- [暴君的赝品公主](https://www.ynyrsy.com/book/df9n4v/)
+- [始皇闺女躺平失败的日子](https://www.ynyrsy.com/book/dfbvsk/)
+- [将妹妹嫁给别人后](https://www.ynyrsy.com/book/dfb190/)
+- [娶了女装心机太子](https://www.ynyrsy.com/book/dfa6sc/)
 - [道长他为何那样](https://www.ynyrsy.com/book/df9jib/)
 - [卧底后被港岛大小姐缠上了](https://www.ynyrsy.com/book/df8qh4/)
 - [海上求生:生活玩家战力爆表](https://www.ynyrsy.com/book/df8qga/)
@@ -52,7 +55,6 @@
 - [始乱终弃清冷首辅后](https://www.ynyrsy.com/book/df8pkn/)
 - [断供留子，老公赛级白男](https://www.ynyrsy.com/book/df8pi2/)
 - [古代种田养娃日常](https://www.ynyrsy.com/book/df8pgr/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.ynyrsy.com/book/df8pgq/)
 - [六零之成了卷王的妹妹](https://www.ynyrsy.com/book/df8pg6/)
 - [星际第一女A[穿书]](https://www.ynyrsy.com/book/df8pfv/)
 - [[足球]替补门将](https://www.ynyrsy.com/book/df8pfq/)
@@ -70,7 +72,7 @@
 - [开局忽悠煤老板拍偶像剧[九零]](https://www.ynyrsy.com/book/df8p8g/)
 - [巴黎恋人](https://www.ynyrsy.com/book/df8p7n/)
 - [95美国贵族高中模拟](https://www.ynyrsy.com/book/df8p7b/)
-- [九零首富的替嫁小甜妻](https://www.ynyrsy.com/book/df8p6k/)
+- [九零首富的替嫁小媳妇](https://www.ynyrsy.com/book/df8p6k/)
 - [与冷脸糙汉相亲后](https://www.ynyrsy.com/book/df8p66/)
 - [[综崩铁]你怎么知道我是令使](https://www.ynyrsy.com/book/df8p5s/)
 - [[足球]如此足球，怎能不恨](https://www.ynyrsy.com/book/df8p5k/)
@@ -85,7 +87,6 @@
 - [李师傅拳打好莱坞[六零]](https://www.ynyrsy.com/book/df8os9/)
 - [被偏执混血daddy盯上了](https://www.ynyrsy.com/book/df8or9/)
 - [五十年代港城日常](https://www.ynyrsy.com/book/df8oqe/)
-- [老公对不起](https://www.ynyrsy.com/book/df8oqd/)
 - [被四皇错看成小动物后](https://www.ynyrsy.com/book/df8oq3/)
 - [老公你人设是不是崩了](https://www.ynyrsy.com/book/df8oot/)
 - [警察，但犯罪大师系统[刑侦]](https://www.ynyrsy.com/book/df8oor/)
@@ -103,17 +104,14 @@
 - [迷雾求生，种田玩家也能当榜一？](https://www.ynyrsy.com/book/df8ok4/)
 - [[封神]圣人生欲](https://www.ynyrsy.com/book/df8oj6/)
 - [十九世纪贵族厨房（美食）](https://www.ynyrsy.com/book/df8oil/)
-- [她是反派的背景板母亲](https://www.ynyrsy.com/book/df8ohv/)
 - [原配夫人](https://www.ynyrsy.com/book/df8oht/)
 - [和冰山上司隐婚生崽了](https://www.ynyrsy.com/book/df8ohr/)
-- [废太子联盟](https://www.ynyrsy.com/book/df8og2/)
 - [万人嫌他真不想掉马](https://www.ynyrsy.com/book/df8ode/)
-- [绿茶男来袭（快穿）](https://www.ynyrsy.com/book/df8od9/)
 - [我靠卖盲盒复苏华夏神灵](https://www.ynyrsy.com/book/df8oc6/)
 - [穿到反派落魄时](https://www.ynyrsy.com/book/df8oc3/)
 - [美人魔头绑定龙傲天系统后](https://www.ynyrsy.com/book/df8obl/)
 - [清澈女大的六零年代](https://www.ynyrsy.com/book/df8ob1/)
-- [[综]成年人为什么会成为救世主](https://www.ynyrsy.com/book/df8o8s/)
+- [[反穿]我的救世主生涯不对劲？](https://www.ynyrsy.com/book/df8o8s/)
 - [咖啡大亨模拟经营指南](https://www.ynyrsy.com/book/df8o82/)
 - [神之子严胜](https://www.ynyrsy.com/book/df8o74/)
 - [全民求生:从小木屋到魔法农场](https://www.ynyrsy.com/book/df8o6o/)
@@ -147,7 +145,6 @@
 - [八零恶毒后妈杀疯了](https://www.ynyrsy.com/book/df8njj/)
 - [恶犬品德](https://www.ynyrsy.com/book/df8njd/)
 - [夜莺不渡](https://www.ynyrsy.com/book/df8nj7/)
-- [千禧年，拆迁分了十栋楼！](https://www.ynyrsy.com/book/df8nit/)
 - [暗涌[破镜重圆]](https://www.ynyrsy.com/book/df8nim/)
 - [[娱乐圈]过分美丽的她](https://www.ynyrsy.com/book/df8nil/)
 - [七零捡漏日常](https://www.ynyrsy.com/book/df8nih/)
@@ -164,7 +161,6 @@
 - [我和马甲真没在一起](https://www.ynyrsy.com/book/df8nbu/)
 - [[综英美]穿过你的黑发我的手](https://www.ynyrsy.com/book/df8naq/)
 - [巨物致富：回乡开钓场](https://www.ynyrsy.com/book/df8n9u/)
-- [前女友孩子三岁了](https://www.ynyrsy.com/book/df8n9l/)
 - [在尤文图斯养超巨[足球]](https://www.ynyrsy.com/book/df8n94/)
 - [虫族雌兄，你好香啊](https://www.ynyrsy.com/book/df8n8n/)
 - [假少爷不想活了](https://www.ynyrsy.com/book/df8n8e/)
