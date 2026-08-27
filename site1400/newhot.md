@@ -1,20 +1,32 @@
 
 # 都来读小说网 - 免费电子书阅读平台
 
-更新时间：2026-08-27 03:32:27
+更新时间：2026-08-28 03:33:20
 
 都来读小说网提供快速更新的海量免费小说资源，主要以TXT格式为主，致力于为读者带来优质的阅读体验。
 
 - [都来读小说网](https://www.swazs.com/)
 
 ## 最新小说
-- [星际团宠小人鱼](https://www.swazs.com/book/1u7fi8l/)
-- [夺友妻（女尊）](https://www.swazs.com/book/1u7fi49/)
-- [你，后室管理员](https://www.swazs.com/book/1u7fgu9/)
-- [纯爱宇智波基本恋爱法](https://www.swazs.com/book/1u7fgnv/)
-- [他要和我谈恋爱](https://www.swazs.com/book/1u7fg8k/)
-- [[封神]圣人生欲](https://www.swazs.com/book/1u7fg6j/)
-- [高调装神，猥琐发育](https://www.swazs.com/book/1u7fft4/)
+- [[诡秘之主]乌鸦童话](https://www.swazs.com/book/1u7iqn0/)
+- [被天使之王骗婚后[诡秘之主]](https://www.swazs.com/book/1u7ihmo/)
+- [骗失忆死对头修合欢道](https://www.swazs.com/book/1u7igfq/)
+- [就算是龙傲天也不可以[快穿]](https://www.swazs.com/book/1u7ifu8/)
+- [重生后雌君追来了](https://www.swazs.com/book/1u7if26/)
+- [错嫁春笼（先婚后爱）](https://www.swazs.com/book/1u7i5po/)
+- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.swazs.com/book/1u7i3nj/)
+- [与清冷O协议结婚后她失忆了](https://www.swazs.com/book/1u7i2ak/)
+- [侯府打工人](https://www.swazs.com/book/1u7i1ta/)
+- [宝儿楼](https://www.swazs.com/book/1u7hv3a/)
+- [全星际都想吃我做的菜](https://www.swazs.com/book/1u7hul3/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.swazs.com/book/1u7hsi2/)
+- [和饲养的黑蛇恋爱后](https://www.swazs.com/book/1u7hm5k/)
+- [我将双打队友护至身前，自己站桩躺赢](https://www.swazs.com/book/1u7hl4r/)
+- [闺蜜就不能是妻子吗](https://www.swazs.com/book/1u7figf/)
+- [海岛求生：生活玩家种田囤货](https://www.swazs.com/book/1u7fia2/)
+- [我演的不是漂亮圣子攻吗?](https://www.swazs.com/book/1u7fhlv/)
+- [邻居小孩太有钱[快穿]](https://www.swazs.com/book/1u7fggl/)
+- [迷雾求生，种田玩家也能当榜一？](https://www.swazs.com/book/1u7fg79/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1400/index.md)

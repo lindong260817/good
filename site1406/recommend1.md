@@ -1,14 +1,18 @@
 
 # 书迷村-免费高质量网络小说阅读网,热门男生女生小说大全
 
-更新时间：2026-08-27 03:18:09
+更新时间：2026-08-28 03:18:17
 
 书迷村是广大书友最值得收藏的网络小说阅读平台，提供最新最全的男生小说、女生小说以及孟静薇等作者的作品。在这里可以免费阅读到高质量的小说章节内容，是小说爱好者的首选网站。
 
 - [书迷村](https://www.aurorawj.com/)
 
 ## 最新小说
-- [她是反派的背景板母亲](https://www.aurorawj.com/book/3be6o36/)
+- [反派人生，易如反掌[快穿]](https://www.aurorawj.com/book/3be86uu/)
+- [始皇闺女躺平失败的日子](https://www.aurorawj.com/book/3be85id/)
+- [我有特殊的升官技巧](https://www.aurorawj.com/book/3be85at/)
+- [我真的只会Ctrl啊！！！](https://www.aurorawj.com/book/3be84rb/)
+- [将妹妹嫁给别人后](https://www.aurorawj.com/book/3be849b/)
 - [趁她之危](https://www.aurorawj.com/book/3be6o1u/)
 - [区区精灵[西幻]](https://www.aurorawj.com/book/3be6o1j/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.aurorawj.com/book/3be6o12/)
@@ -20,7 +24,6 @@
 - [六零之成了卷王的妹妹](https://www.aurorawj.com/book/3be6nu8/)
 - [是NPC就来和玩家合影](https://www.aurorawj.com/book/3be6nti/)
 - [壮受虫母今天也想逃](https://www.aurorawj.com/book/3be6ntb/)
-- [老公对不起](https://www.aurorawj.com/book/3be6nt5/)
 - [我有一座安全城](https://www.aurorawj.com/book/3be6ns3/)
 - [十九世纪贵族厨房（美食）](https://www.aurorawj.com/book/3be6nrr/)
 - [我是唯一地上神国](https://www.aurorawj.com/book/3be6nqu/)
@@ -28,7 +31,6 @@
 - [人气反派的马甲演绎实录](https://www.aurorawj.com/book/3be6nq5/)
 - [京华无尽夏](https://www.aurorawj.com/book/3be6no4/)
 - [冥王陛下今天睡醒了吗[综英美]](https://www.aurorawj.com/book/3be6nnp/)
-- [绿茶男来袭（快穿）](https://www.aurorawj.com/book/3be6nnl/)
 - [成为养成系练习生后](https://www.aurorawj.com/book/3be6nnb/)
 - [九零首富的替嫁小媳妇](https://www.aurorawj.com/book/3be6nn8/)
 - [魅魔就不能打网球了吗？](https://www.aurorawj.com/book/3be6nn6/)
@@ -54,10 +56,8 @@
 - [当咒术高专来了个杀鬼道士](https://www.aurorawj.com/book/3be6n4e/)
 - [红楼之玉成佳事](https://www.aurorawj.com/book/3be6n3a/)
 - [主角前任他分手分不掉了](https://www.aurorawj.com/book/3be6n27/)
-- [暗涌[破镜重圆]](https://www.aurorawj.com/book/3be6n1o/)
 - [高三一班[无限]](https://www.aurorawj.com/book/3be6n1f/)
 - [我家刀男不可能是诡异BOSS](https://www.aurorawj.com/book/3be6n1a/)
-- [完蛋！被恨孕男包围了！](https://www.aurorawj.com/book/3be6n16/)
 - [我靠卖盲盒复苏华夏神灵](https://www.aurorawj.com/book/3be6n11/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.aurorawj.com/book/3be6n0k/)
 - [穿到反派落魄时](https://www.aurorawj.com/book/3be6n07/)
@@ -77,7 +77,6 @@
 - [巨物致富：回乡开钓场](https://www.aurorawj.com/book/3be6moq/)
 - [虫族雌兄，你好香啊](https://www.aurorawj.com/book/3be6mnt/)
 - [[封神]圣人生欲](https://www.aurorawj.com/book/3be6mnk/)
-- [与宿敌他哥契约成婚后](https://www.aurorawj.com/book/3be6mn5/)
 - [[希腊神话]基建拯救世界](https://www.aurorawj.com/book/3be6mn0/)
 - [纯爱宇智波基本恋爱法](https://www.aurorawj.com/book/3be6mmn/)
 - [假道姑也要被真强取豪夺吗](https://www.aurorawj.com/book/3be6mm8/)
@@ -91,7 +90,6 @@
 - [漂亮男知青下乡后](https://www.aurorawj.com/book/3be6me2/)
 - [[足球]小甜饼](https://www.aurorawj.com/book/3be6me0/)
 - [惊！S级诡异竟是我自己](https://www.aurorawj.com/book/3be6mda/)
-- [贵族学院女保安竟是万人迷](https://www.aurorawj.com/book/3be6md7/)
 - [在柯学世界装路人失败后](https://www.aurorawj.com/book/3be6md6/)
 - [被天龙人圈养的老实人](https://www.aurorawj.com/book/3be6mcn/)
 - [迷雾求生，种田玩家也能当榜一？](https://www.aurorawj.com/book/3be6mcd/)
@@ -138,10 +136,8 @@
 - [我真不是算命的！[香江]](https://www.aurorawj.com/book/3be6lj4/)
 - [高调装神，猥琐发育](https://www.aurorawj.com/book/3be6li2/)
 - [在尤文图斯养超巨[足球]](https://www.aurorawj.com/book/3be6lha/)
-- [千禧年，拆迁分了十栋楼！](https://www.aurorawj.com/book/3be6lh7/)
 - [人妻O救赎指南](https://www.aurorawj.com/book/3be6lg3/)
 - [我是封建大爹的好孕小娇妻](https://www.aurorawj.com/book/3be6ld9/)
-- [喜恶同因[青梅竹马]](https://www.aurorawj.com/book/3be6ld7/)
 - [木叶RPG，恋爱系物语](https://www.aurorawj.com/book/3be6lce/)
 - [雇佣毛茸茸开农场](https://www.aurorawj.com/book/3be6lc0/)
 - [本官早知他是狐狸变的](https://www.aurorawj.com/book/3be6lbi/)

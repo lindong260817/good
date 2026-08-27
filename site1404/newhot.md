@@ -1,20 +1,32 @@
 
 # 小顽童寻书网-最热门的免费小说阅读平台|全本玄幻言情网游穿越都市小说在线阅读
 
-更新时间：2026-08-27 03:36:34
+更新时间：2026-08-28 03:37:44
 
 小顽童寻书网提供一个无广告、无弹窗干扰的环境，让您享受纯净的小说阅读体验。涵盖玄幻、网游、言情、穿越、都市等多种类型的小说资源，在这里可以找到最新的章节更新以及完整的书籍内容。
 
 - [小顽童寻书网](https://www.xwt999.com/)
 
 ## 最新小说
-- [高调装神，猥琐发育](https://www.xwt999.com/book/1u5igkh/)
-- [纯爱宇智波基本恋爱法](https://www.xwt999.com/book/1u5igfk/)
-- [他要和我谈恋爱](https://www.xwt999.com/book/1u5igeb/)
-- [你，后室管理员](https://www.xwt999.com/book/1u5igd7/)
-- [夺友妻（女尊）](https://www.xwt999.com/book/1u5ifs5/)
-- [[封神]圣人生欲](https://www.xwt999.com/book/1u5ierl/)
-- [星际团宠小人鱼](https://www.xwt999.com/book/1u5ieem/)
+- [[诡秘之主]乌鸦童话](https://www.xwt999.com/book/1u5lqjk/)
+- [被天使之王骗婚后[诡秘之主]](https://www.xwt999.com/book/1u5lh6a/)
+- [骗失忆死对头修合欢道](https://www.xwt999.com/book/1u5lere/)
+- [重生后雌君追来了](https://www.xwt999.com/book/1u5leke/)
+- [就算是龙傲天也不可以[快穿]](https://www.xwt999.com/book/1u5le8l/)
+- [错嫁春笼（先婚后爱）](https://www.xwt999.com/book/1u5l40a/)
+- [与清冷O协议结婚后她失忆了](https://www.xwt999.com/book/1u5l2n4/)
+- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.xwt999.com/book/1u5l2ef/)
+- [侯府打工人](https://www.xwt999.com/book/1u5l0gt/)
+- [宝儿楼](https://www.xwt999.com/book/1u5kuk3/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.xwt999.com/book/1u5kt2i/)
+- [全星际都想吃我做的菜](https://www.xwt999.com/book/1u5kr2l/)
+- [和饲养的黑蛇恋爱后](https://www.xwt999.com/book/1u5kjqg/)
+- [我将双打队友护至身前，自己站桩躺赢](https://www.xwt999.com/book/1u5kic8/)
+- [闺蜜就不能是妻子吗](https://www.xwt999.com/book/1u5ihan/)
+- [邻居小孩太有钱[快穿]](https://www.xwt999.com/book/1u5ifri/)
+- [海岛求生：生活玩家种田囤货](https://www.xwt999.com/book/1u5ife7/)
+- [迷雾求生，种田玩家也能当榜一？](https://www.xwt999.com/book/1u5if9f/)
+- [我演的不是漂亮圣子攻吗?](https://www.xwt999.com/book/1u5ieeq/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1404/index.md)
