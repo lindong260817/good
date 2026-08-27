@@ -1,18 +1,19 @@
 
 # 积家健康小说 - 无弹窗无广告小说在线阅读
 
-更新时间：2026-08-25 03:21:09
+更新时间：2026-08-27 03:23:15
 
 积家健康小说提供一个干净简洁的平台让您享受无弹窗无广告的小说在线阅读体验。无论是在线阅读还是下载小说，都是完全免费的。
 
 - [积家健康小说](https://www.jijiajk.com/)
 
 ## 最新小说
-- [暴君的赝品公主](https://www.jijiajk.com/book/3aaud3k/)
-- [养父](https://www.jijiajk.com/book/3aaucuh/)
-- [七零回城女知青[穿书]](https://www.jijiajk.com/book/3aaubu7/)
+- [无限末日副本：我有移动安全屋](https://www.jijiajk.com/book/3ab1g0o/)
+- [完蛋！被恨孕男包围了！](https://www.jijiajk.com/book/3ab0ilr/)
+- [贵族学院女保安竟是万人迷](https://www.jijiajk.com/book/3aavs5q/)
+- [娶了女装心机太子](https://www.jijiajk.com/book/3aauvqi/)
+- [与宿敌他哥契约成婚后](https://www.jijiajk.com/book/3aaug6l/)
 - [人妻O救赎指南](https://www.jijiajk.com/book/3aaubgi/)
-- [和八个男人身陷瘟疫之地](https://www.jijiajk.com/book/3aaub5g/)
 - [在民俗惊悚片被诸神庇护](https://www.jijiajk.com/book/3aatj93/)
 - [本官早知他是狐狸变的](https://www.jijiajk.com/book/3aatj7p/)
 - [警察，但犯罪大师系统[刑侦]](https://www.jijiajk.com/book/3aatj63/)
@@ -30,7 +31,7 @@
 - [[足球]家里到底有谁在啊你说清楚！](https://www.jijiajk.com/book/3aatisi/)
 - [假少爷不想活了](https://www.jijiajk.com/book/3aatisa/)
 - [我靠卖盲盒复苏华夏神灵](https://www.jijiajk.com/book/3aatis0/)
-- [九零首富的替嫁小甜妻](https://www.jijiajk.com/book/3aatirm/)
+- [九零首富的替嫁小媳妇](https://www.jijiajk.com/book/3aatirm/)
 - [纯爱宇智波基本恋爱法](https://www.jijiajk.com/book/3aatiri/)
 - [八零恶毒后妈杀疯了](https://www.jijiajk.com/book/3aatirf/)
 - [夺养媳](https://www.jijiajk.com/book/3aatir7/)
@@ -56,7 +57,7 @@
 - [魅魔就不能打网球了吗？](https://www.jijiajk.com/book/3aatido/)
 - [嘲讽力拉满的我该如何在异世界生活](https://www.jijiajk.com/book/3aatid1/)
 - [把讨厌的师兄写进限制文后](https://www.jijiajk.com/book/3aaticb/)
-- [[综]成年人为什么会成为救世主](https://www.jijiajk.com/book/3aatic7/)
+- [[反穿]我的救世主生涯不对劲？](https://www.jijiajk.com/book/3aatic7/)
 - [为诡异打工，但反封建迷信](https://www.jijiajk.com/book/3aatibj/)
 - [和冰山上司隐婚生崽了](https://www.jijiajk.com/book/3aatibg/)
 - [日化人生[科研]](https://www.jijiajk.com/book/3aatibf/)
@@ -70,7 +71,6 @@
 - [至尊法师克拉克[综英美]](https://www.jijiajk.com/book/3aati60/)
 - [始乱终弃清冷首辅后](https://www.jijiajk.com/book/3aati43/)
 - [[足球]小甜饼](https://www.jijiajk.com/book/3aati40/)
-- [废太子联盟](https://www.jijiajk.com/book/3aati3e/)
 - [太宗今天又哭了吗](https://www.jijiajk.com/book/3aati2n/)
 - [我家刀男不可能是诡异BOSS](https://www.jijiajk.com/book/3aati27/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.jijiajk.com/book/3aati1u/)
@@ -87,7 +87,6 @@
 - [他要和我谈恋爱](https://www.jijiajk.com/book/3aatho2/)
 - [壮受虫母今天也想逃](https://www.jijiajk.com/book/3aathnd/)
 - [五十年代港城日常](https://www.jijiajk.com/book/3aathn2/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.jijiajk.com/book/3aathmt/)
 - [人气反派的马甲演绎实录](https://www.jijiajk.com/book/3aathmg/)
 - [区区精灵[西幻]](https://www.jijiajk.com/book/3aathm8/)
 - [朕看上的少年是侠女](https://www.jijiajk.com/book/3aathl5/)
@@ -128,7 +127,6 @@
 - [在柯学世界装路人失败后](https://www.jijiajk.com/book/3aatgpk/)
 - [巫女的乱世逃荒记](https://www.jijiajk.com/book/3aatgnm/)
 - [越前的排球RPG](https://www.jijiajk.com/book/3aatgni/)
-- [前女友孩子三岁了](https://www.jijiajk.com/book/3aatgm4/)
 - [神之子严胜](https://www.jijiajk.com/book/3aatglu/)
 - [捡了龙傲天金手指后](https://www.jijiajk.com/book/3aatgll/)
 - [大瑛弟国](https://www.jijiajk.com/book/3aatgkh/)

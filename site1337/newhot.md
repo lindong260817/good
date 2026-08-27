@@ -1,45 +1,45 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-25 03:17:45
+更新时间：2026-08-27 03:19:49
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
 - [随梦小说网](https://www.cq082.com/)
 
 ## 最新小说
+- [我有嘉宾](https://www.cq082.com/book/1sdf52s/)
+- [从异世界穿回来后](https://www.cq082.com/book/1sdf4es/)
 - [你，后室管理员](https://www.cq082.com/book/1sdf02p/)
 - [星际团宠小人鱼](https://www.cq082.com/book/1sdf00k/)
 - [夺友妻（女尊）](https://www.cq082.com/book/1sdevvu/)
+- [我的老公是暴君](https://www.cq082.com/book/1sdef1o/)
 - [高调装神，猥琐发育](https://www.cq082.com/book/1sddldh/)
-- [幼崽假少爷选择回归寒门](https://www.cq082.com/book/1sddfon/)
-- [如何正确哄睡暴君](https://www.cq082.com/book/1sdd5hl/)
-- [[希腊神话]蛇蛇神生美妙](https://www.cq082.com/book/1sdd4nt/)
-- [失而复得的白月光[快穿]](https://www.cq082.com/book/1sdd42b/)
+- [五美元在哥谭活一月](https://www.cq082.com/book/1sddjqc/)
+- [直男咒术师的限制级游戏](https://www.cq082.com/book/1sddd6r/)
+- [我与龙傲天寿命共享](https://www.cq082.com/book/1sdd9h3/)
+- [绿叶](https://www.cq082.com/book/1sdd0u9/)
 - [我不可能舔一个漂亮捞子](https://www.cq082.com/book/1sdcr05/)
 - [简单罗曼史](https://www.cq082.com/book/1sdcqrl/)
-- [被奇犽告白以后](https://www.cq082.com/book/1sdcl49/)
-- [在民俗惊悚片被诸神庇护](https://www.cq082.com/book/1sdcins/)
-- [[足球]最佳前锋](https://www.cq082.com/book/1sdcc6k/)
-- [高嫁之后](https://www.cq082.com/book/1sdcb41/)
-- [伪装纨绔，怎么成了名相](https://www.cq082.com/book/1sdc901/)
-- [哥你不能不要我](https://www.cq082.com/book/1sdc8a5/)
+- [沈助理又在隐藏他的超能力](https://www.cq082.com/book/1sdcooh/)
+- [同时扮演贵族学院F4和平民校花](https://www.cq082.com/book/1sdcbht/)
+- [野比春子穿越事件簿](https://www.cq082.com/book/1sdca8b/)
+- [多梦你一会儿](https://www.cq082.com/book/1sdc92f/)
+- [大美人beta带球跑了](https://www.cq082.com/book/1sdc8pn/)
 - [他要和我谈恋爱](https://www.cq082.com/book/1sdc84h/)
-- [被鬼怪宠爱的漂亮书生](https://www.cq082.com/book/1sdc7bg/)
 - [微臣怜惜公主](https://www.cq082.com/book/1sdc6r4/)
+- [[全职高手]问就是没钱](https://www.cq082.com/book/1sdc6lo/)
 - [拯救世界从扮演反派开始](https://www.cq082.com/book/1sdc4f3/)
-- [炮灰的我该如何上位？](https://www.cq082.com/book/1sdc4el/)
+- [作家与读者](https://www.cq082.com/book/1sdc474/)
 - [和前女友的心上人he了](https://www.cq082.com/book/1sdc1ek/)
 - [这谁的沙雕二次元心声！](https://www.cq082.com/book/1sdc174/)
-- [我司艺人永不塌房](https://www.cq082.com/book/1sdbuje/)
 - [某柯学的正义伙伴](https://www.cq082.com/book/1sdbu07/)
 - [[封神]圣人生欲](https://www.cq082.com/book/1sdbtuo/)
 - [老公是松散生命体](https://www.cq082.com/book/1sdbtcc/)
 - [纯爱宇智波基本恋爱法](https://www.cq082.com/book/1sdbrua/)
-- [一枝枝怨](https://www.cq082.com/book/1sdbrov/)
 - [[足球]罗蜜第一志愿](https://www.cq082.com/book/1sdbpej/)
 - [井闼山经理每天都被挖墙脚](https://www.cq082.com/book/1sdbnoh/)
-- [在魔法世界屯田争霸](https://www.cq082.com/book/1sd9vm3/)
+- [好兄弟暴富后非要跟我结婚](https://www.cq082.com/book/1sdbbna/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1337/index.md)

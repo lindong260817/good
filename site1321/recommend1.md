@@ -1,14 +1,13 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-08-25 03:18:28
+更新时间：2026-08-27 03:20:32
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
 - [读者香书小说](https://www.duzhe888.com/)
 
 ## 最新小说
-- [养父](https://www.duzhe888.com/book/2koep90/)
 - [[足球]小甜饼](https://www.duzhe888.com/book/2koep8u/)
 - [冥王陛下今天睡醒了吗[综英美]](https://www.duzhe888.com/book/2koep8t/)
 - [[足球]如此足球，怎能不恨](https://www.duzhe888.com/book/2koep8s/)
@@ -24,7 +23,7 @@
 - [[综英美]在综恐世界逃生](https://www.duzhe888.com/book/2koep8h/)
 - [玄意未尽时 [穿书]](https://www.duzhe888.com/book/2koep8g/)
 - [[综崩铁]你怎么知道我是令使](https://www.duzhe888.com/book/2koep8f/)
-- [[综]成年人为什么会成为救世主](https://www.duzhe888.com/book/2koep8e/)
+- [[反穿]我的救世主生涯不对劲？](https://www.duzhe888.com/book/2koep8e/)
 - [漂亮男知青下乡后](https://www.duzhe888.com/book/2koep8d/)
 - [夺养媳](https://www.duzhe888.com/book/2koep8c/)
 - [神之子严胜](https://www.duzhe888.com/book/2koep8b/)
@@ -66,7 +65,7 @@
 - [我不是正夫吗？](https://www.duzhe888.com/book/2koep75/)
 - [宿敌为我而死后](https://www.duzhe888.com/book/2koep73/)
 - [开局忽悠煤老板拍偶像剧[九零]](https://www.duzhe888.com/book/2koep72/)
-- [九零首富的替嫁小甜妻](https://www.duzhe888.com/book/2koep71/)
+- [九零首富的替嫁小媳妇](https://www.duzhe888.com/book/2koep71/)
 - [断供留子，老公赛级白男](https://www.duzhe888.com/book/2koep70/)
 - [你，后室管理员](https://www.duzhe888.com/book/2koep6v/)
 - [救命！白无常每天都在钓我](https://www.duzhe888.com/book/2koep6u/)
@@ -80,12 +79,10 @@
 - [[封神]圣人生欲](https://www.duzhe888.com/book/2koep6l/)
 - [红楼之玉成佳事](https://www.duzhe888.com/book/2koep6k/)
 - [御赐厨娘在九零[古穿今]](https://www.duzhe888.com/book/2koep6j/)
-- [暴君的赝品公主](https://www.duzhe888.com/book/2koep6h/)
 - [高调装神，猥琐发育](https://www.duzhe888.com/book/2koep6g/)
 - [假少爷不想活了](https://www.duzhe888.com/book/2koep6e/)
 - [纯爱宇智波基本恋爱法](https://www.duzhe888.com/book/2koep3s/)
 - [千禧年，拆迁分了十栋楼！](https://www.duzhe888.com/book/2koep3o/)
-- [和八个男人身陷瘟疫之地](https://www.duzhe888.com/book/2koeo9h/)
 - [六零之成了卷王的妹妹](https://www.duzhe888.com/book/2koenpq/)
 - [道长他为何那样](https://www.duzhe888.com/book/2koenph/)
 - [古代种田养娃日常](https://www.duzhe888.com/book/2kodogu/)
@@ -94,7 +91,7 @@
 - [老公对不起](https://www.duzhe888.com/book/2kodauo/)
 - [主角前任他分手分不掉了](https://www.duzhe888.com/book/2kod35a/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.duzhe888.com/book/2kocor0/)
-- [七零回城女知青[穿书]](https://www.duzhe888.com/book/2koclh6/)
+- [无限末日副本：我有移动安全屋](https://www.duzhe888.com/book/2kocgv5/)
 - [御兽师，我打工养你啊](https://www.duzhe888.com/book/2koc8t2/)
 - [穿成炮灰后我封神了［快穿］](https://www.duzhe888.com/book/2kobus9/)
 - [七零捡漏日常](https://www.duzhe888.com/book/2kobum4/)
@@ -110,15 +107,12 @@
 - [我演的不是漂亮圣子攻吗?](https://www.duzhe888.com/book/2kob7ts/)
 - [禁止限制文主角转职龙傲天](https://www.duzhe888.com/book/2kob73k/)
 - [渣攻必须he（快穿）](https://www.duzhe888.com/book/2kob2br/)
-- [前女友孩子三岁了](https://www.duzhe888.com/book/8fa567/)
 - [她是反派的背景板母亲](https://www.duzhe888.com/book/8fa564/)
 - [喜恶同因[青梅竹马]](https://www.duzhe888.com/book/8fa30i/)
 - [星际第一女A[穿书]](https://www.duzhe888.com/book/8f9vol/)
 - [绿茶男来袭（快穿）](https://www.duzhe888.com/book/8f9uqv/)
 - [成为养成系练习生后](https://www.duzhe888.com/book/8f9ts8/)
 - [你对寡人的猫有什么意见？](https://www.duzhe888.com/book/8f9pti/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.duzhe888.com/book/8f9pl7/)
-- [废太子联盟](https://www.duzhe888.com/book/8f9o4a/)
 - [木叶RPG，恋爱系物语](https://www.duzhe888.com/book/8f9nmu/)
 - [为诡异打工，但反封建迷信](https://www.duzhe888.com/book/8f9nf2/)
 - [闺蜜就不能是妻子吗](https://www.duzhe888.com/book/8f9neq/)
@@ -128,6 +122,7 @@
 - [邻居小孩太有钱[快穿]](https://www.duzhe888.com/book/8f9hna/)
 - [太宗今天又哭了吗](https://www.duzhe888.com/book/8f9gu1/)
 - [壮受虫母今天也想逃](https://www.duzhe888.com/book/8f9el8/)
+- [贵族学院女保安竟是万人迷](https://www.duzhe888.com/book/8f9c43/)
 - [至尊法师克拉克[综英美]](https://www.duzhe888.com/book/8f95e4/)
 - [京华无尽夏](https://www.duzhe888.com/book/8f9596/)
 - [夜偶](https://www.duzhe888.com/book/8f93bh/)
@@ -141,6 +136,7 @@
 - [暗涌[破镜重圆]](https://www.duzhe888.com/book/8f8pft/)
 - [误入反派培养直播后](https://www.duzhe888.com/book/8f8ogo/)
 - [性转成真千金靠写文逆袭了](https://www.duzhe888.com/book/8f8m6j/)
+- [娶了女装心机太子](https://www.duzhe888.com/book/8f8m2k/)
 - [立海大的水仙赛季](https://www.duzhe888.com/book/8f8kpr/)
 - [雇佣毛茸茸开农场](https://www.duzhe888.com/book/8f8itk/)
 - [八零恶毒后妈杀疯了](https://www.duzhe888.com/book/8f8hit/)
@@ -151,6 +147,7 @@
 - [在民俗惊悚片被诸神庇护](https://www.duzhe888.com/book/8f8a5n/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.duzhe888.com/book/8f88vs/)
 - [本官早知他是狐狸变的](https://www.duzhe888.com/book/8f8757/)
+- [与宿敌他哥契约成婚后](https://www.duzhe888.com/book/8f86fg/)
 - [区区精灵[西幻]](https://www.duzhe888.com/book/8f860k/)
 - [如何扮演源氏重宝](https://www.duzhe888.com/book/r404c/)
 - [猫猫也要养家糊口](https://www.duzhe888.com/book/r3vsf/)
@@ -163,6 +160,7 @@
 - [[娱乐圈]过分美丽的她](https://www.duzhe888.com/book/r3v0d/)
 - [清澈女大的六零年代](https://www.duzhe888.com/book/r3uqd/)
 - [替嫁后咸鱼继母佛系日常](https://www.duzhe888.com/book/r3unf/)
+- [完蛋！被恨孕男包围了！](https://www.duzhe888.com/book/r3ugo/)
 - [全民求生:从小木屋到魔法农场](https://www.duzhe888.com/book/r3ufs/)
 - [海岛求生：生活玩家种田囤货](https://www.duzhe888.com/book/r3uds/)
 - [穿到反派落魄时](https://www.duzhe888.com/book/r3udj/)

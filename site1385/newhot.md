@@ -1,31 +1,44 @@
 
 # 宁波慈绿农垦小说-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-08-25 03:25:26
+更新时间：2026-08-27 03:27:39
 
 宁波慈绿农垦小说提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
 - [宁波慈绿农垦小说](https://www.nbcxnk.com/)
 
 ## 最新小说
-- [哥你不能不要我](https://www.nbcxnk.com/book/2sruiap/)
-- [被奇犽告白以后](https://www.nbcxnk.com/book/2sruf7g/)
+- [五美元在哥谭活一月](https://www.nbcxnk.com/book/2srv7t6/)
+- [我与龙傲天寿命共享](https://www.nbcxnk.com/book/2srv5k6/)
+- [绿叶](https://www.nbcxnk.com/book/2srv5er/)
+- [我不可能舔一个漂亮捞子](https://www.nbcxnk.com/book/2srv0vr/)
+- [简单罗曼史](https://www.nbcxnk.com/book/2srurbe/)
+- [老公是松散生命体](https://www.nbcxnk.com/book/2srupu7/)
+- [微臣怜惜公主](https://www.nbcxnk.com/book/2srupn1/)
+- [全世界名为爱的恶意](https://www.nbcxnk.com/book/2srulhg/)
+- [小猫商店，喜欢您来！](https://www.nbcxnk.com/book/2srul28/)
+- [豪门养子怀了大哥的崽](https://www.nbcxnk.com/book/2srukqi/)
+- [同时扮演贵族学院F4和平民校花](https://www.nbcxnk.com/book/2sruifi/)
+- [沈助理又在隐藏他的超能力](https://www.nbcxnk.com/book/2srughg/)
+- [大美人beta带球跑了](https://www.nbcxnk.com/book/2srudr9/)
+- [直男咒术师的限制级游戏](https://www.nbcxnk.com/book/2sru93k/)
 - [这谁的沙雕二次元心声！](https://www.nbcxnk.com/book/2sru6v7/)
-- [我司艺人永不塌房](https://www.nbcxnk.com/book/2sru6dg/)
-- [[足球]最佳前锋](https://www.nbcxnk.com/book/2sru2nb/)
+- [多梦你一会儿](https://www.nbcxnk.com/book/2sru57h/)
+- [野比春子穿越事件簿](https://www.nbcxnk.com/book/2sru3r2/)
 - [穿为清冷影后的污点A](https://www.nbcxnk.com/book/2sru23n/)
 - [就算是龙傲天也不可以[快穿]](https://www.nbcxnk.com/book/2sru23c/)
-- [炮灰的我该如何上位？](https://www.nbcxnk.com/book/2sru1hb/)
-- [在魔法世界屯田争霸](https://www.nbcxnk.com/book/2sru17p/)
 - [拯救世界从扮演反派开始](https://www.nbcxnk.com/book/2sru0gk/)
-- [伪装纨绔，怎么成了名相](https://www.nbcxnk.com/book/2sru06u/)
 - [和前女友的心上人he了](https://www.nbcxnk.com/book/2sru03e/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.nbcxnk.com/book/2srtvu0/)
+- [[全职高手]问就是没钱](https://www.nbcxnk.com/book/2srtsij/)
+- [作家与读者](https://www.nbcxnk.com/book/2srtsfg/)
 - [井闼山经理每天都被挖墙脚](https://www.nbcxnk.com/book/2srtsdb/)
 - [某柯学的正义伙伴](https://www.nbcxnk.com/book/2srtr9v/)
 - [[足球]罗蜜第一志愿](https://www.nbcxnk.com/book/2srtqt2/)
-- [一枝枝怨](https://www.nbcxnk.com/book/2srtmm0/)
-- [幼崽假少爷选择回归寒门](https://www.nbcxnk.com/book/2srtliq/)
-- [在民俗惊悚片被诸神庇护](https://www.nbcxnk.com/book/2srrkt8/)
+- [法外狂猫](https://www.nbcxnk.com/book/2srtmm6/)
+- [[足球]小小鸟堂堂来袭](https://www.nbcxnk.com/book/2srtmkf/)
+- [和室友他爸恋爱后](https://www.nbcxnk.com/book/2srtka7/)
+- [好兄弟暴富后非要跟我结婚](https://www.nbcxnk.com/book/2srtf6q/)
 - [他要和我谈恋爱](https://www.nbcxnk.com/book/2srrkq6/)
 - [星际团宠小人鱼](https://www.nbcxnk.com/book/2srrjt3/)
 - [高调装神，猥琐发育](https://www.nbcxnk.com/book/2srrj6v/)

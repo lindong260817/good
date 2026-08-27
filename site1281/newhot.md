@@ -1,7 +1,7 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-08-25 03:16:15
+更新时间：2026-08-27 03:18:11
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。
 
@@ -14,23 +14,26 @@
 - [[封神]圣人生欲](https://www.bianlishihao.com/book/2vr7afq/)
 - [星际团宠小人鱼](https://www.bianlishihao.com/book/2vr7afa/)
 - [高调装神，猥琐发育](https://www.bianlishihao.com/book/2vr7adk/)
-- [高嫁之后](https://www.bianlishihao.com/book/2vr7a9l/)
-- [[希腊神话]蛇蛇神生美妙](https://www.bianlishihao.com/book/2vr7a9c/)
+- [从异世界穿回来后](https://www.bianlishihao.com/book/2vr7acn/)
+- [直男咒术师的限制级游戏](https://www.bianlishihao.com/book/2vr7a9e/)
 - [纯爱宇智波基本恋爱法](https://www.bianlishihao.com/book/2vr7a9a/)
 - [某柯学的正义伙伴](https://www.bianlishihao.com/book/2vr4i9j/)
-- [[足球]最佳前锋](https://www.bianlishihao.com/book/9iont8/)
-- [伪装纨绔，怎么成了名相](https://www.bianlishihao.com/book/9iomd0/)
+- [我的老公是暴君](https://www.bianlishihao.com/book/2vr4at6/)
+- [五美元在哥谭活一月](https://www.bianlishihao.com/book/2vr46am/)
+- [我有嘉宾](https://www.bianlishihao.com/book/2vr3uth/)
+- [沈助理又在隐藏他的超能力](https://www.bianlishihao.com/book/9ip7lo/)
+- [野比春子穿越事件簿](https://www.bianlishihao.com/book/9iossu/)
+- [[全职高手]问就是没钱](https://www.bianlishihao.com/book/9ionre/)
+- [作家与读者](https://www.bianlishihao.com/book/9ioirl/)
+- [绿叶](https://www.bianlishihao.com/book/9iohe1/)
+- [我与龙傲天寿命共享](https://www.bianlishihao.com/book/9iodsv/)
 - [简单罗曼史](https://www.bianlishihao.com/book/9iocse/)
-- [一枝枝怨](https://www.bianlishihao.com/book/9ioc1j/)
 - [老公是松散生命体](https://www.bianlishihao.com/book/9iobe3/)
 - [这谁的沙雕二次元心声！](https://www.bianlishihao.com/book/9iob3p/)
-- [在魔法世界屯田争霸](https://www.bianlishihao.com/book/9io3u1/)
+- [多梦你一会儿](https://www.bianlishihao.com/book/9io0i1/)
 - [[足球]罗蜜第一志愿](https://www.bianlishihao.com/book/9int05/)
 - [拯救世界从扮演反派开始](https://www.bianlishihao.com/book/9inr48/)
 - [和前女友的心上人he了](https://www.bianlishihao.com/book/9inq2g/)
-- [在民俗惊悚片被诸神庇护](https://www.bianlishihao.com/book/9ink1h/)
-- [哥你不能不要我](https://www.bianlishihao.com/book/9in9s8/)
-- [被奇犽告白以后](https://www.bianlishihao.com/book/ulg0p/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1281/index.md)
