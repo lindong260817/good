@@ -1,18 +1,17 @@
 
 # 零点看书吧-书友最值得收藏的网络小说阅读网
 
-更新时间：2026-08-25 03:19:12
+更新时间：2026-08-27 03:21:17
 
 零点看书吧是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节。作为无弹窗的小说阅读平台，零点看书吧成为网络小说爱好者必备的选择。
 
 - [零点看书吧](https://www.gjnbgb.com/)
 
 ## 最新小说
-- [七零回城女知青[穿书]](https://www.gjnbgb.com/book/2s9rn1m/)
+- [无限末日副本：我有移动安全屋](https://www.gjnbgb.com/book/2s9s53e/)
 - [人妻O救赎指南](https://www.gjnbgb.com/book/2s9rn1g/)
-- [养父](https://www.gjnbgb.com/book/2s9rn05/)
-- [暴君的赝品公主](https://www.gjnbgb.com/book/2s9olod/)
-- [和八个男人身陷瘟疫之地](https://www.gjnbgb.com/book/2s9olga/)
+- [娶了女装心机太子](https://www.gjnbgb.com/book/2s9p6es/)
+- [与宿敌他哥契约成婚后](https://www.gjnbgb.com/book/2s9omp3/)
 - [道长他为何那样](https://www.gjnbgb.com/book/2s9ojho/)
 - [云深不知处](https://www.gjnbgb.com/book/2s9nqb4/)
 - [成为养成系练习生后](https://www.gjnbgb.com/book/2s9nqb0/)
@@ -22,7 +21,6 @@
 - [在民俗惊悚片被诸神庇护](https://www.gjnbgb.com/book/2s9nq7m/)
 - [我真不是算命的！[香江]](https://www.gjnbgb.com/book/2s9nq6t/)
 - [被天龙人圈养的老实人](https://www.gjnbgb.com/book/2s9nq6h/)
-- [前女友孩子三岁了](https://www.gjnbgb.com/book/2s9nq5h/)
 - [小寡夫女装直播捞到了封建亡夫](https://www.gjnbgb.com/book/2s9nq4q/)
 - [卧底后被港岛大小姐缠上了](https://www.gjnbgb.com/book/2s9nq45/)
 - [高门小婢](https://www.gjnbgb.com/book/2s9nq3s/)
@@ -39,13 +37,14 @@
 - [在柯学世界装路人失败后](https://www.gjnbgb.com/book/2s9nps4/)
 - [为诡异打工，但反封建迷信](https://www.gjnbgb.com/book/2s9nprd/)
 - [[希腊神话]基建拯救世界](https://www.gjnbgb.com/book/2s9nppd/)
+- [贵族学院女保安竟是万人迷](https://www.gjnbgb.com/book/2s9npoj/)
 - [喜恶同因[青梅竹马]](https://www.gjnbgb.com/book/2s9npof/)
 - [本官早知他是狐狸变的](https://www.gjnbgb.com/book/2s9npnr/)
 - [老公对不起](https://www.gjnbgb.com/book/2s9npnn/)
 - [夺养媳](https://www.gjnbgb.com/book/2s9npn1/)
 - [邻居小孩太有钱[快穿]](https://www.gjnbgb.com/book/2s9npm3/)
 - [始乱终弃清冷首辅后](https://www.gjnbgb.com/book/2s9nplu/)
-- [九零首富的替嫁小甜妻](https://www.gjnbgb.com/book/2s9nplr/)
+- [九零首富的替嫁小媳妇](https://www.gjnbgb.com/book/2s9nplr/)
 - [夜偶](https://www.gjnbgb.com/book/2s9npkj/)
 - [[足球]如此足球，怎能不恨](https://www.gjnbgb.com/book/2s9npkg/)
 - [立海大的水仙赛季](https://www.gjnbgb.com/book/2s9npjp/)
@@ -54,8 +53,9 @@
 - [禁止限制文主角转职龙傲天](https://www.gjnbgb.com/book/2s9npff/)
 - [人气反派的马甲演绎实录](https://www.gjnbgb.com/book/2s9npf9/)
 - [与冷脸糙汉相亲后](https://www.gjnbgb.com/book/2s9npf4/)
+- [完蛋！被恨孕男包围了！](https://www.gjnbgb.com/book/2s9npf3/)
 - [掌中春莺](https://www.gjnbgb.com/book/2s9npe2/)
-- [[综]成年人为什么会成为救世主](https://www.gjnbgb.com/book/2s9npe1/)
+- [[反穿]我的救世主生涯不对劲？](https://www.gjnbgb.com/book/2s9npe1/)
 - [把讨厌的师兄写进限制文后](https://www.gjnbgb.com/book/2s9npdn/)
 - [巴黎恋人](https://www.gjnbgb.com/book/2s9npde/)
 - [六零之成了卷王的妹妹](https://www.gjnbgb.com/book/2s9npdc/)
@@ -159,8 +159,6 @@
 - [小可怜替嫁给豪门古板Daddy后](https://www.gjnbgb.com/book/2s9nndv/)
 - [日化人生[科研]](https://www.gjnbgb.com/book/2s9nndn/)
 - [医学大佬在年代文[穿书]](https://www.gjnbgb.com/book/2s9nndh/)
-- [废太子联盟](https://www.gjnbgb.com/book/2s9nncf/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.gjnbgb.com/book/2s9nnc0/)
 - [穿成炮灰后我封神了［快穿］](https://www.gjnbgb.com/book/2s9nnai/)
 - [星际团宠小人鱼](https://www.gjnbgb.com/book/2s9nn9s/)
 - [万人嫌他真不想掉马](https://www.gjnbgb.com/book/2s9nn7v/)

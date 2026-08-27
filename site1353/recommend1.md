@@ -1,7 +1,7 @@
 
 # 书社1687小说免费-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-08-25 03:29:12
+更新时间：2026-08-27 03:31:43
 
 书社1687小说免费提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏书社1687小说，享受便捷的小说阅读体验。
 
@@ -9,8 +9,7 @@
 
 ## 最新小说
 - [人妻O救赎指南](https://www.shushe1687.com/book/489ghc9/)
-- [养父](https://www.shushe1687.com/book/489ghat/)
-- [七零回城女知青[穿书]](https://www.shushe1687.com/book/489gb73/)
+- [无限末日副本：我有移动安全屋](https://www.shushe1687.com/book/489g6ge/)
 - [十九世纪贵族厨房（美食）](https://www.shushe1687.com/book/489funq/)
 - [红楼之玉成佳事](https://www.shushe1687.com/book/489funn/)
 - [漂亮男知青下乡后](https://www.shushe1687.com/book/489funk/)
@@ -60,7 +59,7 @@
 - [断供留子，老公赛级白男](https://www.shushe1687.com/book/489fuev/)
 - [从死亡开始的猎人笔记](https://www.shushe1687.com/book/489fuem/)
 - [虫族雌兄，你好香啊](https://www.shushe1687.com/book/489fuej/)
-- [[综]成年人为什么会成为救世主](https://www.shushe1687.com/book/489fuec/)
+- [[反穿]我的救世主生涯不对劲？](https://www.shushe1687.com/book/489fuec/)
 - [始乱终弃清冷首辅后](https://www.shushe1687.com/book/489fudm/)
 - [医学大佬在年代文[穿书]](https://www.shushe1687.com/book/489fudl/)
 - [咖啡大亨模拟经营指南](https://www.shushe1687.com/book/489fudg/)
@@ -77,7 +76,7 @@
 - [御赐厨娘在九零[古穿今]](https://www.shushe1687.com/book/489fuck/)
 - [病弱世子娇养手札](https://www.shushe1687.com/book/489fuce/)
 - [云深不知处](https://www.shushe1687.com/book/489fucc/)
-- [暴君的赝品公主](https://www.shushe1687.com/book/489fngi/)
+- [完蛋！被恨孕男包围了！](https://www.shushe1687.com/book/489fnef/)
 - [高调装神，猥琐发育](https://www.shushe1687.com/book/489fnds/)
 - [喜恶同因[青梅竹马]](https://www.shushe1687.com/book/489fcic/)
 - [捡了龙傲天金手指后](https://www.shushe1687.com/book/489fc6k/)
@@ -86,14 +85,13 @@
 - [[足球]替补门将](https://www.shushe1687.com/book/489fb3r/)
 - [我演的不是漂亮圣子攻吗?](https://www.shushe1687.com/book/489f1ui/)
 - [[希腊神话]基建拯救世界](https://www.shushe1687.com/book/489ev3o/)
-- [九零首富的替嫁小甜妻](https://www.shushe1687.com/book/489esk7/)
+- [九零首富的替嫁小媳妇](https://www.shushe1687.com/book/489esk7/)
 - [为诡异打工，但反封建迷信](https://www.shushe1687.com/book/489ep3l/)
 - [渣攻必须he（快穿）](https://www.shushe1687.com/book/489endm/)
 - [在民俗惊悚片被诸神庇护](https://www.shushe1687.com/book/489elb7/)
 - [星际第一女A[穿书]](https://www.shushe1687.com/book/489ejoa/)
 - [绿茶男来袭（快穿）](https://www.shushe1687.com/book/489ein7/)
 - [你对寡人的猫有什么意见？](https://www.shushe1687.com/book/489eh86/)
-- [废太子联盟](https://www.shushe1687.com/book/489eh3o/)
 - [闺蜜就不能是妻子吗](https://www.shushe1687.com/book/489ee6r/)
 - [我是封建大爹的好孕小娇妻](https://www.shushe1687.com/book/489ec7o/)
 - [误入反派培养直播后](https://www.shushe1687.com/book/489eaai/)
@@ -108,6 +106,7 @@
 - [八零恶毒后妈杀疯了](https://www.shushe1687.com/book/489dvo8/)
 - [壮受虫母今天也想逃](https://www.shushe1687.com/book/489dvb0/)
 - [夜偶](https://www.shushe1687.com/book/489dt45/)
+- [贵族学院女保安竟是万人迷](https://www.shushe1687.com/book/489dsua/)
 - [星露谷，但大秦帝国](https://www.shushe1687.com/book/489droc/)
 - [至尊法师克拉克[综英美]](https://www.shushe1687.com/book/489dmbu/)
 - [是NPC就来和玩家合影](https://www.shushe1687.com/book/489dksa/)
@@ -122,6 +121,7 @@
 - [[综崩铁]你怎么知道我是令使](https://www.shushe1687.com/book/489d666/)
 - [惊！S级诡异竟是我自己](https://www.shushe1687.com/book/489d61q/)
 - [性转成真千金靠写文逆袭了](https://www.shushe1687.com/book/489d5do/)
+- [娶了女装心机太子](https://www.shushe1687.com/book/489d4ji/)
 - [在赛博世界手搓一座城](https://www.shushe1687.com/book/489d2je/)
 - [立海大的水仙赛季](https://www.shushe1687.com/book/489d2h9/)
 - [美人魔头绑定龙傲天系统后](https://www.shushe1687.com/book/489d11i/)
@@ -133,7 +133,7 @@
 - [魏尔伦猫猫能有什么坏心思呢](https://www.shushe1687.com/book/489clvg/)
 - [救命！白无常每天都在钓我](https://www.shushe1687.com/book/489cle0/)
 - [[西幻]玛赫里魔药店经营实录](https://www.shushe1687.com/book/489cldj/)
-- [和八个男人身陷瘟疫之地](https://www.shushe1687.com/book/489ck4d/)
+- [与宿敌他哥契约成婚后](https://www.shushe1687.com/book/489cks5/)
 - [区区精灵[西幻]](https://www.shushe1687.com/book/489cjmn/)
 - [道长他为何那样](https://www.shushe1687.com/book/489ch1b/)
 - [成为养成系练习生后](https://www.shushe1687.com/book/489bocp/)
@@ -150,12 +150,10 @@
 - [巨物致富：回乡开钓场](https://www.shushe1687.com/book/489bne7/)
 - [我真不是算命的！[香江]](https://www.shushe1687.com/book/489bncb/)
 - [六零之成了卷王的妹妹](https://www.shushe1687.com/book/489bnca/)
-- [前女友孩子三岁了](https://www.shushe1687.com/book/489bnar/)
 - [太宗今天又哭了吗](https://www.shushe1687.com/book/489bn03/)
 - [被反派暴君听到心声后[穿书]](https://www.shushe1687.com/book/489bmv7/)
 - [御兽师，我打工养你啊](https://www.shushe1687.com/book/489bmu6/)
 - [大瑛弟国](https://www.shushe1687.com/book/489bmsn/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.shushe1687.com/book/489bmn6/)
 - [五十年代港城日常](https://www.shushe1687.com/book/489bmm0/)
 - [千禧年，拆迁分了十栋楼！](https://www.shushe1687.com/book/489bmde/)
 - [警察，但犯罪大师系统[刑侦]](https://www.shushe1687.com/book/489bmao/)

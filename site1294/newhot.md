@@ -1,7 +1,7 @@
 
 # 思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-08-25 03:15:44
+更新时间：2026-08-27 03:17:37
 
 思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。
 
@@ -14,23 +14,26 @@
 - [他要和我谈恋爱](https://www.968577.com/book/1b28m9h/)
 - [[封神]圣人生欲](https://www.968577.com/book/1b28m9c/)
 - [高调装神，猥琐发育](https://www.968577.com/book/1b28m8g/)
-- [高嫁之后](https://www.968577.com/book/1b28m3r/)
+- [从异世界穿回来后](https://www.968577.com/book/1b28m5n/)
 - [纯爱宇智波基本恋爱法](https://www.968577.com/book/1b28m3q/)
-- [[希腊神话]蛇蛇神生美妙](https://www.968577.com/book/1b28m3j/)
+- [直男咒术师的限制级游戏](https://www.968577.com/book/1b28m3a/)
+- [我的老公是暴君](https://www.968577.com/book/1b27id8/)
 - [某柯学的正义伙伴](https://www.968577.com/book/1b25thr/)
-- [[足球]最佳前锋](https://www.968577.com/book/49s290/)
-- [伪装纨绔，怎么成了名相](https://www.968577.com/book/49s1pf/)
+- [五美元在哥谭活一月](https://www.968577.com/book/1b25jmk/)
+- [我有嘉宾](https://www.968577.com/book/1b25arh/)
+- [沈助理又在隐藏他的超能力](https://www.968577.com/book/49sk3i/)
+- [野比春子穿越事件簿](https://www.968577.com/book/49s7g2/)
+- [[全职高手]问就是没钱](https://www.968577.com/book/49s0b5/)
+- [作家与读者](https://www.968577.com/book/49s050/)
+- [绿叶](https://www.968577.com/book/49rqmq/)
+- [我与龙傲天寿命共享](https://www.968577.com/book/49rnro/)
 - [简单罗曼史](https://www.968577.com/book/49rn8t/)
-- [一枝枝怨](https://www.968577.com/book/49rlku/)
 - [这谁的沙雕二次元心声！](https://www.968577.com/book/49rlcv/)
 - [老公是松散生命体](https://www.968577.com/book/49rl15/)
-- [在魔法世界屯田争霸](https://www.968577.com/book/49rfj1/)
+- [多梦你一会儿](https://www.968577.com/book/49r9le/)
 - [拯救世界从扮演反派开始](https://www.968577.com/book/49r7fl/)
 - [[足球]罗蜜第一志愿](https://www.968577.com/book/49r7cu/)
 - [和前女友的心上人he了](https://www.968577.com/book/49r493/)
-- [在民俗惊悚片被诸神庇护](https://www.968577.com/book/49qt65/)
-- [哥你不能不要我](https://www.968577.com/book/49ql9h/)
-- [被奇犽告白以后](https://www.968577.com/book/dp1hn/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1294/index.md)

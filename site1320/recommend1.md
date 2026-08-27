@@ -1,14 +1,13 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-08-25 03:19:50
+更新时间：2026-08-27 03:21:57
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
 - [故事文学网](https://www.gushi1314.com/)
 
 ## 最新小说
-- [养父](https://www.gushi1314.com/book/8m9ju4t/)
 - [假道姑也要被真强取豪夺吗](https://www.gushi1314.com/book/8m9ju4r/)
 - [[封神]圣人生欲](https://www.gushi1314.com/book/8m9ju4p/)
 - [越界沉溺](https://www.gushi1314.com/book/8m9ju4o/)
@@ -44,12 +43,12 @@
 - [李师傅拳打好莱坞[六零]](https://www.gushi1314.com/book/8m9ju3p/)
 - [断供留子，老公赛级白男](https://www.gushi1314.com/book/8m9ju3o/)
 - [师尊分裂成两个后天天醋自己](https://www.gushi1314.com/book/8m9ju3m/)
-- [九零首富的替嫁小甜妻](https://www.gushi1314.com/book/8m9ju3k/)
+- [九零首富的替嫁小媳妇](https://www.gushi1314.com/book/8m9ju3k/)
 - [[足球]小甜饼](https://www.gushi1314.com/book/8m9ju3j/)
 - [继兄怀孕，孩子是我的](https://www.gushi1314.com/book/8m9ju3i/)
 - [在尤文图斯养超巨[足球]](https://www.gushi1314.com/book/8m9ju3h/)
 - [病弱世子娇养手札](https://www.gushi1314.com/book/8m9ju3g/)
-- [[综]成年人为什么会成为救世主](https://www.gushi1314.com/book/8m9ju3f/)
+- [[反穿]我的救世主生涯不对劲？](https://www.gushi1314.com/book/8m9ju3f/)
 - [漂亮男知青下乡后](https://www.gushi1314.com/book/8m9ju3e/)
 - [海上求生:生活玩家战力爆表](https://www.gushi1314.com/book/8m9ju3d/)
 - [[足球]家里到底有谁在啊你说清楚！](https://www.gushi1314.com/book/8m9ju3c/)
@@ -81,11 +80,9 @@
 - [巫女的乱世逃荒记](https://www.gushi1314.com/book/8m9ju2h/)
 - [小寡夫女装直播捞到了封建亡夫](https://www.gushi1314.com/book/8m9ju2g/)
 - [高调装神，猥琐发育](https://www.gushi1314.com/book/8m9ju2f/)
-- [暴君的赝品公主](https://www.gushi1314.com/book/8m9ju2d/)
 - [假少爷不想活了](https://www.gushi1314.com/book/8m9ju2b/)
 - [千禧年，拆迁分了十栋楼！](https://www.gushi1314.com/book/8m9jtvo/)
 - [纯爱宇智波基本恋爱法](https://www.gushi1314.com/book/8m9jtta/)
-- [和八个男人身陷瘟疫之地](https://www.gushi1314.com/book/8m9jt5e/)
 - [六零之成了卷王的妹妹](https://www.gushi1314.com/book/8m9jsm0/)
 - [道长他为何那样](https://www.gushi1314.com/book/8m9jsls/)
 - [古代种田养娃日常](https://www.gushi1314.com/book/8m9itj9/)
@@ -94,7 +91,7 @@
 - [老公对不起](https://www.gushi1314.com/book/8m9ifpo/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.gushi1314.com/book/8m9icev/)
 - [主角前任他分手分不掉了](https://www.gushi1314.com/book/8m9i2k7/)
-- [七零回城女知青[穿书]](https://www.gushi1314.com/book/8m9hqhb/)
+- [无限末日副本：我有移动安全屋](https://www.gushi1314.com/book/8m9hlsa/)
 - [御兽师，我打工养你啊](https://www.gushi1314.com/book/8m9hdrb/)
 - [穿成炮灰后我封神了［快穿］](https://www.gushi1314.com/book/8m9h3ss/)
 - [七零捡漏日常](https://www.gushi1314.com/book/8m9h3m5/)
@@ -111,14 +108,11 @@
 - [禁止限制文主角转职龙傲天](https://www.gushi1314.com/book/8m9gb0v/)
 - [渣攻必须he（快穿）](https://www.gushi1314.com/book/rqkb2k/)
 - [她是反派的背景板母亲](https://www.gushi1314.com/book/rqk9q7/)
-- [前女友孩子三岁了](https://www.gushi1314.com/book/rqk7nq/)
 - [喜恶同因[青梅竹马]](https://www.gushi1314.com/book/rqk4b2/)
 - [星际第一女A[穿书]](https://www.gushi1314.com/book/rqk37s/)
 - [绿茶男来袭（快穿）](https://www.gushi1314.com/book/rqk30c/)
 - [成为养成系练习生后](https://www.gushi1314.com/book/rqk0q5/)
 - [你对寡人的猫有什么意见？](https://www.gushi1314.com/book/rqjuf5/)
-- [废太子联盟](https://www.gushi1314.com/book/rqjtv0/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.gushi1314.com/book/rqjsaj/)
 - [闺蜜就不能是妻子吗](https://www.gushi1314.com/book/rqjrks/)
 - [为诡异打工，但反封建迷信](https://www.gushi1314.com/book/rqjplj/)
 - [迷雾求生，种田玩家也能当榜一？](https://www.gushi1314.com/book/rqjpcg/)
@@ -128,6 +122,7 @@
 - [我是封建大爹的好孕小娇妻](https://www.gushi1314.com/book/rqjld5/)
 - [太宗今天又哭了吗](https://www.gushi1314.com/book/rqjjkn/)
 - [壮受虫母今天也想逃](https://www.gushi1314.com/book/rqjhdt/)
+- [贵族学院女保安竟是万人迷](https://www.gushi1314.com/book/rqjf33/)
 - [京华无尽夏](https://www.gushi1314.com/book/rqj9rk/)
 - [至尊法师克拉克[综英美]](https://www.gushi1314.com/book/rqj7qe/)
 - [星露谷，但大秦帝国](https://www.gushi1314.com/book/rqj6ca/)
@@ -140,6 +135,7 @@
 - [暗涌[破镜重圆]](https://www.gushi1314.com/book/rqit11/)
 - [道长在诡异世界捉诡](https://www.gushi1314.com/book/rqis77/)
 - [惊！S级诡异竟是我自己](https://www.gushi1314.com/book/rqirnd/)
+- [娶了女装心机太子](https://www.gushi1314.com/book/rqir8s/)
 - [性转成真千金靠写文逆袭了](https://www.gushi1314.com/book/rqir6c/)
 - [立海大的水仙赛季](https://www.gushi1314.com/book/rqin1j/)
 - [雇佣毛茸茸开农场](https://www.gushi1314.com/book/rqimnc/)
@@ -150,6 +146,7 @@
 - [巴黎恋人](https://www.gushi1314.com/book/rqif2m/)
 - [在民俗惊悚片被诸神庇护](https://www.gushi1314.com/book/rqict0/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.gushi1314.com/book/rqic9i/)
+- [与宿敌他哥契约成婚后](https://www.gushi1314.com/book/rqi9hd/)
 - [本官早知他是狐狸变的](https://www.gushi1314.com/book/rqi8t1/)
 - [区区精灵[西幻]](https://www.gushi1314.com/book/rqi7t0/)
 - [[娱乐圈]过分美丽的她](https://www.gushi1314.com/book/2p1qis/)
@@ -165,6 +162,7 @@
 - [捡了龙傲天金手指后](https://www.gushi1314.com/book/2p1p7g/)
 - [五十年代港城日常](https://www.gushi1314.com/book/2p1or3/)
 - [卧底后被港岛大小姐缠上了](https://www.gushi1314.com/book/2p1omd/)
+- [完蛋！被恨孕男包围了！](https://www.gushi1314.com/book/2p1occ/)
 - [如何扮演源氏重宝](https://www.gushi1314.com/book/8svvf/)
 - [高门小婢](https://www.gushi1314.com/book/8svoa/)
 - [警察，但犯罪大师系统[刑侦]](https://www.gushi1314.com/book/8svnf/)

@@ -1,45 +1,46 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-08-25 03:26:02
+更新时间：2026-08-27 03:28:22
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。
 
 - [左叶小说网](https://www.pusytgp.com/)
 
 ## 最新小说
+- [我有嘉宾](https://www.pusytgp.com/book/7pbojan/)
+- [从异世界穿回来后](https://www.pusytgp.com/book/7pboil6/)
 - [星际团宠小人鱼](https://www.pusytgp.com/book/7pboe9n/)
 - [你，后室管理员](https://www.pusytgp.com/book/7pboe7m/)
 - [夺友妻（女尊）](https://www.pusytgp.com/book/7pboe5o/)
+- [我的老公是暴君](https://www.pusytgp.com/book/7pbnt89/)
 - [高调装神，猥琐发育](https://www.pusytgp.com/book/7pbn366/)
-- [幼崽假少爷选择回归寒门](https://www.pusytgp.com/book/7pbmr51/)
-- [如何正确哄睡暴君](https://www.pusytgp.com/book/7pbmkpg/)
-- [[希腊神话]蛇蛇神生美妙](https://www.pusytgp.com/book/7pbmjqc/)
-- [失而复得的白月光[快穿]](https://www.pusytgp.com/book/7pbmjnu/)
+- [五美元在哥谭活一月](https://www.pusytgp.com/book/7pbn1p3/)
+- [直男咒术师的限制级游戏](https://www.pusytgp.com/book/7pbmr4e/)
+- [我与龙傲天寿命共享](https://www.pusytgp.com/book/7pbmnka/)
+- [绿叶](https://www.pusytgp.com/book/7pbmfch/)
+- [沈助理又在隐藏他的超能力](https://www.pusytgp.com/book/7pbm95b/)
 - [我不可能舔一个漂亮捞子](https://www.pusytgp.com/book/7pbm8q2/)
 - [简单罗曼史](https://www.pusytgp.com/book/7pbm7hn/)
-- [被奇犽告白以后](https://www.pusytgp.com/book/7pbm2rc/)
-- [在民俗惊悚片被诸神庇护](https://www.pusytgp.com/book/7pbm0km/)
-- [[足球]最佳前锋](https://www.pusytgp.com/book/7pblpb3/)
-- [高嫁之后](https://www.pusytgp.com/book/7pblp0n/)
-- [被鬼怪宠爱的漂亮书生](https://www.pusytgp.com/book/7pblmrr/)
+- [同时扮演贵族学院F4和平民校花](https://www.pusytgp.com/book/7pblpar/)
+- [野比春子穿越事件簿](https://www.pusytgp.com/book/7pblp92/)
+- [[全职高手]问就是没钱](https://www.pusytgp.com/book/7pblma2/)
 - [微臣怜惜公主](https://www.pusytgp.com/book/7pblm8r/)
-- [哥你不能不要我](https://www.pusytgp.com/book/7pbllsf/)
 - [他要和我谈恋爱](https://www.pusytgp.com/book/7pbllof/)
-- [伪装纨绔，怎么成了名相](https://www.pusytgp.com/book/7pblkvf/)
-- [炮灰的我该如何上位？](https://www.pusytgp.com/book/7pbljpr/)
+- [大美人beta带球跑了](https://www.pusytgp.com/book/7pbllme/)
+- [多梦你一会儿](https://www.pusytgp.com/book/7pblljm/)
 - [拯救世界从扮演反派开始](https://www.pusytgp.com/book/7pbljon/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.pusytgp.com/book/7pbljlu/)
+- [作家与读者](https://www.pusytgp.com/book/7pbljcm/)
 - [和前女友的心上人he了](https://www.pusytgp.com/book/7pblhol/)
 - [这谁的沙雕二次元心声！](https://www.pusytgp.com/book/7pblhka/)
-- [我司艺人永不塌房](https://www.pusytgp.com/book/7pble29/)
 - [[封神]圣人生欲](https://www.pusytgp.com/book/7pblds0/)
 - [某柯学的正义伙伴](https://www.pusytgp.com/book/7pblc0i/)
 - [纯爱宇智波基本恋爱法](https://www.pusytgp.com/book/7pblbln/)
 - [老公是松散生命体](https://www.pusytgp.com/book/7pblagb/)
-- [一枝枝怨](https://www.pusytgp.com/book/7pblaa9/)
 - [[足球]罗蜜第一志愿](https://www.pusytgp.com/book/7pbl90o/)
 - [井闼山经理每天都被挖墙脚](https://www.pusytgp.com/book/7pbl5vo/)
-- [在魔法世界屯田争霸](https://www.pusytgp.com/book/7pbjdba/)
+- [好兄弟暴富后非要跟我结婚](https://www.pusytgp.com/book/7pbko4m/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1343/index.md)

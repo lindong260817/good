@@ -1,16 +1,15 @@
 
 # 无瑕天涯在线书库 - 免费小说在线阅读
 
-更新时间：2026-08-25 03:32:21
+更新时间：2026-08-27 03:35:03
 
 无瑕天涯在线书库自2003年创立至今，致力于提供包括武侠、言情、科幻等多种类型的小说免费在线阅读服务。页面设计简洁，持续优化用户体验，旨在为读者带来更好的阅读享受。
 
 - [无瑕天涯书库](https://www.wuxia688.com/)
 
 ## 最新小说
-- [养父](https://www.wuxia688.com/book/2bjqnhv/)
 - [人妻O救赎指南](https://www.wuxia688.com/book/2bjqncn/)
-- [七零回城女知青[穿书]](https://www.wuxia688.com/book/2bjqi2k/)
+- [无限末日副本：我有移动安全屋](https://www.wuxia688.com/book/2bjqdcc/)
 - [虫族雌兄，你好香啊](https://www.wuxia688.com/book/2bjq4jm/)
 - [从死亡开始的猎人笔记](https://www.wuxia688.com/book/2bjq4jg/)
 - [高三一班[无限]](https://www.wuxia688.com/book/2bjq4jc/)
@@ -32,7 +31,7 @@
 - [[综英美]穿过你的黑发我的手](https://www.wuxia688.com/book/2bjq4h3/)
 - [分手后与诱系妻子再度热恋](https://www.wuxia688.com/book/2bjq4h2/)
 - [病弱世子娇养手札](https://www.wuxia688.com/book/2bjq4gs/)
-- [[综]成年人为什么会成为救世主](https://www.wuxia688.com/book/2bjq4gl/)
+- [[反穿]我的救世主生涯不对劲？](https://www.wuxia688.com/book/2bjq4gl/)
 - [在柯学世界装路人失败后](https://www.wuxia688.com/book/2bjq4gi/)
 - [被天龙人圈养的老实人](https://www.wuxia688.com/book/2bjq4gh/)
 - [与冷脸糙汉相亲后](https://www.wuxia688.com/book/2bjq4gg/)
@@ -78,7 +77,7 @@
 - [小可怜替嫁给豪门古板Daddy后](https://www.wuxia688.com/book/2bjq48d/)
 - [窃春欢](https://www.wuxia688.com/book/2bjq488/)
 - [高调装神，猥琐发育](https://www.wuxia688.com/book/2bjptcu/)
-- [暴君的赝品公主](https://www.wuxia688.com/book/2bjptaq/)
+- [完蛋！被恨孕男包围了！](https://www.wuxia688.com/book/2bjpt9g/)
 - [魅魔就不能打网球了吗？](https://www.wuxia688.com/book/2bjpjlv/)
 - [禁止限制文主角转职龙傲天](https://www.wuxia688.com/book/2bjpifo/)
 - [喜恶同因[青梅竹马]](https://www.wuxia688.com/book/2bjphu6/)
@@ -86,14 +85,13 @@
 - [[足球]替补门将](https://www.wuxia688.com/book/2bjphna/)
 - [我演的不是漂亮圣子攻吗?](https://www.wuxia688.com/book/2bjp927/)
 - [[希腊神话]基建拯救世界](https://www.wuxia688.com/book/2bjp7p2/)
-- [九零首富的替嫁小甜妻](https://www.wuxia688.com/book/2bjp2vr/)
+- [九零首富的替嫁小媳妇](https://www.wuxia688.com/book/2bjp2vr/)
 - [为诡异打工，但反封建迷信](https://www.wuxia688.com/book/2bjovcn/)
 - [渣攻必须he（快穿）](https://www.wuxia688.com/book/2bjou2a/)
 - [在民俗惊悚片被诸神庇护](https://www.wuxia688.com/book/2bjost0/)
 - [星际第一女A[穿书]](https://www.wuxia688.com/book/2bjoqv7/)
 - [你对寡人的猫有什么意见？](https://www.wuxia688.com/book/2bjono8/)
 - [绿茶男来袭（快穿）](https://www.wuxia688.com/book/2bjono0/)
-- [废太子联盟](https://www.wuxia688.com/book/2bjonhe/)
 - [闺蜜就不能是妻子吗](https://www.wuxia688.com/book/2bjol9c/)
 - [我是封建大爹的好孕小娇妻](https://www.wuxia688.com/book/2bjoj4p/)
 - [他要和我谈恋爱](https://www.wuxia688.com/book/2bjoh7v/)
@@ -108,6 +106,7 @@
 - [壮受虫母今天也想逃](https://www.wuxia688.com/book/2bjo7ml/)
 - [八零恶毒后妈杀疯了](https://www.wuxia688.com/book/2bjo7j3/)
 - [夜偶](https://www.wuxia688.com/book/2bjo52f/)
+- [贵族学院女保安竟是万人迷](https://www.wuxia688.com/book/2bjo4ut/)
 - [星露谷，但大秦帝国](https://www.wuxia688.com/book/2bjo28o/)
 - [至尊法师克拉克[综英美]](https://www.wuxia688.com/book/2bjnt47/)
 - [京华无尽夏](https://www.wuxia688.com/book/2bjnqlm/)
@@ -120,6 +119,7 @@
 - [道长在诡异世界捉诡](https://www.wuxia688.com/book/2bjnh71/)
 - [雇佣毛茸茸开农场](https://www.wuxia688.com/book/2bjndjd/)
 - [性转成真千金靠写文逆袭了](https://www.wuxia688.com/book/2bjncnl/)
+- [娶了女装心机太子](https://www.wuxia688.com/book/2bjnbup/)
 - [惊！S级诡异竟是我自己](https://www.wuxia688.com/book/2bjnbq0/)
 - [立海大的水仙赛季](https://www.wuxia688.com/book/2bjn9hq/)
 - [在赛博世界手搓一座城](https://www.wuxia688.com/book/2bjn9ds/)
@@ -133,7 +133,7 @@
 - [魏尔伦猫猫能有什么坏心思呢](https://www.wuxia688.com/book/2bjmt5q/)
 - [区区精灵[西幻]](https://www.wuxia688.com/book/2bjms0h/)
 - [救命！白无常每天都在钓我](https://www.wuxia688.com/book/2bjmr4b/)
-- [和八个男人身陷瘟疫之地](https://www.wuxia688.com/book/2bjmr1g/)
+- [与宿敌他哥契约成婚后](https://www.wuxia688.com/book/2bjmpv7/)
 - [[西幻]玛赫里魔药店经营实录](https://www.wuxia688.com/book/2bjmptj/)
 - [道长他为何那样](https://www.wuxia688.com/book/2bjmo8d/)
 - [我是唯一地上神国](https://www.wuxia688.com/book/2bjlv5n/)
@@ -161,9 +161,7 @@
 - [[娱乐圈]过分美丽的她](https://www.wuxia688.com/book/2bjlso5/)
 - [全民求生:从小木屋到魔法农场](https://www.wuxia688.com/book/2bjlsnr/)
 - [千禧年，拆迁分了十栋楼！](https://www.wuxia688.com/book/2bjlskd/)
-- [前女友孩子三岁了](https://www.wuxia688.com/book/2bjlsjj/)
 - [穿成炮灰后我封神了［快穿］](https://www.wuxia688.com/book/2bjlsj4/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.wuxia688.com/book/2bjlsi5/)
 - [古代种田养娃日常](https://www.wuxia688.com/book/2bjlsfb/)
 - [老公对不起](https://www.wuxia688.com/book/2bjlsf8/)
 - [如何扮演源氏重宝](https://www.wuxia688.com/book/2bjls9s/)

@@ -1,7 +1,7 @@
 
 # 书城小说网 - 全站免费无弹窗小说阅读平台
 
-更新时间：2026-08-25 03:28:41
+更新时间：2026-08-27 03:31:10
 
 书城小说网为您提供全站免费的小说阅读服务，支持全本小说在线浏览，承诺全程无广告弹窗干扰，是您理想的网络文学阅读选择。
 
@@ -9,8 +9,7 @@
 
 ## 最新小说
 - [人妻O救赎指南](https://www.shucheng518.com/book/39m2vjf/)
-- [养父](https://www.shucheng518.com/book/39m2vi4/)
-- [七零回城女知青[穿书]](https://www.shucheng518.com/book/39m2pdi/)
+- [无限末日副本：我有移动安全屋](https://www.shucheng518.com/book/39m2kur/)
 - [越前的排球RPG](https://www.shucheng518.com/book/39m2d1j/)
 - [原配夫人](https://www.shucheng518.com/book/39m2d1f/)
 - [小寡夫女装直播捞到了封建亡夫](https://www.shucheng518.com/book/39m2d1e/)
@@ -66,7 +65,7 @@
 - [我和马甲真没在一起](https://www.shucheng518.com/book/39m2co2/)
 - [七零捡漏日常](https://www.shucheng518.com/book/39m2cnv/)
 - [咖啡大亨模拟经营指南](https://www.shucheng518.com/book/39m2cnu/)
-- [[综]成年人为什么会成为救世主](https://www.shucheng518.com/book/39m2cni/)
+- [[反穿]我的救世主生涯不对劲？](https://www.shucheng518.com/book/39m2cni/)
 - [林中的黑巫师](https://www.shucheng518.com/book/39m2cnf/)
 - [御赐厨娘在九零[古穿今]](https://www.shucheng518.com/book/39m2cn5/)
 - [十九世纪贵族厨房（美食）](https://www.shucheng518.com/book/39m2cms/)
@@ -77,8 +76,8 @@
 - [奉旨怼人](https://www.shucheng518.com/book/39m2cm4/)
 - [虫族雌兄，你好香啊](https://www.shucheng518.com/book/39m2cm2/)
 - [我家刀男不可能是诡异BOSS](https://www.shucheng518.com/book/39m2cm1/)
-- [暴君的赝品公主](https://www.shucheng518.com/book/39m25r9/)
 - [高调装神，猥琐发育](https://www.shucheng518.com/book/39m25r8/)
+- [完蛋！被恨孕男包围了！](https://www.shucheng518.com/book/39m25q8/)
 - [禁止限制文主角转职龙傲天](https://www.shucheng518.com/book/39m1rh5/)
 - [捡了龙傲天金手指后](https://www.shucheng518.com/book/39m1q0e/)
 - [[足球]替补门将](https://www.shucheng518.com/book/39m1pnn/)
@@ -86,12 +85,11 @@
 - [魅魔就不能打网球了吗？](https://www.shucheng518.com/book/39m1p68/)
 - [我演的不是漂亮圣子攻吗?](https://www.shucheng518.com/book/39m1ip8/)
 - [[希腊神话]基建拯救世界](https://www.shucheng518.com/book/39m1fm1/)
-- [九零首富的替嫁小甜妻](https://www.shucheng518.com/book/39m1bh5/)
+- [九零首富的替嫁小媳妇](https://www.shucheng518.com/book/39m1bh5/)
 - [为诡异打工，但反封建迷信](https://www.shucheng518.com/book/39m16mn/)
 - [渣攻必须he（快穿）](https://www.shucheng518.com/book/39m16g8/)
 - [星际第一女A[穿书]](https://www.shucheng518.com/book/39m13l7/)
 - [在民俗惊悚片被诸神庇护](https://www.shucheng518.com/book/39m11rl/)
-- [废太子联盟](https://www.shucheng518.com/book/39m10qd/)
 - [绿茶男来袭（快穿）](https://www.shucheng518.com/book/39m10lj/)
 - [你对寡人的猫有什么意见？](https://www.shucheng518.com/book/39m10is/)
 - [闺蜜就不能是妻子吗](https://www.shucheng518.com/book/39m0u5p/)
@@ -108,6 +106,7 @@
 - [八零恶毒后妈杀疯了](https://www.shucheng518.com/book/39m0ej1/)
 - [壮受虫母今天也想逃](https://www.shucheng518.com/book/39m0efe/)
 - [夜偶](https://www.shucheng518.com/book/39m0ck5/)
+- [贵族学院女保安竟是万人迷](https://www.shucheng518.com/book/39m0b7i/)
 - [星露谷，但大秦帝国](https://www.shucheng518.com/book/39m07oa/)
 - [至尊法师克拉克[综英美]](https://www.shucheng518.com/book/39m06vh/)
 - [京华无尽夏](https://www.shucheng518.com/book/39m03rs/)
@@ -119,6 +118,7 @@
 - [道长在诡异世界捉诡](https://www.shucheng518.com/book/39lvq6l/)
 - [趁她之危](https://www.shucheng518.com/book/39lvo3g/)
 - [[综崩铁]你怎么知道我是令使](https://www.shucheng518.com/book/39lvkv1/)
+- [娶了女装心机太子](https://www.shucheng518.com/book/39lvkgr/)
 - [性转成真千金靠写文逆袭了](https://www.shucheng518.com/book/39lvk84/)
 - [雇佣毛茸茸开农场](https://www.shucheng518.com/book/39lvjku/)
 - [惊！S级诡异竟是我自己](https://www.shucheng518.com/book/39lviur/)
@@ -134,11 +134,10 @@
 - [救命！白无常每天都在钓我](https://www.shucheng518.com/book/39lv3lp/)
 - [区区精灵[西幻]](https://www.shucheng518.com/book/39lv3de/)
 - [[西幻]玛赫里魔药店经营实录](https://www.shucheng518.com/book/39lv313/)
-- [和八个男人身陷瘟疫之地](https://www.shucheng518.com/book/39lv1ih/)
+- [与宿敌他哥契约成婚后](https://www.shucheng518.com/book/39lv2jp/)
 - [道长他为何那样](https://www.shucheng518.com/book/39lv0cn/)
 - [假少爷不想活了](https://www.shucheng518.com/book/39lu6oa/)
 - [日化人生[科研]](https://www.shucheng518.com/book/39lu6n1/)
-- [前女友孩子三岁了](https://www.shucheng518.com/book/39lu6mj/)
 - [纯爱宇智波基本恋爱法](https://www.shucheng518.com/book/39lu6ci/)
 - [成为养成系练习生后](https://www.shucheng518.com/book/39lu6c2/)
 - [老公对不起](https://www.shucheng518.com/book/39lu68v/)
@@ -159,7 +158,6 @@
 - [千禧年，拆迁分了十栋楼！](https://www.shucheng518.com/book/39lu59o/)
 - [大瑛弟国](https://www.shucheng518.com/book/39lu51d/)
 - [穿成炮灰后我封神了［快穿］](https://www.shucheng518.com/book/39lu50b/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.shucheng518.com/book/39lu4sp/)
 - [卧底后被港岛大小姐缠上了](https://www.shucheng518.com/book/39lu4kf/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shucheng518.com/book/39lu4gs/)
 - [绝色美人模拟器](https://www.shucheng518.com/book/39lu4fm/)

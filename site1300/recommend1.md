@@ -1,15 +1,14 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-08-25 03:24:24
+更新时间：2026-08-27 03:26:36
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。
 
 - [棉花糖小说网](https://www.littlemissribbon.com/)
 
 ## 最新小说
-- [养父](https://www.littlemissribbon.com/book/5asiit1/)
-- [[综]成年人为什么会成为救世主](https://www.littlemissribbon.com/book/5asiisv/)
+- [[反穿]我的救世主生涯不对劲？](https://www.littlemissribbon.com/book/5asiisv/)
 - [[足球]如此足球，怎能不恨](https://www.littlemissribbon.com/book/5asiisu/)
 - [被天龙人圈养的老实人](https://www.littlemissribbon.com/book/5asiist/)
 - [小白花是黑暗向导](https://www.littlemissribbon.com/book/5asiiss/)
@@ -70,7 +69,7 @@
 - [你，后室管理员](https://www.littlemissribbon.com/book/5asiir2/)
 - [[足球]小甜饼](https://www.littlemissribbon.com/book/5asiir1/)
 - [恶毒女配决定去死后](https://www.littlemissribbon.com/book/5asiir0/)
-- [九零首富的替嫁小甜妻](https://www.littlemissribbon.com/book/5asiiqv/)
+- [九零首富的替嫁小媳妇](https://www.littlemissribbon.com/book/5asiiqv/)
 - [他要和我谈恋爱](https://www.littlemissribbon.com/book/5asiiqu/)
 - [金手指夫妻在六零](https://www.littlemissribbon.com/book/5asiiqt/)
 - [开局忽悠煤老板拍偶像剧[九零]](https://www.littlemissribbon.com/book/5asiiqs/)
@@ -80,12 +79,10 @@
 - [师尊分裂成两个后天天醋自己](https://www.littlemissribbon.com/book/5asiiqn/)
 - [[综英美]在综恐世界逃生](https://www.littlemissribbon.com/book/5asiiqm/)
 - [分手后与诱系妻子再度热恋](https://www.littlemissribbon.com/book/5asiiqk/)
-- [暴君的赝品公主](https://www.littlemissribbon.com/book/5asiiqj/)
 - [高调装神，猥琐发育](https://www.littlemissribbon.com/book/5asiiqh/)
 - [假少爷不想活了](https://www.littlemissribbon.com/book/5asiiqf/)
 - [千禧年，拆迁分了十栋楼！](https://www.littlemissribbon.com/book/5asiipr/)
 - [纯爱宇智波基本恋爱法](https://www.littlemissribbon.com/book/5asiiob/)
-- [和八个男人身陷瘟疫之地](https://www.littlemissribbon.com/book/5asihti/)
 - [六零之成了卷王的妹妹](https://www.littlemissribbon.com/book/5asihea/)
 - [道长他为何那样](https://www.littlemissribbon.com/book/5asihdk/)
 - [古代种田养娃日常](https://www.littlemissribbon.com/book/5ashsab/)
@@ -94,7 +91,7 @@
 - [老公对不起](https://www.littlemissribbon.com/book/5ash52d/)
 - [主角前任他分手分不掉了](https://www.littlemissribbon.com/book/5asgqvt/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.littlemissribbon.com/book/5asgq6f/)
-- [七零回城女知青[穿书]](https://www.littlemissribbon.com/book/5asggha/)
+- [无限末日副本：我有移动安全屋](https://www.littlemissribbon.com/book/5asgbvi/)
 - [御兽师，我打工养你啊](https://www.littlemissribbon.com/book/5asg3p9/)
 - [穿成炮灰后我封神了［快穿］](https://www.littlemissribbon.com/book/5asfpig/)
 - [七零捡漏日常](https://www.littlemissribbon.com/book/5asfpc3/)
@@ -110,14 +107,11 @@
 - [禁止限制文主角转职龙傲天](https://www.littlemissribbon.com/book/5asf1ei/)
 - [漂亮小瞎子捡到直男龙傲天](https://www.littlemissribbon.com/book/5asf1a1/)
 - [渣攻必须he（快穿）](https://www.littlemissribbon.com/book/5aseshu/)
-- [前女友孩子三岁了](https://www.littlemissribbon.com/book/h2to3u/)
 - [她是反派的背景板母亲](https://www.littlemissribbon.com/book/h2tlr0/)
 - [绿茶男来袭（快穿）](https://www.littlemissribbon.com/book/h2tkpf/)
 - [喜恶同因[青梅竹马]](https://www.littlemissribbon.com/book/h2tjeo/)
 - [星际第一女A[穿书]](https://www.littlemissribbon.com/book/h2tfnp/)
 - [成为养成系练习生后](https://www.littlemissribbon.com/book/h2teo9/)
-- [在武侠世界造反的日子[剑三+综武侠]](https://www.littlemissribbon.com/book/h2tcsl/)
-- [废太子联盟](https://www.littlemissribbon.com/book/h2tc6j/)
 - [你对寡人的猫有什么意见？](https://www.littlemissribbon.com/book/h2tbfd/)
 - [闺蜜就不能是妻子吗](https://www.littlemissribbon.com/book/h2taqf/)
 - [迷雾求生，种田玩家也能当榜一？](https://www.littlemissribbon.com/book/h2t9hq/)
@@ -128,6 +122,7 @@
 - [太宗今天又哭了吗](https://www.littlemissribbon.com/book/h2t3ue/)
 - [邻居小孩太有钱[快穿]](https://www.littlemissribbon.com/book/h2t2qc/)
 - [壮受虫母今天也想逃](https://www.littlemissribbon.com/book/h2t0g6/)
+- [贵族学院女保安竟是万人迷](https://www.littlemissribbon.com/book/h2srq7/)
 - [星露谷，但大秦帝国](https://www.littlemissribbon.com/book/h2smos/)
 - [是NPC就来和玩家合影](https://www.littlemissribbon.com/book/h2slof/)
 - [夜偶](https://www.littlemissribbon.com/book/h2slm3/)
@@ -141,6 +136,7 @@
 - [误入反派培养直播后](https://www.littlemissribbon.com/book/h2sbo8/)
 - [惊！S级诡异竟是我自己](https://www.littlemissribbon.com/book/h2s9r2/)
 - [性转成真千金靠写文逆袭了](https://www.littlemissribbon.com/book/h2s8ke/)
+- [娶了女装心机太子](https://www.littlemissribbon.com/book/h2s82n/)
 - [雇佣毛茸茸开农场](https://www.littlemissribbon.com/book/h2s6t5/)
 - [人气反派的马甲演绎实录](https://www.littlemissribbon.com/book/h2s4h9/)
 - [立海大的水仙赛季](https://www.littlemissribbon.com/book/h2s3s6/)
@@ -151,6 +147,7 @@
 - [在民俗惊悚片被诸神庇护](https://www.littlemissribbon.com/book/h2rv7m/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.littlemissribbon.com/book/h2rsju/)
 - [本官早知他是狐狸变的](https://www.littlemissribbon.com/book/h2rp0h/)
+- [与宿敌他哥契约成婚后](https://www.littlemissribbon.com/book/h2rov1/)
 - [区区精灵[西幻]](https://www.littlemissribbon.com/book/h2rnhl/)
 - [95美国贵族高中模拟](https://www.littlemissribbon.com/book/1mluv6/)
 - [替嫁后咸鱼继母佛系日常](https://www.littlemissribbon.com/book/1mluof/)
@@ -159,6 +156,7 @@
 - [穿到反派落魄时](https://www.littlemissribbon.com/book/1mlu57/)
 - [大瑛弟国](https://www.littlemissribbon.com/book/1mltqc/)
 - [卧底后被港岛大小姐缠上了](https://www.littlemissribbon.com/book/1mltlu/)
+- [完蛋！被恨孕男包围了！](https://www.littlemissribbon.com/book/1mltl8/)
 - [猫猫也要养家糊口](https://www.littlemissribbon.com/book/1mltic/)
 - [我有一座安全城](https://www.littlemissribbon.com/book/1mltgd/)
 - [高门小婢](https://www.littlemissribbon.com/book/1mltf3/)

@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-08-25 03:18:28
+更新时间：2026-08-27 03:20:32
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -14,23 +14,26 @@
 - [你，后室管理员](https://www.duzhe888.com/book/2koep6v/)
 - [[封神]圣人生欲](https://www.duzhe888.com/book/2koep6l/)
 - [高调装神，猥琐发育](https://www.duzhe888.com/book/2koep6g/)
-- [高嫁之后](https://www.duzhe888.com/book/2koep41/)
+- [从异世界穿回来后](https://www.duzhe888.com/book/2koep4m/)
+- [直男咒术师的限制级游戏](https://www.duzhe888.com/book/2koep4k/)
 - [纯爱宇智波基本恋爱法](https://www.duzhe888.com/book/2koep3s/)
-- [[希腊神话]蛇蛇神生美妙](https://www.duzhe888.com/book/2koep1a/)
+- [我的老公是暴君](https://www.duzhe888.com/book/2kodlae/)
 - [某柯学的正义伙伴](https://www.duzhe888.com/book/2kobv8u/)
-- [[足球]最佳前锋](https://www.duzhe888.com/book/8f9fob/)
-- [伪装纨绔，怎么成了名相](https://www.duzhe888.com/book/8f9cvi/)
+- [五美元在哥谭活一月](https://www.duzhe888.com/book/2koblf0/)
+- [我有嘉宾](https://www.duzhe888.com/book/2kobft7/)
+- [沈助理又在隐藏他的超能力](https://www.duzhe888.com/book/8f9v0q/)
+- [野比春子穿越事件簿](https://www.duzhe888.com/book/8f9k1q/)
+- [[全职高手]问就是没钱](https://www.duzhe888.com/book/8f9h23/)
+- [绿叶](https://www.duzhe888.com/book/8f9bem/)
+- [作家与读者](https://www.duzhe888.com/book/8f9alp/)
+- [我与龙傲天寿命共享](https://www.duzhe888.com/book/8f97ro/)
 - [简单罗曼史](https://www.duzhe888.com/book/8f9640/)
 - [这谁的沙雕二次元心声！](https://www.duzhe888.com/book/8f94rd/)
-- [一枝枝怨](https://www.duzhe888.com/book/8f938d/)
 - [老公是松散生命体](https://www.duzhe888.com/book/8f92ac/)
-- [在魔法世界屯田争霸](https://www.duzhe888.com/book/8f8sh2/)
 - [[足球]罗蜜第一志愿](https://www.duzhe888.com/book/8f8nmm/)
+- [多梦你一会儿](https://www.duzhe888.com/book/8f8mep/)
 - [拯救世界从扮演反派开始](https://www.duzhe888.com/book/8f8kac/)
 - [和前女友的心上人he了](https://www.duzhe888.com/book/8f8fsq/)
-- [在民俗惊悚片被诸神庇护](https://www.duzhe888.com/book/8f8a5n/)
-- [哥你不能不要我](https://www.duzhe888.com/book/8f81ui/)
-- [被奇犽告白以后](https://www.duzhe888.com/book/r3uhe/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1321/index.md)
