@@ -1,15 +1,17 @@
 
 # 看剧文学网 - 书友最值得收藏的小说阅读网
 
-更新时间：2026-08-27 03:24:30
+更新时间：2026-08-28 03:25:02
 
 看剧文学网，精选最好看的小说推荐给大家在线阅读。这里有网络小说大全，包括最火、最热门的小说最新章节，是书友最值得收藏的免费小说阅读网。
 
 - [看剧文学网](https://www.kanju788.com/)
 
 ## 最新小说
+- [我真的只会Ctrl啊！！！](https://www.kanju788.com/book/to4g04/)
 - [人妻O救赎指南](https://www.kanju788.com/book/to4691/)
 - [无限末日副本：我有移动安全屋](https://www.kanju788.com/book/to3rlh/)
+- [我有特殊的升官技巧](https://www.kanju788.com/book/to3lpa/)
 - [夜莺不渡](https://www.kanju788.com/book/to3jpk/)
 - [小寡夫女装直播捞到了封建亡夫](https://www.kanju788.com/book/to3jpg/)
 - [主角前任他分手分不掉了](https://www.kanju788.com/book/to3jpe/)
@@ -76,9 +78,8 @@
 - [我靠卖盲盒复苏华夏神灵](https://www.kanju788.com/book/to3je8/)
 - [我家刀男不可能是诡异BOSS](https://www.kanju788.com/book/to3je6/)
 - [云深不知处](https://www.kanju788.com/book/to3je5/)
-- [完蛋！被恨孕男包围了！](https://www.kanju788.com/book/to3cm1/)
+- [反派人生，易如反掌[快穿]](https://www.kanju788.com/book/to3i45/)
 - [高调装神，猥琐发育](https://www.kanju788.com/book/to3ckd/)
-- [喜恶同因[青梅竹马]](https://www.kanju788.com/book/to31tg/)
 - [[足球]替补门将](https://www.kanju788.com/book/to30on/)
 - [禁止限制文主角转职龙傲天](https://www.kanju788.com/book/to30at/)
 - [捡了龙傲天金手指后](https://www.kanju788.com/book/to305j/)
@@ -86,12 +87,12 @@
 - [我演的不是漂亮圣子攻吗?](https://www.kanju788.com/book/to2n7a/)
 - [[希腊神话]基建拯救世界](https://www.kanju788.com/book/to2l4c/)
 - [九零首富的替嫁小媳妇](https://www.kanju788.com/book/to2i6g/)
+- [始皇闺女躺平失败的日子](https://www.kanju788.com/book/to2i2n/)
 - [为诡异打工，但反封建迷信](https://www.kanju788.com/book/to2d0n/)
 - [渣攻必须he（快穿）](https://www.kanju788.com/book/to2c0l/)
 - [星际第一女A[穿书]](https://www.kanju788.com/book/to2ah6/)
 - [在民俗惊悚片被诸神庇护](https://www.kanju788.com/book/to292n/)
 - [你对寡人的猫有什么意见？](https://www.kanju788.com/book/to28at/)
-- [绿茶男来袭（快穿）](https://www.kanju788.com/book/to26kc/)
 - [闺蜜就不能是妻子吗](https://www.kanju788.com/book/to25d4/)
 - [我是封建大爹的好孕小娇妻](https://www.kanju788.com/book/to21f9/)
 - [和冰山上司隐婚生崽了](https://www.kanju788.com/book/to1ugv/)
@@ -105,15 +106,14 @@
 - [被四皇错看成小动物后](https://www.kanju788.com/book/to1nla/)
 - [壮受虫母今天也想逃](https://www.kanju788.com/book/to1lsc/)
 - [八零恶毒后妈杀疯了](https://www.kanju788.com/book/to1kpb/)
+- [将妹妹嫁给别人后](https://www.kanju788.com/book/to1j23/)
 - [夜偶](https://www.kanju788.com/book/to1hub/)
-- [贵族学院女保安竟是万人迷](https://www.kanju788.com/book/to1hs1/)
 - [星露谷，但大秦帝国](https://www.kanju788.com/book/to1gt0/)
 - [至尊法师克拉克[综英美]](https://www.kanju788.com/book/to1bts/)
 - [是NPC就来和玩家合影](https://www.kanju788.com/book/to1ab9/)
 - [京华无尽夏](https://www.kanju788.com/book/to197l/)
 - [掌中春莺](https://www.kanju788.com/book/to16ia/)
 - [绝对占有](https://www.kanju788.com/book/to15b7/)
-- [暗涌[破镜重圆]](https://www.kanju788.com/book/to12cn/)
 - [道长在诡异世界捉诡](https://www.kanju788.com/book/to11qi/)
 - [人气反派的马甲演绎实录](https://www.kanju788.com/book/to0vs7/)
 - [趁她之危](https://www.kanju788.com/book/to0ure/)
@@ -131,7 +131,6 @@
 - [在尤文图斯养超巨[足球]](https://www.kanju788.com/book/to0bst/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.kanju788.com/book/to0bnl/)
 - [本官早知他是狐狸变的](https://www.kanju788.com/book/to0bin/)
-- [与宿敌他哥契约成婚后](https://www.kanju788.com/book/to0a34/)
 - [区区精灵[西幻]](https://www.kanju788.com/book/to08vb/)
 - [救命！白无常每天都在钓我](https://www.kanju788.com/book/to08bp/)
 - [[西幻]玛赫里魔药店经营实录](https://www.kanju788.com/book/to08bc/)
@@ -144,10 +143,8 @@
 - [被反派暴君听到心声后[穿书]](https://www.kanju788.com/book/tnvclk/)
 - [纯爱宇智波基本恋爱法](https://www.kanju788.com/book/tnvcdv/)
 - [大瑛弟国](https://www.kanju788.com/book/tnvcct/)
-- [千禧年，拆迁分了十栋楼！](https://www.kanju788.com/book/tnvc36/)
 - [[娱乐圈]过分美丽的她](https://www.kanju788.com/book/tnvc07/)
 - [太宗今天又哭了吗](https://www.kanju788.com/book/tnvbvt/)
-- [她是反派的背景板母亲](https://www.kanju788.com/book/tnvbtu/)
 - [古代种田养娃日常](https://www.kanju788.com/book/tnvbst/)
 - [穿成炮灰后我封神了［快穿］](https://www.kanju788.com/book/tnvbrl/)
 - [穿到反派落魄时](https://www.kanju788.com/book/tnvbkm/)
@@ -167,7 +164,6 @@
 - [全民求生:从小木屋到魔法农场](https://www.kanju788.com/book/tnvaes/)
 - [高门小婢](https://www.kanju788.com/book/tnvae0/)
 - [卧底后被港岛大小姐缠上了](https://www.kanju788.com/book/tnvaa4/)
-- [老公对不起](https://www.kanju788.com/book/tnva98/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1348/index.md)

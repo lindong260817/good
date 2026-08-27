@@ -1,7 +1,7 @@
 
 # 科幻188文学网-最新章节全文小说免费阅读
 
-更新时间：2026-08-27 03:25:01
+更新时间：2026-08-28 03:25:34
 
 科幻188文学网给广大网友提供最好的小说阅读服务，全站小说均可免费阅读且无任何弹窗干扰。这里是你寻找最新最全小说内容的理想之地。
 
@@ -80,7 +80,6 @@
 - [[反穿]我的救世主生涯不对劲？](https://www.kehuan188.com/book/56q1tgc/)
 - [反派人生，易如反掌[快穿]](https://www.kehuan188.com/book/56q1suo/)
 - [高调装神，猥琐发育](https://www.kehuan188.com/book/56q1mkc/)
-- [喜恶同因[青梅竹马]](https://www.kehuan188.com/book/56q1co0/)
 - [禁止限制文主角转职龙傲天](https://www.kehuan188.com/book/56q1c41/)
 - [[足球]替补门将](https://www.kehuan188.com/book/56q1b7m/)
 - [魅魔就不能打网球了吗？](https://www.kehuan188.com/book/56q1b13/)
@@ -115,7 +114,6 @@
 - [是NPC就来和玩家合影](https://www.kehuan188.com/book/56pvl2h/)
 - [绝对占有](https://www.kehuan188.com/book/56pvif2/)
 - [掌中春莺](https://www.kehuan188.com/book/56pvgth/)
-- [暗涌[破镜重圆]](https://www.kehuan188.com/book/56pvfbe/)
 - [人气反派的马甲演绎实录](https://www.kehuan188.com/book/56pvcvc/)
 - [[综崩铁]你怎么知道我是令使](https://www.kehuan188.com/book/56pvckf/)
 - [道长在诡异世界捉诡](https://www.kehuan188.com/book/56pvca1/)

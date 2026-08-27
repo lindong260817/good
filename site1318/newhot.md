@@ -1,39 +1,31 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-08-27 03:31:25
+更新时间：2026-08-28 03:32:11
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
 - [书旗小说网](https://www.shuqi687.com/)
 
 ## 最新小说
-- [星际团宠小人鱼](https://www.shuqi687.com/book/8vsmj8b/)
-- [你，后室管理员](https://www.shuqi687.com/book/8vsmj82/)
-- [夺友妻（女尊）](https://www.shuqi687.com/book/8vsmj7c/)
-- [他要和我谈恋爱](https://www.shuqi687.com/book/8vsmj6n/)
-- [[封神]圣人生欲](https://www.shuqi687.com/book/8vsmj6h/)
-- [高调装神，猥琐发育](https://www.shuqi687.com/book/8vsmj6e/)
-- [直男咒术师的限制级游戏](https://www.shuqi687.com/book/8vsmj4f/)
-- [从异世界穿回来后](https://www.shuqi687.com/book/8vsmj2t/)
-- [纯爱宇智波基本恋爱法](https://www.shuqi687.com/book/8vsmj2d/)
-- [我的老公是暴君](https://www.shuqi687.com/book/8vslfau/)
-- [某柯学的正义伙伴](https://www.shuqi687.com/book/8vsjq8f/)
-- [五美元在哥谭活一月](https://www.shuqi687.com/book/8vsjij1/)
-- [我有嘉宾](https://www.shuqi687.com/book/8vsj6ui/)
-- [沈助理又在隐藏他的超能力](https://www.shuqi687.com/book/spao95/)
-- [野比春子穿越事件簿](https://www.shuqi687.com/book/spadc1/)
-- [[全职高手]问就是没钱](https://www.shuqi687.com/book/spa8jp/)
-- [作家与读者](https://www.shuqi687.com/book/spa529/)
-- [绿叶](https://www.shuqi687.com/book/spa189/)
-- [我与龙傲天寿命共享](https://www.shuqi687.com/book/sp9vqs/)
-- [简单罗曼史](https://www.shuqi687.com/book/sp9u4f/)
-- [这谁的沙雕二次元心声！](https://www.shuqi687.com/book/sp9svf/)
-- [老公是松散生命体](https://www.shuqi687.com/book/sp9sc6/)
-- [多梦你一会儿](https://www.shuqi687.com/book/sp9fmn/)
-- [[足球]罗蜜第一志愿](https://www.shuqi687.com/book/sp9eq7/)
-- [拯救世界从扮演反派开始](https://www.shuqi687.com/book/sp9bhp/)
-- [和前女友的心上人he了](https://www.shuqi687.com/book/sp9a9p/)
+- [我在虫族监狱写小说](https://www.shuqi687.com/book/8vsjog2/)
+- [[诡秘之主]乌鸦童话](https://www.shuqi687.com/book/8vsj2kc/)
+- [我演的不是漂亮圣子攻吗?](https://www.shuqi687.com/book/8vsj1pp/)
+- [错嫁春笼（先婚后爱）](https://www.shuqi687.com/book/spak0u/)
+- [闺蜜就不能是妻子吗](https://www.shuqi687.com/book/spaht8/)
+- [迷雾求生，种田玩家也能当榜一？](https://www.shuqi687.com/book/spahnt/)
+- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.shuqi687.com/book/spagj0/)
+- [与清冷O协议结婚后她失忆了](https://www.shuqi687.com/book/spagb1/)
+- [被天使之王骗婚后[诡秘之主]](https://www.shuqi687.com/book/spafqm/)
+- [宝儿楼](https://www.shuqi687.com/book/spaa13/)
+- [邻居小孩太有钱[快穿]](https://www.shuqi687.com/book/spa707/)
+- [重生后雌君追来了](https://www.shuqi687.com/book/spa5cf/)
+- [全星际都想吃我做的菜](https://www.shuqi687.com/book/spa4j9/)
+- [和饲养的黑蛇恋爱后](https://www.shuqi687.com/book/spa2pk/)
+- [骗失忆死对头修合欢道](https://www.shuqi687.com/book/spa0es/)
+- [我将双打队友护至身前，自己站桩躺赢](https://www.shuqi687.com/book/spa06u/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.shuqi687.com/book/sp9gj5/)
+- [海岛求生：生活玩家种田囤货](https://www.shuqi687.com/book/96pv1/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1318/index.md)

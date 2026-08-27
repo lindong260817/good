@@ -1,7 +1,7 @@
 
 # 欣怡书屋 - 免费最新章节小说阅读,全本无弹窗
 
-更新时间：2026-08-27 03:39:13
+更新时间：2026-08-28 03:40:27
 
 欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。
 
@@ -109,7 +109,6 @@
 - [禁止限制文主角转职龙傲天](https://www.znenghs.com/book/5n2gmra/)
 - [始皇闺女躺平失败的日子](https://www.znenghs.com/book/5n2glb6/)
 - [渣攻必须he（快穿）](https://www.znenghs.com/book/i9tvpd/)
-- [喜恶同因[青梅竹马]](https://www.znenghs.com/book/i9tp3d/)
 - [星际第一女A[穿书]](https://www.znenghs.com/book/i9tmi1/)
 - [成为养成系练习生后](https://www.znenghs.com/book/i9tkmo/)
 - [你对寡人的猫有什么意见？](https://www.znenghs.com/book/i9th8k/)
@@ -130,7 +129,6 @@
 - [是NPC就来和玩家合影](https://www.znenghs.com/book/i9soen/)
 - [[希腊神话]基建拯救世界](https://www.znenghs.com/book/i9sm5b/)
 - [将妹妹嫁给别人后](https://www.znenghs.com/book/i9skj4/)
-- [暗涌[破镜重圆]](https://www.znenghs.com/book/i9sj9o/)
 - [道长在诡异世界捉诡](https://www.znenghs.com/book/i9sime/)
 - [掌中春莺](https://www.znenghs.com/book/i9si9e/)
 - [误入反派培养直播后](https://www.znenghs.com/book/i9sh6m/)

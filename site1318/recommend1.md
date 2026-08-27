@@ -1,7 +1,7 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-08-27 03:31:25
+更新时间：2026-08-28 03:32:11
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
@@ -82,19 +82,20 @@
 - [高调装神，猥琐发育](https://www.shuqi687.com/book/8vsmj6e/)
 - [假少爷不想活了](https://www.shuqi687.com/book/8vsmj6b/)
 - [纯爱宇智波基本恋爱法](https://www.shuqi687.com/book/8vsmj2d/)
-- [千禧年，拆迁分了十栋楼！](https://www.shuqi687.com/book/8vsmj1t/)
 - [六零之成了卷王的妹妹](https://www.shuqi687.com/book/8vsmhpf/)
 - [道长他为何那样](https://www.shuqi687.com/book/8vsmhpc/)
 - [古代种田养娃日常](https://www.shuqi687.com/book/8vslsll/)
 - [恶犬品德](https://www.shuqi687.com/book/8vsli5o/)
 - [被反派暴君听到心声后[穿书]](https://www.shuqi687.com/book/8vslfaa/)
-- [老公对不起](https://www.shuqi687.com/book/8vsl53o/)
 - [主角前任他分手分不掉了](https://www.shuqi687.com/book/8vskret/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shuqi687.com/book/8vskirb/)
 - [无限末日副本：我有移动安全屋](https://www.shuqi687.com/book/8vskbsr/)
+- [我有特殊的升官技巧](https://www.shuqi687.com/book/8vsk5vi/)
 - [御兽师，我打工养你啊](https://www.shuqi687.com/book/8vsk3j2/)
+- [反派人生，易如反掌[快穿]](https://www.shuqi687.com/book/8vsk26p/)
 - [七零捡漏日常](https://www.shuqi687.com/book/8vsjpki/)
 - [穿成炮灰后我封神了［快穿］](https://www.shuqi687.com/book/8vsjpd3/)
+- [我真的只会Ctrl啊！！！](https://www.shuqi687.com/book/8vsjpcj/)
 - [日化人生[科研]](https://www.shuqi687.com/book/8vsje1r/)
 - [巨物致富：回乡开钓场](https://www.shuqi687.com/book/8vsjc70/)
 - [魅魔就不能打网球了吗？](https://www.shuqi687.com/book/8vsjbl0/)
@@ -106,10 +107,8 @@
 - [漂亮小瞎子捡到直男龙傲天](https://www.shuqi687.com/book/8vsj473/)
 - [禁止限制文主角转职龙傲天](https://www.shuqi687.com/book/8vsj2u4/)
 - [我演的不是漂亮圣子攻吗?](https://www.shuqi687.com/book/8vsj1pp/)
+- [始皇闺女躺平失败的日子](https://www.shuqi687.com/book/8vsj0es/)
 - [渣攻必须he（快穿）](https://www.shuqi687.com/book/8vsitc6/)
-- [她是反派的背景板母亲](https://www.shuqi687.com/book/spas3v/)
-- [绿茶男来袭（快穿）](https://www.shuqi687.com/book/spaqpf/)
-- [喜恶同因[青梅竹马]](https://www.shuqi687.com/book/spapk6/)
 - [星际第一女A[穿书]](https://www.shuqi687.com/book/spanjr/)
 - [成为养成系练习生后](https://www.shuqi687.com/book/spal1c/)
 - [闺蜜就不能是妻子吗](https://www.shuqi687.com/book/spaht8/)
@@ -122,7 +121,6 @@
 - [和冰山上司隐婚生崽了](https://www.shuqi687.com/book/spa9kk/)
 - [壮受虫母今天也想逃](https://www.shuqi687.com/book/spa911/)
 - [邻居小孩太有钱[快穿]](https://www.shuqi687.com/book/spa707/)
-- [贵族学院女保安竟是万人迷](https://www.shuqi687.com/book/spa0qa/)
 - [京华无尽夏](https://www.shuqi687.com/book/sp9tbj/)
 - [至尊法师克拉克[综英美]](https://www.shuqi687.com/book/sp9ta6/)
 - [绝对占有](https://www.shuqi687.com/book/sp9sa3/)
@@ -130,8 +128,8 @@
 - [夜偶](https://www.shuqi687.com/book/sp9rg0/)
 - [是NPC就来和玩家合影](https://www.shuqi687.com/book/sp9qa0/)
 - [[希腊神话]基建拯救世界](https://www.shuqi687.com/book/sp9liu/)
+- [将妹妹嫁给别人后](https://www.shuqi687.com/book/sp9l2g/)
 - [掌中春莺](https://www.shuqi687.com/book/sp9kt5/)
-- [暗涌[破镜重圆]](https://www.shuqi687.com/book/sp9jqt/)
 - [惊！S级诡异竟是我自己](https://www.shuqi687.com/book/sp9ib0/)
 - [道长在诡异世界捉诡](https://www.shuqi687.com/book/sp9i7u/)
 - [误入反派培养直播后](https://www.shuqi687.com/book/sp9hda/)
@@ -147,7 +145,6 @@
 - [在民俗惊悚片被诸神庇护](https://www.shuqi687.com/book/sp93he/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.shuqi687.com/book/sp927i/)
 - [区区精灵[西幻]](https://www.shuqi687.com/book/sp8uk6/)
-- [与宿敌他哥契约成婚后](https://www.shuqi687.com/book/sp8sjo/)
 - [本官早知他是狐狸变的](https://www.shuqi687.com/book/sp8shs/)
 - [全民求生:从小木屋到魔法农场](https://www.shuqi687.com/book/2s430p/)
 - [大瑛弟国](https://www.shuqi687.com/book/2s42vg/)
@@ -167,7 +164,6 @@
 - [猫猫也要养家糊口](https://www.shuqi687.com/book/96q5o/)
 - [海岛求生：生活玩家种田囤货](https://www.shuqi687.com/book/96pv1/)
 - [清澈女大的六零年代](https://www.shuqi687.com/book/tfeh/)
-- [完蛋！被恨孕男包围了！](https://www.shuqi687.com/book/tfc4/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1318/index.md)

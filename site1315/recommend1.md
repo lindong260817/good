@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-08-27 03:26:18
+更新时间：2026-08-28 03:26:52
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
@@ -109,7 +109,6 @@
 - [我演的不是漂亮圣子攻吗?](https://www.lianzai007.com/book/6g3jgom/)
 - [始皇闺女躺平失败的日子](https://www.lianzai007.com/book/6g3jec7/)
 - [渣攻必须he（快穿）](https://www.lianzai007.com/book/6g3jb7m/)
-- [喜恶同因[青梅竹马]](https://www.lianzai007.com/book/kq1851/)
 - [星际第一女A[穿书]](https://www.lianzai007.com/book/kq1610/)
 - [成为养成系练习生后](https://www.lianzai007.com/book/kq10kf/)
 - [闺蜜就不能是妻子吗](https://www.lianzai007.com/book/kq0vlk/)
@@ -131,7 +130,6 @@
 - [将妹妹嫁给别人后](https://www.lianzai007.com/book/kq057k/)
 - [掌中春莺](https://www.lianzai007.com/book/kq03ue/)
 - [[希腊神话]基建拯救世界](https://www.lianzai007.com/book/kq03mt/)
-- [暗涌[破镜重圆]](https://www.lianzai007.com/book/kq023q/)
 - [道长在诡异世界捉诡](https://www.lianzai007.com/book/kq01rs/)
 - [误入反派培养直播后](https://www.lianzai007.com/book/kq007m/)
 - [性转成真千金靠写文逆袭了](https://www.lianzai007.com/book/kpvvmo/)

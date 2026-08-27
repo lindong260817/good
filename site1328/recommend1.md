@@ -1,7 +1,7 @@
 
 # 新乐文小说 - 最热门免费在线阅读平台 | 玄幻、网游、言情、穿越、都市全本小说
 
-更新时间：2026-08-27 03:26:01
+更新时间：2026-08-28 03:26:35
 
 新乐文小说为您提供一个无广告无弹窗的纯净阅读环境，专注于玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读体验。在这里可以找到最新最热的小说章节更新，享受舒适的阅读时光。
 
@@ -109,7 +109,6 @@
 - [禁止限制文主角转职龙傲天](https://www.ksqinlida.com/book/1sva83c/)
 - [始皇闺女躺平失败的日子](https://www.ksqinlida.com/book/1sva56b/)
 - [渣攻必须he（快穿）](https://www.ksqinlida.com/book/1sva2gj/)
-- [喜恶同因[青梅竹马]](https://www.ksqinlida.com/book/636lla/)
 - [星际第一女A[穿书]](https://www.ksqinlida.com/book/636kbp/)
 - [成为养成系练习生后](https://www.ksqinlida.com/book/636h49/)
 - [迷雾求生，种田玩家也能当榜一？](https://www.ksqinlida.com/book/636f56/)
@@ -131,7 +130,6 @@
 - [掌中春莺](https://www.ksqinlida.com/book/635j9k/)
 - [[希腊神话]基建拯救世界](https://www.ksqinlida.com/book/635j7q/)
 - [将妹妹嫁给别人后](https://www.ksqinlida.com/book/635ite/)
-- [暗涌[破镜重圆]](https://www.ksqinlida.com/book/635hja/)
 - [道长在诡异世界捉诡](https://www.ksqinlida.com/book/635h0a/)
 - [误入反派培养直播后](https://www.ksqinlida.com/book/635fsq/)
 - [性转成真千金靠写文逆袭了](https://www.ksqinlida.com/book/635e1a/)

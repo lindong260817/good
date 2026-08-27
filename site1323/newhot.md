@@ -1,39 +1,31 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-08-27 03:37:33
+更新时间：2026-08-28 03:38:49
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
 - [阅读小说网](https://www.yuedu687.com/)
 
 ## 最新小说
-- [夺友妻（女尊）](https://www.yuedu687.com/book/2bu5ioq/)
-- [你，后室管理员](https://www.yuedu687.com/book/2bu5ioo/)
-- [他要和我谈恋爱](https://www.yuedu687.com/book/2bu5io5/)
-- [星际团宠小人鱼](https://www.yuedu687.com/book/2bu5ink/)
-- [[封神]圣人生欲](https://www.yuedu687.com/book/2bu5ine/)
-- [高调装神，猥琐发育](https://www.yuedu687.com/book/2bu5imi/)
-- [直男咒术师的限制级游戏](https://www.yuedu687.com/book/2bu5iis/)
-- [纯爱宇智波基本恋爱法](https://www.yuedu687.com/book/2bu5iim/)
-- [某柯学的正义伙伴](https://www.yuedu687.com/book/2bu2q4r/)
-- [我的老公是暴君](https://www.yuedu687.com/book/2bu2k64/)
-- [五美元在哥谭活一月](https://www.yuedu687.com/book/2bu2eh0/)
-- [我有嘉宾](https://www.yuedu687.com/book/2bu27br/)
-- [沈助理又在隐藏他的超能力](https://www.yuedu687.com/book/7j2na0/)
-- [野比春子穿越事件簿](https://www.yuedu687.com/book/7j27d5/)
-- [[全职高手]问就是没钱](https://www.yuedu687.com/book/7j270l/)
-- [绿叶](https://www.yuedu687.com/book/7j1va3/)
-- [作家与读者](https://www.yuedu687.com/book/7j1uho/)
-- [我与龙傲天寿命共享](https://www.yuedu687.com/book/7j1spq/)
-- [简单罗曼史](https://www.yuedu687.com/book/7j1s5o/)
-- [老公是松散生命体](https://www.yuedu687.com/book/7j1qih/)
-- [这谁的沙雕二次元心声！](https://www.yuedu687.com/book/7j1pb9/)
-- [多梦你一会儿](https://www.yuedu687.com/book/7j1ck7/)
-- [[足球]罗蜜第一志愿](https://www.yuedu687.com/book/7j1bi8/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.yuedu687.com/book/7j1b6o/)
-- [拯救世界从扮演反派开始](https://www.yuedu687.com/book/7j196g/)
-- [和前女友的心上人he了](https://www.yuedu687.com/book/7j13f8/)
+- [我在虫族监狱写小说](https://www.yuedu687.com/book/2bu2or8/)
+- [我演的不是漂亮圣子攻吗?](https://www.yuedu687.com/book/2bu231k/)
+- [[诡秘之主]乌鸦童话](https://www.yuedu687.com/book/2bu1vqi/)
+- [错嫁春笼（先婚后爱）](https://www.yuedu687.com/book/7j2hll/)
+- [被天使之王骗婚后[诡秘之主]](https://www.yuedu687.com/book/7j2egu/)
+- [与清冷O协议结婚后她失忆了](https://www.yuedu687.com/book/7j2df7/)
+- [闺蜜就不能是妻子吗](https://www.yuedu687.com/book/7j2cma/)
+- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.yuedu687.com/book/7j2bi9/)
+- [迷雾求生，种田玩家也能当榜一？](https://www.yuedu687.com/book/7j2adi/)
+- [邻居小孩太有钱[快穿]](https://www.yuedu687.com/book/7j26h2/)
+- [宝儿楼](https://www.yuedu687.com/book/7j24bc/)
+- [重生后雌君追来了](https://www.yuedu687.com/book/7j23q1/)
+- [全星际都想吃我做的菜](https://www.yuedu687.com/book/7j21pe/)
+- [和饲养的黑蛇恋爱后](https://www.yuedu687.com/book/7j1v58/)
+- [我将双打队友护至身前，自己站桩躺赢](https://www.yuedu687.com/book/7j1tu3/)
+- [骗失忆死对头修合欢道](https://www.yuedu687.com/book/7j1puk/)
+- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.yuedu687.com/book/7j1d8a/)
+- [海岛求生：生活玩家种田囤货](https://www.yuedu687.com/book/o9kof/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1323/index.md)
