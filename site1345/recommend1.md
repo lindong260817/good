@@ -1,7 +1,7 @@
 
 # 探秘笔神阁小说-好看小说快速更新,页面清新流畅的免费小说网
 
-更新时间：2026-08-27 03:32:28
+更新时间：2026-08-28 03:33:27
 
 探秘笔神阁小说收录了大量受欢迎的小说作品，以极快的速度进行更新，并且保证用户在阅读时能够享受到清新流畅的页面体验。作为一个完全免费的小说网站，它深受广大网友的喜爱。
 
@@ -81,7 +81,6 @@
 - [反派人生，易如反掌[快穿]](https://www.tanmi818.com/book/977e4p7/)
 - [高调装神，猥琐发育](https://www.tanmi818.com/book/977dv7j/)
 - [[足球]替补门将](https://www.tanmi818.com/book/977dkgg/)
-- [喜恶同因[青梅竹马]](https://www.tanmi818.com/book/977dk3c/)
 - [魅魔就不能打网球了吗？](https://www.tanmi818.com/book/977dk2i/)
 - [捡了龙傲天金手指后](https://www.tanmi818.com/book/977djqq/)
 - [禁止限制文主角转职龙傲天](https://www.tanmi818.com/book/977dij9/)
@@ -115,7 +114,6 @@
 - [京华无尽夏](https://www.tanmi818.com/book/977brni/)
 - [掌中春莺](https://www.tanmi818.com/book/977bqed/)
 - [绝对占有](https://www.tanmi818.com/book/977bpaf/)
-- [暗涌[破镜重圆]](https://www.tanmi818.com/book/977bn2a/)
 - [人气反派的马甲演绎实录](https://www.tanmi818.com/book/977bimf/)
 - [道长在诡异世界捉诡](https://www.tanmi818.com/book/977bicd/)
 - [趁她之危](https://www.tanmi818.com/book/977bf8b/)

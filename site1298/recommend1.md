@@ -1,7 +1,7 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-08-27 03:25:43
+更新时间：2026-08-28 03:26:17
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
@@ -109,7 +109,6 @@
 - [禁止限制文主角转职龙傲天](https://www.kmjike.com/book/4mls3tg/)
 - [始皇闺女躺平失败的日子](https://www.kmjike.com/book/4mls2c0/)
 - [渣攻必须he（快穿）](https://www.kmjike.com/book/4mlrufv/)
-- [喜恶同因[青梅竹马]](https://www.kmjike.com/book/f28h77/)
 - [星际第一女A[穿书]](https://www.kmjike.com/book/f28d3k/)
 - [成为养成系练习生后](https://www.kmjike.com/book/f28a2d/)
 - [迷雾求生，种田玩家也能当榜一？](https://www.kmjike.com/book/f2881t/)
@@ -131,7 +130,6 @@
 - [[希腊神话]基建拯救世界](https://www.kmjike.com/book/f27duv/)
 - [将妹妹嫁给别人后](https://www.kmjike.com/book/f27d9h/)
 - [掌中春莺](https://www.kmjike.com/book/f27cqt/)
-- [暗涌[破镜重圆]](https://www.kmjike.com/book/f2799l/)
 - [道长在诡异世界捉诡](https://www.kmjike.com/book/f278nu/)
 - [误入反派培养直播后](https://www.kmjike.com/book/f278ku/)
 - [惊！S级诡异竟是我自己](https://www.kmjike.com/book/f27824/)

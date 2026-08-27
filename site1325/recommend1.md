@@ -1,7 +1,7 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-08-27 03:36:16
+更新时间：2026-08-28 03:37:26
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。
 
@@ -109,7 +109,6 @@
 - [漂亮小瞎子捡到直男龙傲天](https://www.xqwz8bk.com/book/1igihso/)
 - [始皇闺女躺平失败的日子](https://www.xqwz8bk.com/book/1igignt/)
 - [渣攻必须he（快穿）](https://www.xqwz8bk.com/book/1igibq0/)
-- [喜恶同因[青梅竹马]](https://www.xqwz8bk.com/book/51nilc/)
 - [星际第一女A[穿书]](https://www.xqwz8bk.com/book/51nehg/)
 - [成为养成系练习生后](https://www.xqwz8bk.com/book/51ncro/)
 - [你对寡人的猫有什么意见？](https://www.xqwz8bk.com/book/51nao6/)
@@ -132,7 +131,6 @@
 - [[希腊神话]基建拯救世界](https://www.xqwz8bk.com/book/51me89/)
 - [道长在诡异世界捉诡](https://www.xqwz8bk.com/book/51md3l/)
 - [掌中春莺](https://www.xqwz8bk.com/book/51mccd/)
-- [暗涌[破镜重圆]](https://www.xqwz8bk.com/book/51magn/)
 - [性转成真千金靠写文逆袭了](https://www.xqwz8bk.com/book/51ma52/)
 - [误入反派培养直播后](https://www.xqwz8bk.com/book/51ma0q/)
 - [惊！S级诡异竟是我自己](https://www.xqwz8bk.com/book/51m7nv/)

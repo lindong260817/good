@@ -1,7 +1,7 @@
 
 # 哲理书客吧-全本小说免费阅读及txt下载,最新章节无弹窗
 
-更新时间：2026-08-27 03:38:41
+更新时间：2026-08-28 03:39:55
 
 哲理书客吧提供最快更新的热门网络小说最新章节，支持全本小说在线免费阅读与txt电子书打包下载服务。收录多本经典好看的小说，并承诺无广告弹窗清爽阅读体验，是小说爱好者的理想选择。
 
@@ -80,7 +80,6 @@
 - [[反穿]我的救世主生涯不对劲？](https://www.zheli518.com/book/4tapak8/)
 - [反派人生，易如反掌[快穿]](https://www.zheli518.com/book/4tapa2b/)
 - [高调装神，猥琐发育](https://www.zheli518.com/book/4tap3nr/)
-- [喜恶同因[青梅竹马]](https://www.zheli518.com/book/4taoqfl/)
 - [禁止限制文主角转职龙傲天](https://www.zheli518.com/book/4taopvg/)
 - [魅魔就不能打网球了吗？](https://www.zheli518.com/book/4taophk/)
 - [捡了龙傲天金手指后](https://www.zheli518.com/book/4taoonk/)
@@ -115,7 +114,6 @@
 - [京华无尽夏](https://www.zheli518.com/book/4tan1rr/)
 - [绝对占有](https://www.zheli518.com/book/4tamuq7/)
 - [掌中春莺](https://www.zheli518.com/book/4tamubu/)
-- [暗涌[破镜重圆]](https://www.zheli518.com/book/4tamshk/)
 - [[综崩铁]你怎么知道我是令使](https://www.zheli518.com/book/4tampr6/)
 - [人气反派的马甲演绎实录](https://www.zheli518.com/book/4tampdo/)
 - [道长在诡异世界捉诡](https://www.zheli518.com/book/4tamoqo/)

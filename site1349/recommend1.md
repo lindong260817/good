@@ -1,7 +1,7 @@
 
 # 文学小说668 - 全球最新最热的小说阅读平台
 
-更新时间：2026-08-27 03:33:50
+更新时间：2026-08-28 03:35:01
 
 文学小说668是全球最新、最热的小说阅读网站之一，汇集了包括言情小说、玄幻小说、穿越小说在内的各类优质小说资源，让读者能够尽情享受阅读的乐趣。
 
@@ -82,7 +82,6 @@
 - [高调装神，猥琐发育](https://www.wenxue668.com/book/44fdfj3/)
 - [[足球]替补门将](https://www.wenxue668.com/book/44fd4up/)
 - [禁止限制文主角转职龙傲天](https://www.wenxue668.com/book/44fd46q/)
-- [喜恶同因[青梅竹马]](https://www.wenxue668.com/book/44fd3ps/)
 - [捡了龙傲天金手指后](https://www.wenxue668.com/book/44fd3pk/)
 - [魅魔就不能打网球了吗？](https://www.wenxue668.com/book/44fd38i/)
 - [我演的不是漂亮圣子攻吗?](https://www.wenxue668.com/book/44fcsrq/)
@@ -115,7 +114,6 @@
 - [是NPC就来和玩家合影](https://www.wenxue668.com/book/44fbb7l/)
 - [掌中春莺](https://www.wenxue668.com/book/44fb9ms/)
 - [绝对占有](https://www.wenxue668.com/book/44fb92a/)
-- [暗涌[破镜重圆]](https://www.wenxue668.com/book/44fb5fh/)
 - [人气反派的马甲演绎实录](https://www.wenxue668.com/book/44fb2vm/)
 - [道长在诡异世界捉诡](https://www.wenxue668.com/book/44fb2vl/)
 - [趁她之危](https://www.wenxue668.com/book/44fb1of/)

@@ -1,7 +1,7 @@
 
 # 春日书屋-免费热门小说在线阅读平台|晋江文学|全本免费畅读
 
-更新时间：2026-08-27 03:30:40
+更新时间：2026-08-28 03:31:20
 
 春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！
 
@@ -89,7 +89,6 @@
 - [被反派暴君听到心声后[穿书]](https://www.shenyuanhg.com/book/7gic5v9/)
 - [[西幻]玛赫里魔药店经营实录](https://www.shenyuanhg.com/book/7gic5gd/)
 - [我演的不是漂亮圣子攻吗?](https://www.shenyuanhg.com/book/7gic436/)
-- [喜恶同因[青梅竹马]](https://www.shenyuanhg.com/book/7gic1gd/)
 - [[希腊神话]基建拯救世界](https://www.shenyuanhg.com/book/7gibrd1/)
 - [始皇闺女躺平失败的日子](https://www.shenyuanhg.com/book/7gibphs/)
 - [九零首富的替嫁小媳妇](https://www.shenyuanhg.com/book/7gibn9p/)
@@ -121,7 +120,6 @@
 - [绝对占有](https://www.shenyuanhg.com/book/7giaiq3/)
 - [被四皇错看成小动物后](https://www.shenyuanhg.com/book/7giagru/)
 - [掌中春莺](https://www.shenyuanhg.com/book/7giafs8/)
-- [暗涌[破镜重圆]](https://www.shenyuanhg.com/book/7giac8m/)
 - [道长在诡异世界捉诡](https://www.shenyuanhg.com/book/7giab09/)
 - [人气反派的马甲演绎实录](https://www.shenyuanhg.com/book/7gia84k/)
 - [雇佣毛茸茸开农场](https://www.shenyuanhg.com/book/7gia7b3/)

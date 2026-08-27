@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-08-27 03:19:02
+更新时间：2026-08-28 03:19:23
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -81,18 +81,19 @@
 - [李师傅拳打好莱坞[六零]](https://www.chuangyi1687.com/book/1hvgooi/)
 - [高调装神，猥琐发育](https://www.chuangyi1687.com/book/1hvgooe/)
 - [假少爷不想活了](https://www.chuangyi1687.com/book/1hvgood/)
-- [千禧年，拆迁分了十栋楼！](https://www.chuangyi1687.com/book/1hvgont/)
 - [纯爱宇智波基本恋爱法](https://www.chuangyi1687.com/book/1hvgojv/)
 - [六零之成了卷王的妹妹](https://www.chuangyi1687.com/book/1hvgnbq/)
 - [道长他为何那样](https://www.chuangyi1687.com/book/1hvgnbb/)
 - [古代种田养娃日常](https://www.chuangyi1687.com/book/1hvg29s/)
 - [恶犬品德](https://www.chuangyi1687.com/book/1hvfnqf/)
 - [被反派暴君听到心声后[穿书]](https://www.chuangyi1687.com/book/1hvfkqb/)
-- [老公对不起](https://www.chuangyi1687.com/book/1hvfapp/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.chuangyi1687.com/book/1hvf6d2/)
 - [主角前任他分手分不掉了](https://www.chuangyi1687.com/book/1hvf5f2/)
 - [无限末日副本：我有移动安全屋](https://www.chuangyi1687.com/book/1hvehk9/)
+- [我有特殊的升官技巧](https://www.chuangyi1687.com/book/1hvebhu/)
 - [御兽师，我打工养你啊](https://www.chuangyi1687.com/book/1hve9dc/)
+- [反派人生，易如反掌[快穿]](https://www.chuangyi1687.com/book/1hve84m/)
+- [我真的只会Ctrl啊！！！](https://www.chuangyi1687.com/book/1hvdvj1/)
 - [七零捡漏日常](https://www.chuangyi1687.com/book/1hvdvf0/)
 - [穿成炮灰后我封神了［快穿］](https://www.chuangyi1687.com/book/1hvdvc7/)
 - [日化人生[科研]](https://www.chuangyi1687.com/book/1hvdja9/)
@@ -106,10 +107,8 @@
 - [漂亮小瞎子捡到直男龙傲天](https://www.chuangyi1687.com/book/1hvd9p4/)
 - [我演的不是漂亮圣子攻吗?](https://www.chuangyi1687.com/book/1hvd7av/)
 - [禁止限制文主角转职龙傲天](https://www.chuangyi1687.com/book/1hvd5bb/)
+- [始皇闺女躺平失败的日子](https://www.chuangyi1687.com/book/1hvd4l2/)
 - [渣攻必须he（快穿）](https://www.chuangyi1687.com/book/1hvd2cq/)
-- [她是反派的背景板母亲](https://www.chuangyi1687.com/book/500o0c/)
-- [喜恶同因[青梅竹马]](https://www.chuangyi1687.com/book/500k9p/)
-- [绿茶男来袭（快穿）](https://www.chuangyi1687.com/book/500jlb/)
 - [星际第一女A[穿书]](https://www.chuangyi1687.com/book/500gck/)
 - [成为养成系练习生后](https://www.chuangyi1687.com/book/500d4n/)
 - [迷雾求生，种田玩家也能当榜一？](https://www.chuangyi1687.com/book/500c4u/)
@@ -122,7 +121,6 @@
 - [和冰山上司隐婚生崽了](https://www.chuangyi1687.com/book/50041i/)
 - [邻居小孩太有钱[快穿]](https://www.chuangyi1687.com/book/5003if/)
 - [壮受虫母今天也想逃](https://www.chuangyi1687.com/book/50011i/)
-- [贵族学院女保安竟是万人迷](https://www.chuangyi1687.com/book/4vvqhk/)
 - [京华无尽夏](https://www.chuangyi1687.com/book/4vvmam/)
 - [夜偶](https://www.chuangyi1687.com/book/4vvm7p/)
 - [绝对占有](https://www.chuangyi1687.com/book/4vvldu/)
@@ -130,9 +128,9 @@
 - [至尊法师克拉克[综英美]](https://www.chuangyi1687.com/book/4vvkrv/)
 - [星露谷，但大秦帝国](https://www.chuangyi1687.com/book/4vvkj4/)
 - [掌中春莺](https://www.chuangyi1687.com/book/4vvhfb/)
+- [将妹妹嫁给别人后](https://www.chuangyi1687.com/book/4vvgrp/)
 - [[希腊神话]基建拯救世界](https://www.chuangyi1687.com/book/4vvgd2/)
 - [误入反派培养直播后](https://www.chuangyi1687.com/book/4vvef4/)
-- [暗涌[破镜重圆]](https://www.chuangyi1687.com/book/4vvdcc/)
 - [道长在诡异世界捉诡](https://www.chuangyi1687.com/book/4vvcge/)
 - [性转成真千金靠写文逆袭了](https://www.chuangyi1687.com/book/4vvbjb/)
 - [惊！S级诡异竟是我自己](https://www.chuangyi1687.com/book/4vvb23/)
@@ -147,7 +145,6 @@
 - [在民俗惊悚片被诸神庇护](https://www.chuangyi1687.com/book/4vutmn/)
 - [魏尔伦猫猫能有什么坏心思呢](https://www.chuangyi1687.com/book/4vuqqr/)
 - [区区精灵[西幻]](https://www.chuangyi1687.com/book/4vuple/)
-- [与宿敌他哥契约成婚后](https://www.chuangyi1687.com/book/4vupfd/)
 - [本官早知他是狐狸变的](https://www.chuangyi1687.com/book/4vuofr/)
 - [替嫁后咸鱼继母佛系日常](https://www.chuangyi1687.com/book/fvs3l/)
 - [高门小婢](https://www.chuangyi1687.com/book/fvrv2/)
@@ -165,7 +162,6 @@
 - [如何扮演源氏重宝](https://www.chuangyi1687.com/book/fvq09/)
 - [猫猫也要养家糊口](https://www.chuangyi1687.com/book/fvq05/)
 - [捡了龙傲天金手指后](https://www.chuangyi1687.com/book/1j6k3/)
-- [完蛋！被恨孕男包围了！](https://www.chuangyi1687.com/book/1j6f7/)
 - [海岛求生：生活玩家种田囤货](https://www.chuangyi1687.com/book/1j623/)
 - [警察，但犯罪大师系统[刑侦]](https://www.chuangyi1687.com/book/1j5r0/)
 ## 相关内容

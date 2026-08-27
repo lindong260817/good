@@ -1,7 +1,7 @@
 
 # 文学小说网手机版_好看的文学小说TXT下载,无弹窗手机小说网
 
-更新时间：2026-08-27 03:33:31
+更新时间：2026-08-28 03:34:43
 
 文学小说网收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者最值得收藏的网络小说阅读网,精彩小说尽在文学小说网(无弹窗小说网)。
 
@@ -109,7 +109,6 @@
 - [漂亮小瞎子捡到直男龙傲天](https://www.wenxue521.com/book/93oic0v/)
 - [始皇闺女躺平失败的日子](https://www.wenxue521.com/book/93oi9ud/)
 - [渣攻必须he（快穿）](https://www.wenxue521.com/book/93oi7fk/)
-- [喜恶同因[青梅竹马]](https://www.wenxue521.com/book/t5nggk/)
 - [星际第一女A[穿书]](https://www.wenxue521.com/book/t5nfh2/)
 - [成为养成系练习生后](https://www.wenxue521.com/book/t5nb1m/)
 - [你对寡人的猫有什么意见？](https://www.wenxue521.com/book/t5n8jv/)
@@ -130,7 +129,6 @@
 - [是NPC就来和玩家合影](https://www.wenxue521.com/book/t5mhrp/)
 - [将妹妹嫁给别人后](https://www.wenxue521.com/book/t5mfg6/)
 - [[希腊神话]基建拯救世界](https://www.wenxue521.com/book/t5mf5j/)
-- [暗涌[破镜重圆]](https://www.wenxue521.com/book/t5mcg5/)
 - [道长在诡异世界捉诡](https://www.wenxue521.com/book/t5mc4a/)
 - [掌中春莺](https://www.wenxue521.com/book/t5m9ot/)
 - [性转成真千金靠写文逆袭了](https://www.wenxue521.com/book/t5m91c/)

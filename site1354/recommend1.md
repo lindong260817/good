@@ -1,7 +1,7 @@
 
 # 阅读大文学 - 弘扬华夏文化的综合小说阅读平台
 
-更新时间：2026-08-27 03:37:19
+更新时间：2026-08-28 03:38:35
 
 阅读大文学致力于弘扬华夏文化，提供丰富的小说资源供免费阅读，涵盖但不限于古典文学、现代文学、当代文学及各类流行小说如言情、都市、玄幻等。
 
@@ -81,7 +81,6 @@
 - [反派人生，易如反掌[快穿]](https://www.yuedu188.com/book/1egq5te/)
 - [高调装神，猥琐发育](https://www.yuedu188.com/book/1egq124/)
 - [[足球]替补门将](https://www.yuedu188.com/book/1egpm2l/)
-- [喜恶同因[青梅竹马]](https://www.yuedu188.com/book/1egplvl/)
 - [禁止限制文主角转职龙傲天](https://www.yuedu188.com/book/1egpl9t/)
 - [捡了龙傲天金手指后](https://www.yuedu188.com/book/1egpl94/)
 - [魅魔就不能打网球了吗？](https://www.yuedu188.com/book/1egpkuf/)
@@ -115,7 +114,6 @@
 - [是NPC就来和玩家合影](https://www.yuedu188.com/book/4ktngd/)
 - [绝对占有](https://www.yuedu188.com/book/4ktm0i/)
 - [掌中春莺](https://www.yuedu188.com/book/4ktl6c/)
-- [暗涌[破镜重圆]](https://www.yuedu188.com/book/4ktir2/)
 - [趁她之危](https://www.yuedu188.com/book/4ktil2/)
 - [道长在诡异世界捉诡](https://www.yuedu188.com/book/4ktfrq/)
 - [人气反派的马甲演绎实录](https://www.yuedu188.com/book/4ktff1/)

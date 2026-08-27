@@ -1,14 +1,18 @@
 
 # 曹操SPA小说 - 小说的海洋，文学的殿堂 | 在线阅读与下载原创小说
 
-更新时间：2026-08-27 03:18:42
+更新时间：2026-08-28 03:18:57
 
 曹操SPA小说是一个专注于优质小说和文学创作的网站，这里是书迷们的天堂，提供丰富的原创网络小说、经典文学作品在线阅读与下载，致力于打造一个充满灵感与创意的文学世界。
 
 - [曹操SPA小说](https://www.caocaospa.com/)
 
 ## 最新小说
-- [完蛋！被恨孕男包围了！](https://www.caocaospa.com/book/8q1p7ph/)
+- [反派人生，易如反掌[快穿]](https://www.caocaospa.com/book/8q1qm2u/)
+- [始皇闺女躺平失败的日子](https://www.caocaospa.com/book/8q1ql2t/)
+- [将妹妹嫁给别人后](https://www.caocaospa.com/book/8q1qkgo/)
+- [我真的只会Ctrl啊！！！](https://www.caocaospa.com/book/8q1qk3e/)
+- [我有特殊的升官技巧](https://www.caocaospa.com/book/8q1qjq1/)
 - [高门小婢](https://www.caocaospa.com/book/8q1p7pd/)
 - [全民求生:从小木屋到魔法农场](https://www.caocaospa.com/book/8q1p7o7/)
 - [趁她之危](https://www.caocaospa.com/book/8q1p7o1/)
@@ -22,13 +26,9 @@
 - [分手后与诱系妻子再度热恋](https://www.caocaospa.com/book/8q1p7kq/)
 - [在民俗惊悚片被诸神庇护](https://www.caocaospa.com/book/8q1p7kj/)
 - [神之子严胜](https://www.caocaospa.com/book/8q1p7je/)
-- [她是反派的背景板母亲](https://www.caocaospa.com/book/8q1p7jd/)
 - [彭格列的大空](https://www.caocaospa.com/book/8q1p7i5/)
-- [千禧年，拆迁分了十栋楼！](https://www.caocaospa.com/book/8q1p7i3/)
 - [病弱世子娇养手札](https://www.caocaospa.com/book/8q1p7ho/)
-- [贵族学院女保安竟是万人迷](https://www.caocaospa.com/book/8q1p7hj/)
 - [太宗今天又哭了吗](https://www.caocaospa.com/book/8q1p7hh/)
-- [老公对不起](https://www.caocaospa.com/book/8q1p7h7/)
 - [如何扮演源氏重宝](https://www.caocaospa.com/book/8q1p7fv/)
 - [宿敌为我而死后](https://www.caocaospa.com/book/8q1p7fh/)
 - [御兽师，我打工养你啊](https://www.caocaospa.com/book/8q1p7ff/)
@@ -70,11 +70,9 @@
 - [魏尔伦猫猫能有什么坏心思呢](https://www.caocaospa.com/book/8q1p6sc/)
 - [道长在诡异世界捉诡](https://www.caocaospa.com/book/8q1p6s3/)
 - [被四皇错看成小动物后](https://www.caocaospa.com/book/8q1p6r4/)
-- [绿茶男来袭（快穿）](https://www.caocaospa.com/book/8q1p6qi/)
 - [巫女的乱世逃荒记](https://www.caocaospa.com/book/8q1p6qa/)
 - [虫族雌兄，你好香啊](https://www.caocaospa.com/book/8q1p6oe/)
 - [为诡异打工，但反封建迷信](https://www.caocaospa.com/book/8q1p6nj/)
-- [喜恶同因[青梅竹马]](https://www.caocaospa.com/book/8q1p6nh/)
 - [[娱乐圈]过分美丽的她](https://www.caocaospa.com/book/8q1p6ls/)
 - [五十年代港城日常](https://www.caocaospa.com/book/8q1p6lc/)
 - [人妻O救赎指南](https://www.caocaospa.com/book/8q1p6kb/)
@@ -108,8 +106,6 @@
 - [星际团宠小人鱼](https://www.caocaospa.com/book/8q1p5tj/)
 - [渣攻必须he（快穿）](https://www.caocaospa.com/book/8q1p5t5/)
 - [[足球]小甜饼](https://www.caocaospa.com/book/8q1p5s2/)
-- [暗涌[破镜重圆]](https://www.caocaospa.com/book/8q1p5r5/)
-- [与宿敌他哥契约成婚后](https://www.caocaospa.com/book/8q1p5r0/)
 - [娶了女装心机太子](https://www.caocaospa.com/book/8q1p5qu/)
 - [[综英美]穿过你的黑发我的手](https://www.caocaospa.com/book/8q1p5pp/)
 - [日化人生[科研]](https://www.caocaospa.com/book/8q1p5of/)
