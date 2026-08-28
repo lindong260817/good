@@ -1,18 +1,44 @@
 
 # 新华 MBA雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-08-28 03:36:54
+更新时间：2026-08-29 03:38:12
 
 新华 MBA雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。
 
 - [新华MBA雷火小说网](https://www.xhmba.com/)
 
 ## 最新小说
-- [我演的不是漂亮圣子攻吗?](https://www.xhmba.com/book/7mita4t/)
-- [闺蜜就不能是妻子吗](https://www.xhmba.com/book/7mit9ob/)
-- [海岛求生：生活玩家种田囤货](https://www.xhmba.com/book/7mit913/)
-- [邻居小孩太有钱[快穿]](https://www.xhmba.com/book/7mit84m/)
-- [迷雾求生，种田玩家也能当榜一？](https://www.xhmba.com/book/7mit7ed/)
+- [微臣怜惜公主](https://www.xhmba.com/book/7mj0jp2/)
+- [老公是松散生命体](https://www.xhmba.com/book/7mj0i00/)
+- [法外狂猫](https://www.xhmba.com/book/7mj0gdu/)
+- [若清晨所见之蓝](https://www.xhmba.com/book/7mj0bvk/)
+- [沈助理又在隐藏他的超能力](https://www.xhmba.com/book/7mj06m0/)
+- [就算是龙傲天也不可以[快穿]](https://www.xhmba.com/book/7mj06bs/)
+- [系统不许我摆烂](https://www.xhmba.com/book/7mj01oi/)
+- [多梦你一会儿](https://www.xhmba.com/book/7mivve5/)
+- [直男咒术师的限制级游戏](https://www.xhmba.com/book/7mivt1v/)
+- [穿为清冷影后的污点A](https://www.xhmba.com/book/7mivsjm/)
+- [这谁的沙雕二次元心声！](https://www.xhmba.com/book/7mivr13/)
+- [和前女友的心上人he了](https://www.xhmba.com/book/7mivp0f/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.xhmba.com/book/7mivolb/)
+- [[足球]小小鸟堂堂来袭](https://www.xhmba.com/book/7mivo3l/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.xhmba.com/book/7mivlmv/)
+- [拯救世界从扮演反派开始](https://www.xhmba.com/book/7mivkkf/)
+- [[综武侠]有间民宿](https://www.xhmba.com/book/7mivi31/)
+- [忍界观察日记](https://www.xhmba.com/book/7mivi1e/)
+- [契约情人](https://www.xhmba.com/book/7mivhev/)
+- [[足球]罗蜜第一志愿](https://www.xhmba.com/book/7mivh0u/)
+- [关于我虚构了一个男友这件事](https://www.xhmba.com/book/7mivfvt/)
+- [某柯学的正义伙伴](https://www.xhmba.com/book/7mivfb0/)
+- [一枝枝怨](https://www.xhmba.com/book/7mivc3c/)
+- [好兄弟暴富后非要跟我结婚](https://www.xhmba.com/book/7mivbgc/)
+- [在千禧年的伦敦当女巫](https://www.xhmba.com/book/7miuli8/)
+- [井闼山经理每天都被挖墙脚](https://www.xhmba.com/book/7miuk40/)
+- [绿叶](https://www.xhmba.com/book/7miujqo/)
+- [你，后室管理员](https://www.xhmba.com/book/7mit9dn/)
+- [纯爱宇智波基本恋爱法](https://www.xhmba.com/book/7mit9c0/)
+- [星际团宠小人鱼](https://www.xhmba.com/book/7mit8o9/)
+- [分手后与诱系妻子再度热恋](https://www.xhmba.com/book/7mit87o/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1410/index.md)

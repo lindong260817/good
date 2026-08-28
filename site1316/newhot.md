@@ -1,31 +1,38 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-08-28 03:19:23
+更新时间：2026-08-29 03:19:53
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
 - [创意小说网](https://www.chuangyi1687.com/)
 
 ## 最新小说
-- [我在虫族监狱写小说](https://www.chuangyi1687.com/book/1hvdu0o/)
-- [[诡秘之主]乌鸦童话](https://www.chuangyi1687.com/book/1hvd948/)
-- [我演的不是漂亮圣子攻吗?](https://www.chuangyi1687.com/book/1hvd7av/)
-- [错嫁春笼（先婚后爱）](https://www.chuangyi1687.com/book/500eda/)
-- [被天使之王骗婚后[诡秘之主]](https://www.chuangyi1687.com/book/500c54/)
-- [迷雾求生，种田玩家也能当榜一？](https://www.chuangyi1687.com/book/500c4u/)
-- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.chuangyi1687.com/book/500b1k/)
-- [与清冷O协议结婚后她失忆了](https://www.chuangyi1687.com/book/500b0e/)
-- [闺蜜就不能是妻子吗](https://www.chuangyi1687.com/book/5009ir/)
-- [宝儿楼](https://www.chuangyi1687.com/book/50067n/)
-- [邻居小孩太有钱[快穿]](https://www.chuangyi1687.com/book/5003if/)
-- [全星际都想吃我做的菜](https://www.chuangyi1687.com/book/50007p/)
-- [重生后雌君追来了](https://www.chuangyi1687.com/book/4vvu84/)
-- [和饲养的黑蛇恋爱后](https://www.chuangyi1687.com/book/4vvsrs/)
-- [骗失忆死对头修合欢道](https://www.chuangyi1687.com/book/4vvohq/)
-- [我将双打队友护至身前，自己站桩躺赢](https://www.chuangyi1687.com/book/4vvndr/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.chuangyi1687.com/book/4vvavq/)
-- [海岛求生：生活玩家种田囤货](https://www.chuangyi1687.com/book/1j623/)
+- [井闼山经理每天都被挖墙脚](https://www.chuangyi1687.com/book/1hvgouu/)
+- [在千禧年的伦敦当女巫](https://www.chuangyi1687.com/book/1hvgosd/)
+- [分手后与诱系妻子再度热恋](https://www.chuangyi1687.com/book/1hvgoqh/)
+- [星际团宠小人鱼](https://www.chuangyi1687.com/book/1hvgopt/)
+- [你，后室管理员](https://www.chuangyi1687.com/book/1hvgop8/)
+- [纯爱宇智波基本恋爱法](https://www.chuangyi1687.com/book/1hvgojv/)
+- [直男咒术师的限制级游戏](https://www.chuangyi1687.com/book/1hvgojn/)
+- [某柯学的正义伙伴](https://www.chuangyi1687.com/book/1hve06a/)
+- [男朋友买一送一](https://www.chuangyi1687.com/book/1hvdjlf/)
+- [我有嘉宾](https://www.chuangyi1687.com/book/1hvdfa8/)
+- [若清晨所见之蓝](https://www.chuangyi1687.com/book/500nm1/)
+- [沈助理又在隐藏他的超能力](https://www.chuangyi1687.com/book/500j2q/)
+- [系统不许我摆烂](https://www.chuangyi1687.com/book/500fl8/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.chuangyi1687.com/book/5009b5/)
+- [[综武侠]有间民宿](https://www.chuangyi1687.com/book/50035v/)
+- [忍界观察日记](https://www.chuangyi1687.com/book/4vvu7b/)
+- [绿叶](https://www.chuangyi1687.com/book/4vvt09/)
+- [一枝枝怨](https://www.chuangyi1687.com/book/4vvn1b/)
+- [这谁的沙雕二次元心声！](https://www.chuangyi1687.com/book/4vvm7l/)
+- [老公是松散生命体](https://www.chuangyi1687.com/book/4vvljq/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.chuangyi1687.com/book/4vvaqt/)
+- [多梦你一会儿](https://www.chuangyi1687.com/book/4vvakb/)
+- [[足球]罗蜜第一志愿](https://www.chuangyi1687.com/book/4vv7ka/)
+- [拯救世界从扮演反派开始](https://www.chuangyi1687.com/book/4vv7fs/)
+- [和前女友的心上人he了](https://www.chuangyi1687.com/book/4vv2v2/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1316/index.md)
