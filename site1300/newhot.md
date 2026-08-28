@@ -1,31 +1,38 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-08-28 03:27:10
+更新时间：2026-08-29 03:27:50
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。
 
 - [棉花糖小说网](https://www.littlemissribbon.com/)
 
 ## 最新小说
-- [我在虫族监狱写小说](https://www.littlemissribbon.com/book/5asfo71/)
-- [[诡秘之主]乌鸦童话](https://www.littlemissribbon.com/book/5asf3rg/)
-- [我演的不是漂亮圣子攻吗?](https://www.littlemissribbon.com/book/5asf35t/)
-- [错嫁春笼（先婚后爱）](https://www.littlemissribbon.com/book/h2tdkt/)
-- [被天使之王骗婚后[诡秘之主]](https://www.littlemissribbon.com/book/h2tbuc/)
-- [闺蜜就不能是妻子吗](https://www.littlemissribbon.com/book/h2taqf/)
-- [与清冷O协议结婚后她失忆了](https://www.littlemissribbon.com/book/h2taj7/)
-- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.littlemissribbon.com/book/h2ta1u/)
-- [迷雾求生，种田玩家也能当榜一？](https://www.littlemissribbon.com/book/h2t9hq/)
-- [宝儿楼](https://www.littlemissribbon.com/book/h2t4bt/)
-- [邻居小孩太有钱[快穿]](https://www.littlemissribbon.com/book/h2t2qc/)
-- [重生后雌君追来了](https://www.littlemissribbon.com/book/h2svik/)
-- [全星际都想吃我做的菜](https://www.littlemissribbon.com/book/h2stkc/)
-- [和饲养的黑蛇恋爱后](https://www.littlemissribbon.com/book/h2srv3/)
-- [我将双打队友护至身前，自己站桩躺赢](https://www.littlemissribbon.com/book/h2sps4/)
-- [骗失忆死对头修合欢道](https://www.littlemissribbon.com/book/h2sohi/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.littlemissribbon.com/book/h2s9nn/)
-- [海岛求生：生活玩家种田囤货](https://www.littlemissribbon.com/book/1mltd0/)
+- [在千禧年的伦敦当女巫](https://www.littlemissribbon.com/book/5asij13/)
+- [井闼山经理每天都被挖墙脚](https://www.littlemissribbon.com/book/5asiitm/)
+- [星际团宠小人鱼](https://www.littlemissribbon.com/book/5asiire/)
+- [你，后室管理员](https://www.littlemissribbon.com/book/5asiir2/)
+- [分手后与诱系妻子再度热恋](https://www.littlemissribbon.com/book/5asiiqk/)
+- [纯爱宇智波基本恋爱法](https://www.littlemissribbon.com/book/5asiiob/)
+- [直男咒术师的限制级游戏](https://www.littlemissribbon.com/book/5asiilt/)
+- [某柯学的正义伙伴](https://www.littlemissribbon.com/book/5asfq7f/)
+- [男朋友买一送一](https://www.littlemissribbon.com/book/5asfebn/)
+- [我有嘉宾](https://www.littlemissribbon.com/book/5asf7s5/)
+- [若清晨所见之蓝](https://www.littlemissribbon.com/book/h2tlhq/)
+- [沈助理又在隐藏他的超能力](https://www.littlemissribbon.com/book/h2ti9r/)
+- [系统不许我摆烂](https://www.littlemissribbon.com/book/h2tf6q/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.littlemissribbon.com/book/h2t4do/)
+- [[综武侠]有间民宿](https://www.littlemissribbon.com/book/h2t2e6/)
+- [忍界观察日记](https://www.littlemissribbon.com/book/h2stkn/)
+- [绿叶](https://www.littlemissribbon.com/book/h2st35/)
+- [一枝枝怨](https://www.littlemissribbon.com/book/h2sm55/)
+- [老公是松散生命体](https://www.littlemissribbon.com/book/h2sm0t/)
+- [这谁的沙雕二次元心声！](https://www.littlemissribbon.com/book/h2skud/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.littlemissribbon.com/book/h2safo/)
+- [多梦你一会儿](https://www.littlemissribbon.com/book/h2sa2t/)
+- [拯救世界从扮演反派开始](https://www.littlemissribbon.com/book/h2s7ak/)
+- [[足球]罗蜜第一志愿](https://www.littlemissribbon.com/book/h2s77r/)
+- [和前女友的心上人he了](https://www.littlemissribbon.com/book/h2s3kh/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1300/index.md)

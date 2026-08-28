@@ -1,31 +1,42 @@
 
 # 春日书屋-免费热门小说在线阅读平台|晋江文学|全本免费畅读
 
-更新时间：2026-08-28 03:31:20
+更新时间：2026-08-29 03:32:11
 
 春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！
 
 - [春日书屋小说](https://www.shenyuanhg.com/)
 
 ## 最新小说
-- [我在虫族监狱写小说](https://www.shenyuanhg.com/book/7gicjef/)
-- [我演的不是漂亮圣子攻吗?](https://www.shenyuanhg.com/book/7gic436/)
-- [[诡秘之主]乌鸦童话](https://www.shenyuanhg.com/book/7gic02g/)
-- [被天使之王骗婚后[诡秘之主]](https://www.shenyuanhg.com/book/7gibgfs/)
-- [重生后雌君追来了](https://www.shenyuanhg.com/book/7gibeu3/)
-- [闺蜜就不能是妻子吗](https://www.shenyuanhg.com/book/7gibb2s/)
-- [骗失忆死对头修合欢道](https://www.shenyuanhg.com/book/7gibafu/)
-- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.shenyuanhg.com/book/7gib8s4/)
-- [迷雾求生，种田玩家也能当榜一？](https://www.shenyuanhg.com/book/7gib8ri/)
-- [错嫁春笼（先婚后爱）](https://www.shenyuanhg.com/book/7gib8o3/)
-- [与清冷O协议结婚后她失忆了](https://www.shenyuanhg.com/book/7gib64b/)
-- [宝儿楼](https://www.shenyuanhg.com/book/7gib4f9/)
-- [邻居小孩太有钱[快穿]](https://www.shenyuanhg.com/book/7giav5k/)
-- [全星际都想吃我做的菜](https://www.shenyuanhg.com/book/7giauh0/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.shenyuanhg.com/book/7giar1l/)
-- [和饲养的黑蛇恋爱后](https://www.shenyuanhg.com/book/7giaqo4/)
-- [我将双打队友护至身前，自己站桩躺赢](https://www.shenyuanhg.com/book/7giaon6/)
-- [海岛求生：生活玩家种田囤货](https://www.shenyuanhg.com/book/7gi8mlr/)
+- [在千禧年的伦敦当女巫](https://www.shenyuanhg.com/book/7gie8i8/)
+- [我有嘉宾](https://www.shenyuanhg.com/book/7gidtdv/)
+- [分手后与诱系妻子再度热恋](https://www.shenyuanhg.com/book/7gidoa4/)
+- [星际团宠小人鱼](https://www.shenyuanhg.com/book/7gido92/)
+- [你，后室管理员](https://www.shenyuanhg.com/book/7gido8t/)
+- [男朋友买一送一](https://www.shenyuanhg.com/book/7gicd2j/)
+- [直男咒术师的限制级游戏](https://www.shenyuanhg.com/book/7gic5ii/)
+- [绿叶](https://www.shenyuanhg.com/book/7gibq8i/)
+- [若清晨所见之蓝](https://www.shenyuanhg.com/book/7gibmbs/)
+- [沈助理又在隐藏他的超能力](https://www.shenyuanhg.com/book/7gibj48/)
+- [系统不许我摆烂](https://www.shenyuanhg.com/book/7gibeil/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.shenyuanhg.com/book/7gib3um/)
+- [微臣怜惜公主](https://www.shenyuanhg.com/book/7gib1i6/)
+- [多梦你一会儿](https://www.shenyuanhg.com/book/7gib09f/)
+- [[综武侠]有间民宿](https://www.shenyuanhg.com/book/7giav60/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.shenyuanhg.com/book/7giatpk/)
+- [忍界观察日记](https://www.shenyuanhg.com/book/7giateo/)
+- [拯救世界从扮演反派开始](https://www.shenyuanhg.com/book/7giasnr/)
+- [和前女友的心上人he了](https://www.shenyuanhg.com/book/7giaqes/)
+- [这谁的沙雕二次元心声！](https://www.shenyuanhg.com/book/7giaqau/)
+- [亚当斯与韦恩的适配性](https://www.shenyuanhg.com/book/7giapit/)
+- [某柯学的正义伙伴](https://www.shenyuanhg.com/book/7giamg6/)
+- [老公是松散生命体](https://www.shenyuanhg.com/book/7gials6/)
+- [一枝枝怨](https://www.shenyuanhg.com/book/7gial5f/)
+- [纯爱宇智波基本恋爱法](https://www.shenyuanhg.com/book/7giakjt/)
+- [[足球]罗蜜第一志愿](https://www.shenyuanhg.com/book/7giai26/)
+- [井闼山经理每天都被挖墙脚](https://www.shenyuanhg.com/book/7giaego/)
+- [关于我虚构了一个男友这件事](https://www.shenyuanhg.com/book/7gia3oe/)
+- [好兄弟暴富后非要跟我结婚](https://www.shenyuanhg.com/book/7gia1jf/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1341/index.md)
