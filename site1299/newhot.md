@@ -1,31 +1,38 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-28 03:35:56
+更新时间：2026-08-29 03:37:11
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
 - [速阅阁小说网](https://www.wsfsx.com/)
 
 ## 最新小说
-- [我在虫族监狱写小说](https://www.wsfsx.com/book/5trvcha/)
-- [我演的不是漂亮圣子攻吗?](https://www.wsfsx.com/book/5trupfc/)
-- [[诡秘之主]乌鸦童话](https://www.wsfsx.com/book/5trulrp/)
-- [错嫁春笼（先婚后爱）](https://www.wsfsx.com/book/ivlao9/)
-- [与清冷O协议结婚后她失忆了](https://www.wsfsx.com/book/ivlak4/)
-- [被天使之王骗婚后[诡秘之主]](https://www.wsfsx.com/book/ivla9u/)
-- [闺蜜就不能是妻子吗](https://www.wsfsx.com/book/ivl82g/)
-- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.wsfsx.com/book/ivl7bg/)
-- [迷雾求生，种田玩家也能当榜一？](https://www.wsfsx.com/book/ivl6i6/)
-- [邻居小孩太有钱[快穿]](https://www.wsfsx.com/book/ivl26c/)
-- [宝儿楼](https://www.wsfsx.com/book/ivl1mn/)
-- [全星际都想吃我做的菜](https://www.wsfsx.com/book/ivkv5g/)
-- [重生后雌君追来了](https://www.wsfsx.com/book/ivku3j/)
-- [和饲养的黑蛇恋爱后](https://www.wsfsx.com/book/ivkt5g/)
-- [我将双打队友护至身前，自己站桩躺赢](https://www.wsfsx.com/book/ivknnn/)
-- [骗失忆死对头修合欢道](https://www.wsfsx.com/book/ivkl1l/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.wsfsx.com/book/ivkaho/)
-- [海岛求生：生活玩家种田囤货](https://www.wsfsx.com/book/1sober/)
+- [在千禧年的伦敦当女巫](https://www.wsfsx.com/book/5ts29b7/)
+- [井闼山经理每天都被挖墙脚](https://www.wsfsx.com/book/5ts297i/)
+- [分手后与诱系妻子再度热恋](https://www.wsfsx.com/book/5ts296b/)
+- [星际团宠小人鱼](https://www.wsfsx.com/book/5ts2955/)
+- [你，后室管理员](https://www.wsfsx.com/book/5ts2951/)
+- [纯爱宇智波基本恋爱法](https://www.wsfsx.com/book/5ts2945/)
+- [直男咒术师的限制级游戏](https://www.wsfsx.com/book/5ts291p/)
+- [某柯学的正义伙伴](https://www.wsfsx.com/book/5trvebu/)
+- [男朋友买一送一](https://www.wsfsx.com/book/5trv6g0/)
+- [我有嘉宾](https://www.wsfsx.com/book/5trv00k/)
+- [若清晨所见之蓝](https://www.wsfsx.com/book/ivljpj/)
+- [沈助理又在隐藏他的超能力](https://www.wsfsx.com/book/ivli57/)
+- [系统不许我摆烂](https://www.wsfsx.com/book/ivlgbs/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.wsfsx.com/book/ivl5sk/)
+- [[综武侠]有间民宿](https://www.wsfsx.com/book/ivl1ep/)
+- [绿叶](https://www.wsfsx.com/book/ivkt44/)
+- [忍界观察日记](https://www.wsfsx.com/book/ivks16/)
+- [这谁的沙雕二次元心声！](https://www.wsfsx.com/book/ivkmp2/)
+- [老公是松散生命体](https://www.wsfsx.com/book/ivkk58/)
+- [一枝枝怨](https://www.wsfsx.com/book/ivkjnn/)
+- [多梦你一会儿](https://www.wsfsx.com/book/ivk99v/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.wsfsx.com/book/ivk896/)
+- [拯救世界从扮演反派开始](https://www.wsfsx.com/book/ivk6la/)
+- [[足球]罗蜜第一志愿](https://www.wsfsx.com/book/ivk65b/)
+- [和前女友的心上人he了](https://www.wsfsx.com/book/ivk2gi/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1299/index.md)

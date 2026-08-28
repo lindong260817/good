@@ -1,31 +1,42 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-08-28 03:21:26
+更新时间：2026-08-29 03:22:00
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。
 
 - [笔下文学](https://www.fshxjd.com/)
 
 ## 最新小说
-- [我在虫族监狱写小说](https://www.fshxjd.com/book/74i20rj/)
-- [我演的不是漂亮圣子攻吗?](https://www.fshxjd.com/book/74i1grc/)
-- [[诡秘之主]乌鸦童话](https://www.fshxjd.com/book/74i1eru/)
-- [被天使之王骗婚后[诡秘之主]](https://www.fshxjd.com/book/74i0upr/)
-- [重生后雌君追来了](https://www.fshxjd.com/book/74i0t63/)
-- [闺蜜就不能是妻子吗](https://www.fshxjd.com/book/74i0onk/)
-- [骗失忆死对头修合欢道](https://www.fshxjd.com/book/74i0net/)
-- [迷雾求生，种田玩家也能当榜一？](https://www.fshxjd.com/book/74i0n17/)
-- [错嫁春笼（先婚后爱）](https://www.fshxjd.com/book/74i0mef/)
-- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.fshxjd.com/book/74i0lfr/)
-- [与清冷O协议结婚后她失忆了](https://www.fshxjd.com/book/74i0kpu/)
-- [宝儿楼](https://www.fshxjd.com/book/74i0f69/)
-- [邻居小孩太有钱[快穿]](https://www.fshxjd.com/book/74i0ccn/)
-- [全星际都想吃我做的菜](https://www.fshxjd.com/book/74i0aqn/)
-- [和饲养的黑蛇恋爱后](https://www.fshxjd.com/book/74i086h/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.fshxjd.com/book/74i06c9/)
-- [我将双打队友护至身前，自己站桩躺赢](https://www.fshxjd.com/book/74i05e5/)
-- [海岛求生：生活玩家种田囤货](https://www.fshxjd.com/book/74hu48i/)
+- [在千禧年的伦敦当女巫](https://www.fshxjd.com/book/74i3ltj/)
+- [我有嘉宾](https://www.fshxjd.com/book/74i3ap1/)
+- [你，后室管理员](https://www.fshxjd.com/book/74i35l8/)
+- [星际团宠小人鱼](https://www.fshxjd.com/book/74i35i1/)
+- [分手后与诱系妻子再度热恋](https://www.fshxjd.com/book/74i35h8/)
+- [男朋友买一送一](https://www.fshxjd.com/book/74i1r02/)
+- [直男咒术师的限制级游戏](https://www.fshxjd.com/book/74i1j0m/)
+- [绿叶](https://www.fshxjd.com/book/74i18jk/)
+- [若清晨所见之蓝](https://www.fshxjd.com/book/74i155o/)
+- [沈助理又在隐藏他的超能力](https://www.fshxjd.com/book/74i0uov/)
+- [系统不许我摆烂](https://www.fshxjd.com/book/74i0rdd/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.fshxjd.com/book/74i0hg4/)
+- [微臣怜惜公主](https://www.fshxjd.com/book/74i0eqj/)
+- [多梦你一会儿](https://www.fshxjd.com/book/74i0cip/)
+- [[综武侠]有间民宿](https://www.fshxjd.com/book/74i0cbu/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.fshxjd.com/book/74i0bgc/)
+- [拯救世界从扮演反派开始](https://www.fshxjd.com/book/74i0a7t/)
+- [忍界观察日记](https://www.fshxjd.com/book/74i09ej/)
+- [这谁的沙雕二次元心声！](https://www.fshxjd.com/book/74i092l/)
+- [亚当斯与韦恩的适配性](https://www.fshxjd.com/book/74i08ff/)
+- [和前女友的心上人he了](https://www.fshxjd.com/book/74i07qp/)
+- [某柯学的正义伙伴](https://www.fshxjd.com/book/74i04tr/)
+- [老公是松散生命体](https://www.fshxjd.com/book/74i0229/)
+- [一枝枝怨](https://www.fshxjd.com/book/74i01j5/)
+- [纯爱宇智波基本恋爱法](https://www.fshxjd.com/book/74i01di/)
+- [[足球]罗蜜第一志愿](https://www.fshxjd.com/book/74hvu9j/)
+- [井闼山经理每天都被挖墙脚](https://www.fshxjd.com/book/74hvsfi/)
+- [好兄弟暴富后非要跟我结婚](https://www.fshxjd.com/book/74hvhfr/)
+- [关于我虚构了一个男友这件事](https://www.fshxjd.com/book/74hvhbl/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1338/index.md)

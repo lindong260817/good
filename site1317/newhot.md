@@ -1,31 +1,38 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-08-28 03:40:44
+更新时间：2026-08-29 03:42:18
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。
 
 - [作品思路客](https://www.zuopin666.com/)
 
 ## 最新小说
-- [我在虫族监狱写小说](https://www.zuopin666.com/book/8becnac/)
-- [[诡秘之主]乌鸦童话](https://www.zuopin666.com/book/8bec1js/)
-- [我演的不是漂亮圣子攻吗?](https://www.zuopin666.com/book/8bec1i4/)
-- [错嫁春笼（先婚后爱）](https://www.zuopin666.com/book/qnt57s/)
-- [与清冷O协议结婚后她失忆了](https://www.zuopin666.com/book/qnt25u/)
-- [被天使之王骗婚后[诡秘之主]](https://www.zuopin666.com/book/qnt130/)
-- [迷雾求生，种田玩家也能当榜一？](https://www.zuopin666.com/book/qnsus9/)
-- [闺蜜就不能是妻子吗](https://www.zuopin666.com/book/qnsujf/)
-- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.zuopin666.com/book/qnst19/)
-- [宝儿楼](https://www.zuopin666.com/book/qnsocf/)
-- [邻居小孩太有钱[快穿]](https://www.zuopin666.com/book/qnsnr7/)
-- [重生后雌君追来了](https://www.zuopin666.com/book/qnsmku/)
-- [全星际都想吃我做的菜](https://www.zuopin666.com/book/qnskqf/)
-- [和饲养的黑蛇恋爱后](https://www.zuopin666.com/book/qnsjbk/)
-- [我将双打队友护至身前，自己站桩躺赢](https://www.zuopin666.com/book/qnsgoc/)
-- [骗失忆死对头修合欢道](https://www.zuopin666.com/book/qnscgd/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.zuopin666.com/book/qns1hg/)
-- [海岛求生：生活玩家种田囤货](https://www.zuopin666.com/book/8hsb6/)
+- [井闼山经理每天都被挖墙脚](https://www.zuopin666.com/book/8befhhh/)
+- [在千禧年的伦敦当女巫](https://www.zuopin666.com/book/8befhf3/)
+- [你，后室管理员](https://www.zuopin666.com/book/8befhcs/)
+- [分手后与诱系妻子再度热恋](https://www.zuopin666.com/book/8befhcr/)
+- [星际团宠小人鱼](https://www.zuopin666.com/book/8befhcl/)
+- [纯爱宇智波基本恋爱法](https://www.zuopin666.com/book/8befh9v/)
+- [直男咒术师的限制级游戏](https://www.zuopin666.com/book/8befh71/)
+- [某柯学的正义伙伴](https://www.zuopin666.com/book/8becook/)
+- [男朋友买一送一](https://www.zuopin666.com/book/8beccng/)
+- [我有嘉宾](https://www.zuopin666.com/book/8bec8g7/)
+- [若清晨所见之蓝](https://www.zuopin666.com/book/qnte74/)
+- [沈助理又在隐藏他的超能力](https://www.zuopin666.com/book/qntaf1/)
+- [系统不许我摆烂](https://www.zuopin666.com/book/qnt82i/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.zuopin666.com/book/qnsr1a/)
+- [[综武侠]有间民宿](https://www.zuopin666.com/book/qnsnpn/)
+- [绿叶](https://www.zuopin666.com/book/qnsjsq/)
+- [忍界观察日记](https://www.zuopin666.com/book/qnsj8u/)
+- [这谁的沙雕二次元心声！](https://www.zuopin666.com/book/qnsd0o/)
+- [老公是松散生命体](https://www.zuopin666.com/book/qnsd0c/)
+- [一枝枝怨](https://www.zuopin666.com/book/qnsatg/)
+- [多梦你一会儿](https://www.zuopin666.com/book/qns012/)
+- [拯救世界从扮演反派开始](https://www.zuopin666.com/book/qnrv9u/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.zuopin666.com/book/qnrurj/)
+- [[足球]罗蜜第一志愿](https://www.zuopin666.com/book/qnrtla/)
+- [和前女友的心上人he了](https://www.zuopin666.com/book/qnrmnb/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1317/index.md)
