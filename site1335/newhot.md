@@ -1,31 +1,42 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-08-28 03:24:16
+更新时间：2026-08-29 03:24:53
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。
 
 - [奇书网](https://www.jxbfsz.com/)
 
 ## 最新小说
-- [我在虫族监狱写小说](https://www.jxbfsz.com/book/29i032d/)
-- [我演的不是漂亮圣子攻吗?](https://www.jxbfsz.com/book/29hvimj/)
-- [[诡秘之主]乌鸦童话](https://www.jxbfsz.com/book/29hvfap/)
-- [被天使之王骗婚后[诡秘之主]](https://www.jxbfsz.com/book/29hv2kk/)
-- [重生后雌君追来了](https://www.jxbfsz.com/book/29hutqk/)
-- [闺蜜就不能是妻子吗](https://www.jxbfsz.com/book/29huslu/)
-- [迷雾求生，种田玩家也能当榜一？](https://www.jxbfsz.com/book/29hupqt/)
-- [错嫁春笼（先婚后爱）](https://www.jxbfsz.com/book/29huor3/)
-- [骗失忆死对头修合欢道](https://www.jxbfsz.com/book/29huois/)
-- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.jxbfsz.com/book/29huo3i/)
-- [与清冷O协议结婚后她失忆了](https://www.jxbfsz.com/book/29hulq3/)
-- [宝儿楼](https://www.jxbfsz.com/book/29huig0/)
-- [邻居小孩太有钱[快穿]](https://www.jxbfsz.com/book/29huf71/)
-- [全星际都想吃我做的菜](https://www.jxbfsz.com/book/29hucoc/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.jxbfsz.com/book/29huaoe/)
-- [和饲养的黑蛇恋爱后](https://www.jxbfsz.com/book/29hu99n/)
-- [我将双打队友护至身前，自己站桩躺赢](https://www.jxbfsz.com/book/29hu7ai/)
-- [海岛求生：生活玩家种田囤货](https://www.jxbfsz.com/book/29hs7bn/)
+- [在千禧年的伦敦当女巫](https://www.jxbfsz.com/book/29i1obr/)
+- [我有嘉宾](https://www.jxbfsz.com/book/29i1d50/)
+- [你，后室管理员](https://www.jxbfsz.com/book/29i181q/)
+- [分手后与诱系妻子再度热恋](https://www.jxbfsz.com/book/29i1800/)
+- [星际团宠小人鱼](https://www.jxbfsz.com/book/29i17vc/)
+- [男朋友买一送一](https://www.jxbfsz.com/book/29hvqvp/)
+- [直男咒术师的限制级游戏](https://www.jxbfsz.com/book/29hvl7t/)
+- [绿叶](https://www.jxbfsz.com/book/29hvag7/)
+- [若清晨所见之蓝](https://www.jxbfsz.com/book/29hv8kf/)
+- [沈助理又在隐藏他的超能力](https://www.jxbfsz.com/book/29hv1ir/)
+- [系统不许我摆烂](https://www.jxbfsz.com/book/29huvon/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.jxbfsz.com/book/29hujtm/)
+- [多梦你一会儿](https://www.jxbfsz.com/book/29hugot/)
+- [微臣怜惜公主](https://www.jxbfsz.com/book/29hugg0/)
+- [[综武侠]有间民宿](https://www.jxbfsz.com/book/29huemr/)
+- [拯救世界从扮演反派开始](https://www.jxbfsz.com/book/29hud2g/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.jxbfsz.com/book/29hubok/)
+- [忍界观察日记](https://www.jxbfsz.com/book/29hubln/)
+- [亚当斯与韦恩的适配性](https://www.jxbfsz.com/book/29huadm/)
+- [这谁的沙雕二次元心声！](https://www.jxbfsz.com/book/29hua9m/)
+- [和前女友的心上人he了](https://www.jxbfsz.com/book/29hua1g/)
+- [某柯学的正义伙伴](https://www.jxbfsz.com/book/29hu68r/)
+- [老公是松散生命体](https://www.jxbfsz.com/book/29hu5mg/)
+- [纯爱宇智波基本恋爱法](https://www.jxbfsz.com/book/29hu5hu/)
+- [一枝枝怨](https://www.jxbfsz.com/book/29hu2v6/)
+- [[足球]罗蜜第一志愿](https://www.jxbfsz.com/book/29hu27p/)
+- [井闼山经理每天都被挖墙脚](https://www.jxbfsz.com/book/29htu83/)
+- [好兄弟暴富后非要跟我结婚](https://www.jxbfsz.com/book/29htjav/)
+- [关于我虚构了一个男友这件事](https://www.jxbfsz.com/book/29htit1/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1335/index.md)
