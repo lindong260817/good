@@ -1,31 +1,38 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-08-28 03:27:27
+更新时间：2026-08-29 03:28:08
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
 - [爱你中文网](https://www.longjiangstone.com/)
 
 ## 最新小说
-- [我在虫族监狱写小说](https://www.longjiangstone.com/book/348a38/)
-- [[诡秘之主]乌鸦童话](https://www.longjiangstone.com/book/347kj0/)
-- [我演的不是漂亮圣子攻吗?](https://www.longjiangstone.com/book/347k8b/)
-- [错嫁春笼（先婚后爱）](https://www.longjiangstone.com/book/a31lg/)
-- [与清冷O协议结婚后她失忆了](https://www.longjiangstone.com/book/a317d/)
-- [被天使之王骗婚后[诡秘之主]](https://www.longjiangstone.com/book/a301m/)
-- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.longjiangstone.com/book/a2vau/)
-- [迷雾求生，种田玩家也能当榜一？](https://www.longjiangstone.com/book/a2t74/)
-- [闺蜜就不能是妻子吗](https://www.longjiangstone.com/book/a2rgs/)
-- [宝儿楼](https://www.longjiangstone.com/book/a2pvg/)
-- [邻居小孩太有钱[快穿]](https://www.longjiangstone.com/book/a2m9f/)
-- [重生后雌君追来了](https://www.longjiangstone.com/book/a2l17/)
-- [全星际都想吃我做的菜](https://www.longjiangstone.com/book/a2inu/)
-- [和饲养的黑蛇恋爱后](https://www.longjiangstone.com/book/a2gds/)
-- [骗失忆死对头修合欢道](https://www.longjiangstone.com/book/a2e87/)
-- [我将双打队友护至身前，自己站桩躺赢](https://www.longjiangstone.com/book/a2cpj/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.longjiangstone.com/book/a201l/)
-- [海岛求生：生活玩家种田囤货](https://www.longjiangstone.com/book/104eg/)
+- [在千禧年的伦敦当女巫](https://www.longjiangstone.com/book/34b4l0/)
+- [井闼山经理每天都被挖墙脚](https://www.longjiangstone.com/book/34b4k0/)
+- [分手后与诱系妻子再度热恋](https://www.longjiangstone.com/book/34b4ij/)
+- [星际团宠小人鱼](https://www.longjiangstone.com/book/34b4hq/)
+- [你，后室管理员](https://www.longjiangstone.com/book/34b4hl/)
+- [纯爱宇智波基本恋爱法](https://www.longjiangstone.com/book/34b4f0/)
+- [直男咒术师的限制级游戏](https://www.longjiangstone.com/book/34b4cq/)
+- [某柯学的正义伙伴](https://www.longjiangstone.com/book/348c4v/)
+- [男朋友买一送一](https://www.longjiangstone.com/book/3480qj/)
+- [我有嘉宾](https://www.longjiangstone.com/book/347r4j/)
+- [若清晨所见之蓝](https://www.longjiangstone.com/book/a3cp4/)
+- [沈助理又在隐藏他的超能力](https://www.longjiangstone.com/book/a3a1f/)
+- [系统不许我摆烂](https://www.longjiangstone.com/book/a35t6/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.longjiangstone.com/book/a2raq/)
+- [[综武侠]有间民宿](https://www.longjiangstone.com/book/a2mf2/)
+- [绿叶](https://www.longjiangstone.com/book/a2i62/)
+- [忍界观察日记](https://www.longjiangstone.com/book/a2grv/)
+- [一枝枝怨](https://www.longjiangstone.com/book/a2cbi/)
+- [这谁的沙雕二次元心声！](https://www.longjiangstone.com/book/a2c9m/)
+- [老公是松散生命体](https://www.longjiangstone.com/book/a2a1j/)
+- [多梦你一会儿](https://www.longjiangstone.com/book/a1vpn/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.longjiangstone.com/book/a1sb7/)
+- [拯救世界从扮演反派开始](https://www.longjiangstone.com/book/a1rdl/)
+- [[足球]罗蜜第一志愿](https://www.longjiangstone.com/book/a1rb2/)
+- [和前女友的心上人he了](https://www.longjiangstone.com/book/a1mbg/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1284/index.md)

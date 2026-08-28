@@ -1,31 +1,42 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-08-28 03:18:02
+更新时间：2026-08-29 03:18:25
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。
 
 - [阿舍岛小说](https://www.ashedao.com/)
 
 ## 最新小说
-- [我在虫族监狱写小说](https://www.ashedao.com/book/99d1k95/)
-- [我演的不是漂亮圣子攻吗?](https://www.ashedao.com/book/99d14et/)
-- [[诡秘之主]乌鸦童话](https://www.ashedao.com/book/99d11gc/)
-- [被天使之王骗婚后[诡秘之主]](https://www.ashedao.com/book/99d0irm/)
-- [重生后雌君追来了](https://www.ashedao.com/book/99d0ep6/)
-- [闺蜜就不能是妻子吗](https://www.ashedao.com/book/99d0dup/)
-- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.ashedao.com/book/99d0b4k/)
-- [错嫁春笼（先婚后爱）](https://www.ashedao.com/book/99d09k4/)
-- [骗失忆死对头修合欢道](https://www.ashedao.com/book/99d092r/)
-- [迷雾求生，种田玩家也能当榜一？](https://www.ashedao.com/book/99d08h3/)
-- [与清冷O协议结婚后她失忆了](https://www.ashedao.com/book/99d06t3/)
-- [宝儿楼](https://www.ashedao.com/book/99d03jj/)
-- [邻居小孩太有钱[快穿]](https://www.ashedao.com/book/99d01nl/)
-- [全星际都想吃我做的菜](https://www.ashedao.com/book/99cvsq5/)
-- [和饲养的黑蛇恋爱后](https://www.ashedao.com/book/99cvsfq/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.ashedao.com/book/99cvq5q/)
-- [我将双打队友护至身前，自己站桩躺赢](https://www.ashedao.com/book/99cvo53/)
-- [海岛求生：生活玩家种田囤货](https://www.ashedao.com/book/99ctokm/)
+- [在千禧年的伦敦当女巫](https://www.ashedao.com/book/99d39aq/)
+- [我有嘉宾](https://www.ashedao.com/book/99d2u32/)
+- [星际团宠小人鱼](https://www.ashedao.com/book/99d2p2b/)
+- [分手后与诱系妻子再度热恋](https://www.ashedao.com/book/99d2p27/)
+- [你，后室管理员](https://www.ashedao.com/book/99d2p0a/)
+- [男朋友买一送一](https://www.ashedao.com/book/99d1dtr/)
+- [直男咒术师的限制级游戏](https://www.ashedao.com/book/99d162r/)
+- [绿叶](https://www.ashedao.com/book/99d0qaj/)
+- [若清晨所见之蓝](https://www.ashedao.com/book/99d0nc2/)
+- [沈助理又在隐藏他的超能力](https://www.ashedao.com/book/99d0i9j/)
+- [系统不许我摆烂](https://www.ashedao.com/book/99d0guo/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.ashedao.com/book/99d042f/)
+- [[综武侠]有间民宿](https://www.ashedao.com/book/99d028f/)
+- [微臣怜惜公主](https://www.ashedao.com/book/99d01r8/)
+- [多梦你一会儿](https://www.ashedao.com/book/99d012r/)
+- [拯救世界从扮演反派开始](https://www.ashedao.com/book/99cvumc/)
+- [忍界观察日记](https://www.ashedao.com/book/99cvtvv/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.ashedao.com/book/99cvtdo/)
+- [亚当斯与韦恩的适配性](https://www.ashedao.com/book/99cvs19/)
+- [这谁的沙雕二次元心声！](https://www.ashedao.com/book/99cvroa/)
+- [和前女友的心上人he了](https://www.ashedao.com/book/99cvqhr/)
+- [某柯学的正义伙伴](https://www.ashedao.com/book/99cvn4r/)
+- [老公是松散生命体](https://www.ashedao.com/book/99cvm9o/)
+- [一枝枝怨](https://www.ashedao.com/book/99cvlgu/)
+- [纯爱宇智波基本恋爱法](https://www.ashedao.com/book/99cvl5k/)
+- [[足球]罗蜜第一志愿](https://www.ashedao.com/book/99cvh5s/)
+- [井闼山经理每天都被挖墙脚](https://www.ashedao.com/book/99cvgp0/)
+- [好兄弟暴富后非要跟我结婚](https://www.ashedao.com/book/99cv3n9/)
+- [关于我虚构了一个男友这件事](https://www.ashedao.com/book/99cv2gb/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1342/index.md)
