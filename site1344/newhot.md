@@ -1,31 +1,42 @@
 
 # 国威御林小说_国威御林小说小说在线阅读
 
-更新时间：2026-08-28 03:22:09
+更新时间：2026-08-29 03:22:44
 
 国威御林小说是拥有海量的完结全本小说作品, 提供热门小说排行榜免费在线阅读, 每日更新言情、都市、穿越、青春、悬疑等作品连载。
 
 - [国威御林小说](https://www.guoweiyulin.com/)
 
 ## 最新小说
-- [我在虫族监狱写小说](https://www.guoweiyulin.com/book/360oc8m/)
-- [我演的不是漂亮圣子攻吗?](https://www.guoweiyulin.com/book/360nr73/)
-- [[诡秘之主]乌鸦童话](https://www.guoweiyulin.com/book/360noau/)
-- [被天使之王骗婚后[诡秘之主]](https://www.guoweiyulin.com/book/360nb97/)
-- [重生后雌君追来了](https://www.guoweiyulin.com/book/360n7cc/)
-- [闺蜜就不能是妻子吗](https://www.guoweiyulin.com/book/360n3no/)
-- [骗失忆死对头修合欢道](https://www.guoweiyulin.com/book/360n31j/)
-- [错嫁春笼（先婚后爱）](https://www.guoweiyulin.com/book/360n2ck/)
-- [迷雾求生，种田玩家也能当榜一？](https://www.guoweiyulin.com/book/360n2a8/)
-- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.guoweiyulin.com/book/360n1gr/)
-- [与清冷O协议结婚后她失忆了](https://www.guoweiyulin.com/book/360mu9p/)
-- [宝儿楼](https://www.guoweiyulin.com/book/360mrj5/)
-- [邻居小孩太有钱[快穿]](https://www.guoweiyulin.com/book/360mp61/)
-- [全星际都想吃我做的菜](https://www.guoweiyulin.com/book/360mm9u/)
-- [和饲养的黑蛇恋爱后](https://www.guoweiyulin.com/book/360mjl0/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.guoweiyulin.com/book/360mjf5/)
-- [我将双打队友护至身前，自己站桩躺赢](https://www.guoweiyulin.com/book/360mfe9/)
-- [海岛求生：生活玩家种田囤货](https://www.guoweiyulin.com/book/360kfuu/)
+- [在千禧年的伦敦当女巫](https://www.guoweiyulin.com/book/360q1hf/)
+- [我有嘉宾](https://www.guoweiyulin.com/book/360pmca/)
+- [分手后与诱系妻子再度热恋](https://www.guoweiyulin.com/book/360ph9i/)
+- [你，后室管理员](https://www.guoweiyulin.com/book/360ph9h/)
+- [星际团宠小人鱼](https://www.guoweiyulin.com/book/360ph67/)
+- [男朋友买一送一](https://www.guoweiyulin.com/book/360o4kk/)
+- [直男咒术师的限制级游戏](https://www.guoweiyulin.com/book/360nuk5/)
+- [绿叶](https://www.guoweiyulin.com/book/360njes/)
+- [若清晨所见之蓝](https://www.guoweiyulin.com/book/360nf8a/)
+- [沈助理又在隐藏他的超能力](https://www.guoweiyulin.com/book/360nc2h/)
+- [系统不许我摆烂](https://www.guoweiyulin.com/book/360n7vq/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.guoweiyulin.com/book/360msva/)
+- [微臣怜惜公主](https://www.guoweiyulin.com/book/360mo0f/)
+- [[综武侠]有间民宿](https://www.guoweiyulin.com/book/360mo0e/)
+- [多梦你一会儿](https://www.guoweiyulin.com/book/360mnu3/)
+- [忍界观察日记](https://www.guoweiyulin.com/book/360mnca/)
+- [拯救世界从扮演反派开始](https://www.guoweiyulin.com/book/360mlhn/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.guoweiyulin.com/book/360mlc5/)
+- [亚当斯与韦恩的适配性](https://www.guoweiyulin.com/book/360mkfg/)
+- [这谁的沙雕二次元心声！](https://www.guoweiyulin.com/book/360mjnk/)
+- [和前女友的心上人he了](https://www.guoweiyulin.com/book/360mi06/)
+- [某柯学的正义伙伴](https://www.guoweiyulin.com/book/360mfcn/)
+- [纯爱宇智波基本恋爱法](https://www.guoweiyulin.com/book/360mee6/)
+- [老公是松散生命体](https://www.guoweiyulin.com/book/360mdov/)
+- [一枝枝怨](https://www.guoweiyulin.com/book/360mdmi/)
+- [[足球]罗蜜第一志愿](https://www.guoweiyulin.com/book/360m9k3/)
+- [井闼山经理每天都被挖墙脚](https://www.guoweiyulin.com/book/360m66q/)
+- [好兄弟暴富后非要跟我结婚](https://www.guoweiyulin.com/book/360lr6f/)
+- [关于我虚构了一个男友这件事](https://www.guoweiyulin.com/book/360lqgt/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1344/index.md)

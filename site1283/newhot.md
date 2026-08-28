@@ -1,31 +1,38 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-08-28 03:19:41
+更新时间：2026-08-29 03:20:12
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
 - [书包网](https://www.cialisgs.com/)
 
 ## 最新小说
-- [我在虫族监狱写小说](https://www.cialisgs.com/book/89rr853/)
-- [[诡秘之主]乌鸦童话](https://www.cialisgs.com/book/89rqii7/)
-- [我演的不是漂亮圣子攻吗?](https://www.cialisgs.com/book/89rqhek/)
-- [错嫁春笼（先婚后爱）](https://www.cialisgs.com/book/qir9sf/)
-- [闺蜜就不能是妻子吗](https://www.cialisgs.com/book/qir9fa/)
-- [与清冷O协议结婚后她失忆了](https://www.cialisgs.com/book/qir8mu/)
-- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.cialisgs.com/book/qir73a/)
-- [迷雾求生，种田玩家也能当榜一？](https://www.cialisgs.com/book/qir72n/)
-- [被天使之王骗婚后[诡秘之主]](https://www.cialisgs.com/book/qir6mo/)
-- [邻居小孩太有钱[快穿]](https://www.cialisgs.com/book/qir2nc/)
-- [宝儿楼](https://www.cialisgs.com/book/qir26t/)
-- [全星际都想吃我做的菜](https://www.cialisgs.com/book/qiquh0/)
-- [重生后雌君追来了](https://www.cialisgs.com/book/qiqr4q/)
-- [和饲养的黑蛇恋爱后](https://www.cialisgs.com/book/qiqpmp/)
-- [骗失忆死对头修合欢道](https://www.cialisgs.com/book/qiqmg7/)
-- [我将双打队友护至身前，自己站桩躺赢](https://www.cialisgs.com/book/qiqlko/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.cialisgs.com/book/qiq8en/)
-- [海岛求生：生活玩家种田囤货](https://www.cialisgs.com/book/2l2hhm/)
+- [井闼山经理每天都被挖墙脚](https://www.cialisgs.com/book/89ru3nb/)
+- [在千禧年的伦敦当女巫](https://www.cialisgs.com/book/89ru3mc/)
+- [星际团宠小人鱼](https://www.cialisgs.com/book/89ru3is/)
+- [你，后室管理员](https://www.cialisgs.com/book/89ru3hl/)
+- [分手后与诱系妻子再度热恋](https://www.cialisgs.com/book/89ru3h5/)
+- [直男咒术师的限制级游戏](https://www.cialisgs.com/book/89ru3bn/)
+- [纯爱宇智波基本恋爱法](https://www.cialisgs.com/book/89ru3bi/)
+- [某柯学的正义伙伴](https://www.cialisgs.com/book/89rr9va/)
+- [男朋友买一送一](https://www.cialisgs.com/book/89rqtil/)
+- [我有嘉宾](https://www.cialisgs.com/book/89rqrmr/)
+- [若清晨所见之蓝](https://www.cialisgs.com/book/qirji5/)
+- [系统不许我摆烂](https://www.cialisgs.com/book/qirhv2/)
+- [沈助理又在隐藏他的超能力](https://www.cialisgs.com/book/qirhaa/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.cialisgs.com/book/qir63o/)
+- [[综武侠]有间民宿](https://www.cialisgs.com/book/qir3lr/)
+- [忍界观察日记](https://www.cialisgs.com/book/qiqr7u/)
+- [绿叶](https://www.cialisgs.com/book/qiqqth/)
+- [老公是松散生命体](https://www.cialisgs.com/book/qiqkpk/)
+- [这谁的沙雕二次元心声！](https://www.cialisgs.com/book/qiqk7h/)
+- [一枝枝怨](https://www.cialisgs.com/book/qiqjop/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.cialisgs.com/book/qiq82m/)
+- [[足球]罗蜜第一志愿](https://www.cialisgs.com/book/qiq7jp/)
+- [多梦你一会儿](https://www.cialisgs.com/book/qiq6i6/)
+- [拯救世界从扮演反派开始](https://www.cialisgs.com/book/qiq44v/)
+- [和前女友的心上人he了](https://www.cialisgs.com/book/qiq1ii/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1283/index.md)
