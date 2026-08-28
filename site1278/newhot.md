@@ -1,31 +1,38 @@
 
 # 自由屋 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-08-28 03:40:09
+更新时间：2026-08-29 03:41:42
 
 自由屋文学网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
 - [自由屋](https://www.ziyuhai.com/)
 
 ## 最新小说
-- [我在虫族监狱写小说](https://www.ziyuhai.com/book/84rkalp/)
-- [[诡秘之主]乌鸦童话](https://www.ziyuhai.com/book/84rjmct/)
-- [我演的不是漂亮圣子攻吗?](https://www.ziyuhai.com/book/84rjl2m/)
-- [错嫁春笼（先婚后爱）](https://www.ziyuhai.com/book/q2ql4p/)
-- [被天使之王骗婚后[诡秘之主]](https://www.ziyuhai.com/book/q2qkil/)
-- [与清冷O协议结婚后她失忆了](https://www.ziyuhai.com/book/q2qk23/)
-- [迷雾求生，种田玩家也能当榜一？](https://www.ziyuhai.com/book/q2qhf3/)
-- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.ziyuhai.com/book/q2qf3n/)
-- [闺蜜就不能是妻子吗](https://www.ziyuhai.com/book/q2qf09/)
-- [宝儿楼](https://www.ziyuhai.com/book/q2qdks/)
-- [邻居小孩太有钱[快穿]](https://www.ziyuhai.com/book/q2qb3r/)
-- [重生后雌君追来了](https://www.ziyuhai.com/book/q2q8r5/)
-- [全星际都想吃我做的菜](https://www.ziyuhai.com/book/q2q698/)
-- [和饲养的黑蛇恋爱后](https://www.ziyuhai.com/book/q2q3ks/)
-- [骗失忆死对头修合欢道](https://www.ziyuhai.com/book/q2q2ag/)
-- [我将双打队友护至身前，自己站桩躺赢](https://www.ziyuhai.com/book/q2q0n4/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.ziyuhai.com/book/q2pj08/)
-- [海岛求生：生活玩家种田囤货](https://www.ziyuhai.com/book/8b448/)
+- [井闼山经理每天都被挖墙脚](https://www.ziyuhai.com/book/84rn56n/)
+- [在千禧年的伦敦当女巫](https://www.ziyuhai.com/book/84rn558/)
+- [星际团宠小人鱼](https://www.ziyuhai.com/book/84rn52t/)
+- [你，后室管理员](https://www.ziyuhai.com/book/84rn52k/)
+- [分手后与诱系妻子再度热恋](https://www.ziyuhai.com/book/84rn51g/)
+- [纯爱宇智波基本恋爱法](https://www.ziyuhai.com/book/84rn4so/)
+- [直男咒术师的限制级游戏](https://www.ziyuhai.com/book/84rn4s3/)
+- [某柯学的正义伙伴](https://www.ziyuhai.com/book/84rkc7d/)
+- [男朋友买一送一](https://www.ziyuhai.com/book/84rk0l8/)
+- [我有嘉宾](https://www.ziyuhai.com/book/84rjs3m/)
+- [若清晨所见之蓝](https://www.ziyuhai.com/book/q2qvcd/)
+- [沈助理又在隐藏他的超能力](https://www.ziyuhai.com/book/q2qrpa/)
+- [系统不许我摆烂](https://www.ziyuhai.com/book/q2qnpb/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.ziyuhai.com/book/q2qdrf/)
+- [[综武侠]有间民宿](https://www.ziyuhai.com/book/q2qb6q/)
+- [忍界观察日记](https://www.ziyuhai.com/book/q2q51o/)
+- [绿叶](https://www.ziyuhai.com/book/q2q36f/)
+- [一枝枝怨](https://www.ziyuhai.com/book/q2puah/)
+- [这谁的沙雕二次元心声！](https://www.ziyuhai.com/book/q2ptab/)
+- [老公是松散生命体](https://www.ziyuhai.com/book/q2pt2v/)
+- [多梦你一会儿](https://www.ziyuhai.com/book/q2pi25/)
+- [[足球]罗蜜第一志愿](https://www.ziyuhai.com/book/q2pfeg/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.ziyuhai.com/book/q2peps/)
+- [拯救世界从扮演反派开始](https://www.ziyuhai.com/book/q2pecm/)
+- [和前女友的心上人he了](https://www.ziyuhai.com/book/q2pc5e/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1278/index.md)
