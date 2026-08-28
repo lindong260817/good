@@ -1,31 +1,38 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-08-28 03:19:05
+更新时间：2026-08-29 03:19:35
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
 - [速阅阁小说网](https://www.ccccenergy.com/)
 
 ## 最新小说
-- [我在虫族监狱写小说](https://www.ccccenergy.com/book/7caoavt/)
-- [[诡秘之主]乌鸦童话](https://www.ccccenergy.com/book/7cankdp/)
-- [我演的不是漂亮圣子攻吗?](https://www.ccccenergy.com/book/7cank6c/)
-- [错嫁春笼（先婚后爱）](https://www.ccccenergy.com/book/nkb2ik/)
-- [闺蜜就不能是妻子吗](https://www.ccccenergy.com/book/nkb0le/)
-- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.ccccenergy.com/book/nkb06p/)
-- [迷雾求生，种田玩家也能当榜一？](https://www.ccccenergy.com/book/nkauqd/)
-- [与清冷O协议结婚后她失忆了](https://www.ccccenergy.com/book/nkaujr/)
-- [被天使之王骗婚后[诡秘之主]](https://www.ccccenergy.com/book/nkauel/)
-- [宝儿楼](https://www.ccccenergy.com/book/nkapq5/)
-- [邻居小孩太有钱[快穿]](https://www.ccccenergy.com/book/nkap7c/)
-- [重生后雌君追来了](https://www.ccccenergy.com/book/nkak34/)
-- [全星际都想吃我做的菜](https://www.ccccenergy.com/book/nkajuq/)
-- [和饲养的黑蛇恋爱后](https://www.ccccenergy.com/book/nkaglb/)
-- [骗失忆死对头修合欢道](https://www.ccccenergy.com/book/nkad0s/)
-- [我将双打队友护至身前，自己站桩躺赢](https://www.ccccenergy.com/book/nkac2o/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.ccccenergy.com/book/nk9tio/)
-- [海岛求生：生活玩家种田囤货](https://www.ccccenergy.com/book/7i0m6/)
+- [井闼山经理每天都被挖墙脚](https://www.ccccenergy.com/book/7car68e/)
+- [在千禧年的伦敦当女巫](https://www.ccccenergy.com/book/7car67g/)
+- [分手后与诱系妻子再度热恋](https://www.ccccenergy.com/book/7car63h/)
+- [星际团宠小人鱼](https://www.ccccenergy.com/book/7car63c/)
+- [你，后室管理员](https://www.ccccenergy.com/book/7car635/)
+- [直男咒术师的限制级游戏](https://www.ccccenergy.com/book/7car5tj/)
+- [纯爱宇智波基本恋爱法](https://www.ccccenergy.com/book/7car5tc/)
+- [某柯学的正义伙伴](https://www.ccccenergy.com/book/7caod92/)
+- [男朋友买一送一](https://www.ccccenergy.com/book/7cao14c/)
+- [我有嘉宾](https://www.ccccenergy.com/book/7cansm0/)
+- [若清晨所见之蓝](https://www.ccccenergy.com/book/nkbahn/)
+- [系统不许我摆烂](https://www.ccccenergy.com/book/nkb84k/)
+- [沈助理又在隐藏他的超能力](https://www.ccccenergy.com/book/nkb70f/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.ccccenergy.com/book/nkasfg/)
+- [[综武侠]有间民宿](https://www.ccccenergy.com/book/nkam00/)
+- [忍界观察日记](https://www.ccccenergy.com/book/nkaiou/)
+- [绿叶](https://www.ccccenergy.com/book/nkage3/)
+- [老公是松散生命体](https://www.ccccenergy.com/book/nka9ut/)
+- [一枝枝怨](https://www.ccccenergy.com/book/nka97e/)
+- [这谁的沙雕二次元心声！](https://www.ccccenergy.com/book/nka963/)
+- [多梦你一会儿](https://www.ccccenergy.com/book/nk9v65/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.ccccenergy.com/book/nk9tpp/)
+- [[足球]罗蜜第一志愿](https://www.ccccenergy.com/book/nk9sjl/)
+- [拯救世界从扮演反派开始](https://www.ccccenergy.com/book/nk9s4r/)
+- [和前女友的心上人he了](https://www.ccccenergy.com/book/nk9pte/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1293/index.md)
