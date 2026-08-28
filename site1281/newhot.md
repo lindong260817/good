@@ -1,31 +1,38 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-08-28 03:18:25
+更新时间：2026-08-29 03:18:51
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。
 
 - [忆想小说网](https://www.bianlishihao.com/)
 
 ## 最新小说
-- [我在虫族监狱写小说](https://www.bianlishihao.com/book/2vr4fqi/)
-- [我演的不是漂亮圣子攻吗?](https://www.bianlishihao.com/book/2vr3rg2/)
-- [[诡秘之主]乌鸦童话](https://www.bianlishihao.com/book/2vr3reo/)
-- [错嫁春笼（先婚后爱）](https://www.bianlishihao.com/book/9ip3d3/)
-- [与清冷O协议结婚后她失忆了](https://www.bianlishihao.com/book/9ip1gb/)
-- [被天使之王骗婚后[诡秘之主]](https://www.bianlishihao.com/book/9ip0sl/)
-- [闺蜜就不能是妻子吗](https://www.bianlishihao.com/book/9ip0po/)
-- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.bianlishihao.com/book/9ip0ls/)
-- [迷雾求生，种田玩家也能当榜一？](https://www.bianlishihao.com/book/9iov2u/)
-- [宝儿楼](https://www.bianlishihao.com/book/9iorec/)
-- [邻居小孩太有钱[快穿]](https://www.bianlishihao.com/book/9iompr/)
-- [重生后雌君追来了](https://www.bianlishihao.com/book/9iokac/)
-- [全星际都想吃我做的菜](https://www.bianlishihao.com/book/9iojh2/)
-- [和饲养的黑蛇恋爱后](https://www.bianlishihao.com/book/9ioi28/)
-- [我将双打队友护至身前，自己站桩躺赢](https://www.bianlishihao.com/book/9ioehq/)
-- [骗失忆死对头修合欢道](https://www.bianlishihao.com/book/9iodae/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.bianlishihao.com/book/9inu6l/)
-- [海岛求生：生活玩家种田囤货](https://www.bianlishihao.com/book/ulgfv/)
+- [在千禧年的伦敦当女巫](https://www.bianlishihao.com/book/2vr7ak0/)
+- [井闼山经理每天都被挖墙脚](https://www.bianlishihao.com/book/2vr7ajv/)
+- [你，后室管理员](https://www.bianlishihao.com/book/2vr7agr/)
+- [分手后与诱系妻子再度热恋](https://www.bianlishihao.com/book/2vr7agj/)
+- [星际团宠小人鱼](https://www.bianlishihao.com/book/2vr7afa/)
+- [直男咒术师的限制级游戏](https://www.bianlishihao.com/book/2vr7a9e/)
+- [纯爱宇智波基本恋爱法](https://www.bianlishihao.com/book/2vr7a9a/)
+- [某柯学的正义伙伴](https://www.bianlishihao.com/book/2vr4i9j/)
+- [男朋友买一送一](https://www.bianlishihao.com/book/2vr46ub/)
+- [我有嘉宾](https://www.bianlishihao.com/book/2vr3uth/)
+- [若清晨所见之蓝](https://www.bianlishihao.com/book/9ipahe/)
+- [沈助理又在隐藏他的超能力](https://www.bianlishihao.com/book/9ip7lo/)
+- [系统不许我摆烂](https://www.bianlishihao.com/book/9ip6kl/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.bianlishihao.com/book/9ioqbu/)
+- [[综武侠]有间民宿](https://www.bianlishihao.com/book/9ioo1q/)
+- [忍界观察日记](https://www.bianlishihao.com/book/9iol1j/)
+- [绿叶](https://www.bianlishihao.com/book/9iohe1/)
+- [一枝枝怨](https://www.bianlishihao.com/book/9ioc1j/)
+- [老公是松散生命体](https://www.bianlishihao.com/book/9iobe3/)
+- [这谁的沙雕二次元心声！](https://www.bianlishihao.com/book/9iob3p/)
+- [多梦你一会儿](https://www.bianlishihao.com/book/9io0i1/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.bianlishihao.com/book/9inv9h/)
+- [[足球]罗蜜第一志愿](https://www.bianlishihao.com/book/9int05/)
+- [拯救世界从扮演反派开始](https://www.bianlishihao.com/book/9inr48/)
+- [和前女友的心上人he了](https://www.bianlishihao.com/book/9inq2g/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1281/index.md)

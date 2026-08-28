@@ -1,31 +1,38 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-28 03:33:55
+更新时间：2026-08-29 03:35:00
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
 - [读读窝小说网](https://www.tiananfoundry.com/)
 
 ## 最新小说
-- [我在虫族监狱写小说](https://www.tiananfoundry.com/book/1ol1qv9/)
-- [[诡秘之主]乌鸦童话](https://www.tiananfoundry.com/book/1ol14kc/)
-- [我演的不是漂亮圣子攻吗?](https://www.tiananfoundry.com/book/1ol13r8/)
-- [错嫁春笼（先婚后爱）](https://www.tiananfoundry.com/book/5lbuip/)
-- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.tiananfoundry.com/book/5lbtmi/)
-- [闺蜜就不能是妻子吗](https://www.tiananfoundry.com/book/5lbtam/)
-- [迷雾求生，种田玩家也能当榜一？](https://www.tiananfoundry.com/book/5lbsde/)
-- [被天使之王骗婚后[诡秘之主]](https://www.tiananfoundry.com/book/5lbsd3/)
-- [与清冷O协议结婚后她失忆了](https://www.tiananfoundry.com/book/5lbrn0/)
-- [宝儿楼](https://www.tiananfoundry.com/book/5lbodg/)
-- [邻居小孩太有钱[快穿]](https://www.tiananfoundry.com/book/5lbo2n/)
-- [重生后雌君追来了](https://www.tiananfoundry.com/book/5lbkq5/)
-- [全星际都想吃我做的菜](https://www.tiananfoundry.com/book/5lbimb/)
-- [和饲养的黑蛇恋爱后](https://www.tiananfoundry.com/book/5lbh0m/)
-- [骗失忆死对头修合欢道](https://www.tiananfoundry.com/book/5lbb8e/)
-- [我将双打队友护至身前，自己站桩躺赢](https://www.tiananfoundry.com/book/5lba42/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.tiananfoundry.com/book/5lat9j/)
-- [海岛求生：生活玩家种田囤货](https://www.tiananfoundry.com/book/1q0or/)
+- [在千禧年的伦敦当女巫](https://www.tiananfoundry.com/book/1ol4mrs/)
+- [井闼山经理每天都被挖墙脚](https://www.tiananfoundry.com/book/1ol4mrf/)
+- [你，后室管理员](https://www.tiananfoundry.com/book/1ol4mqa/)
+- [分手后与诱系妻子再度热恋](https://www.tiananfoundry.com/book/1ol4mpg/)
+- [星际团宠小人鱼](https://www.tiananfoundry.com/book/1ol4mol/)
+- [纯爱宇智波基本恋爱法](https://www.tiananfoundry.com/book/1ol4mnj/)
+- [直男咒术师的限制级游戏](https://www.tiananfoundry.com/book/1ol4mn6/)
+- [某柯学的正义伙伴](https://www.tiananfoundry.com/book/1ol1shv/)
+- [男朋友买一送一](https://www.tiananfoundry.com/book/1ol1j0v/)
+- [我有嘉宾](https://www.tiananfoundry.com/book/1ol1dej/)
+- [若清晨所见之蓝](https://www.tiananfoundry.com/book/5lc8i4/)
+- [沈助理又在隐藏他的超能力](https://www.tiananfoundry.com/book/5lc6gu/)
+- [系统不许我摆烂](https://www.tiananfoundry.com/book/5lc6bf/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.tiananfoundry.com/book/5lbq1k/)
+- [[综武侠]有间民宿](https://www.tiananfoundry.com/book/5lbn7j/)
+- [忍界观察日记](https://www.tiananfoundry.com/book/5lbgbl/)
+- [绿叶](https://www.tiananfoundry.com/book/5lbftp/)
+- [这谁的沙雕二次元心声！](https://www.tiananfoundry.com/book/5lbbn6/)
+- [一枝枝怨](https://www.tiananfoundry.com/book/5lb8ua/)
+- [老公是松散生命体](https://www.tiananfoundry.com/book/5lb7v6/)
+- [多梦你一会儿](https://www.tiananfoundry.com/book/5lauo5/)
+- [[足球]罗蜜第一志愿](https://www.tiananfoundry.com/book/5lateh/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.tiananfoundry.com/book/5latee/)
+- [拯救世界从扮演反派开始](https://www.tiananfoundry.com/book/5laood/)
+- [和前女友的心上人he了](https://www.tiananfoundry.com/book/5lan55/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1288/index.md)

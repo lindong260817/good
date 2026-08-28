@@ -1,31 +1,38 @@
 
 # 新乐文小说 - 最热门免费在线阅读平台 | 玄幻、网游、言情、穿越、都市全本小说
 
-更新时间：2026-08-28 03:26:35
+更新时间：2026-08-29 03:27:14
 
 新乐文小说为您提供一个无广告无弹窗的纯净阅读环境，专注于玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读体验。在这里可以找到最新最热的小说章节更新，享受舒适的阅读时光。
 
 - [新乐文小说](https://www.ksqinlida.com/)
 
 ## 最新小说
-- [我在虫族监狱写小说](https://www.ksqinlida.com/book/1svatkn/)
-- [我演的不是漂亮圣子攻吗?](https://www.ksqinlida.com/book/1sva8us/)
-- [[诡秘之主]乌鸦童话](https://www.ksqinlida.com/book/1sva7ce/)
-- [错嫁春笼（先婚后爱）](https://www.ksqinlida.com/book/636g1c/)
-- [迷雾求生，种田玩家也能当榜一？](https://www.ksqinlida.com/book/636f56/)
-- [被天使之王骗婚后[诡秘之主]](https://www.ksqinlida.com/book/636ejh/)
-- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.ksqinlida.com/book/636ejc/)
-- [与清冷O协议结婚后她失忆了](https://www.ksqinlida.com/book/636d90/)
-- [闺蜜就不能是妻子吗](https://www.ksqinlida.com/book/636cpl/)
-- [宝儿楼](https://www.ksqinlida.com/book/63691h/)
-- [邻居小孩太有钱[快穿]](https://www.ksqinlida.com/book/6366en/)
-- [全星际都想吃我做的菜](https://www.ksqinlida.com/book/6363lf/)
-- [重生后雌君追来了](https://www.ksqinlida.com/book/6362ut/)
-- [和饲养的黑蛇恋爱后](https://www.ksqinlida.com/book/63602n/)
-- [骗失忆死对头修合欢道](https://www.ksqinlida.com/book/635tgj/)
-- [我将双打队友护至身前，自己站桩躺赢](https://www.ksqinlida.com/book/635su2/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.ksqinlida.com/book/635e54/)
-- [海岛求生：生活玩家种田囤货](https://www.ksqinlida.com/book/jgdn4/)
+- [井闼山经理每天都被挖墙脚](https://www.ksqinlida.com/book/1svdoi4/)
+- [在千禧年的伦敦当女巫](https://www.ksqinlida.com/book/1svdof8/)
+- [你，后室管理员](https://www.ksqinlida.com/book/1svdocq/)
+- [星际团宠小人鱼](https://www.ksqinlida.com/book/1svdob0/)
+- [分手后与诱系妻子再度热恋](https://www.ksqinlida.com/book/1svdoap/)
+- [直男咒术师的限制级游戏](https://www.ksqinlida.com/book/1svdo8f/)
+- [纯爱宇智波基本恋爱法](https://www.ksqinlida.com/book/1svdo7f/)
+- [某柯学的正义伙伴](https://www.ksqinlida.com/book/1svavfs/)
+- [男朋友买一送一](https://www.ksqinlida.com/book/1svakm4/)
+- [我有嘉宾](https://www.ksqinlida.com/book/1svacf0/)
+- [若清晨所见之蓝](https://www.ksqinlida.com/book/636r6u/)
+- [沈助理又在隐藏他的超能力](https://www.ksqinlida.com/book/636mq8/)
+- [系统不许我摆烂](https://www.ksqinlida.com/book/636isg/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.ksqinlida.com/book/636alp/)
+- [[综武侠]有间民宿](https://www.ksqinlida.com/book/6364oh/)
+- [忍界观察日记](https://www.ksqinlida.com/book/6360v1/)
+- [绿叶](https://www.ksqinlida.com/book/635v59/)
+- [老公是松散生命体](https://www.ksqinlida.com/book/635qo7/)
+- [一枝枝怨](https://www.ksqinlida.com/book/635qcj/)
+- [这谁的沙雕二次元心声！](https://www.ksqinlida.com/book/635pmh/)
+- [多梦你一会儿](https://www.ksqinlida.com/book/635cmb/)
+- [[足球]罗蜜第一志愿](https://www.ksqinlida.com/book/635bun/)
+- [拯救世界从扮演反派开始](https://www.ksqinlida.com/book/635bf7/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.ksqinlida.com/book/635a8t/)
+- [和前女友的心上人he了](https://www.ksqinlida.com/book/63581s/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1328/index.md)

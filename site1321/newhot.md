@@ -1,31 +1,38 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-08-28 03:20:55
+更新时间：2026-08-29 03:21:28
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
 - [读者香书小说](https://www.duzhe888.com/)
 
 ## 最新小说
-- [我在虫族监狱写小说](https://www.duzhe888.com/book/2kobt92/)
-- [我演的不是漂亮圣子攻吗?](https://www.duzhe888.com/book/2kob7ts/)
-- [[诡秘之主]乌鸦童话](https://www.duzhe888.com/book/2kob6el/)
-- [错嫁春笼（先婚后爱）](https://www.duzhe888.com/book/8f9q6t/)
-- [闺蜜就不能是妻子吗](https://www.duzhe888.com/book/8f9neq/)
-- [被天使之王骗婚后[诡秘之主]](https://www.duzhe888.com/book/8f9nd2/)
-- [[魔戒]中洲第一精灵宝宝芙莉莲](https://www.duzhe888.com/book/8f9n34/)
-- [与清冷O协议结婚后她失忆了](https://www.duzhe888.com/book/8f9mgm/)
-- [迷雾求生，种田玩家也能当榜一？](https://www.duzhe888.com/book/8f9lgp/)
-- [宝儿楼](https://www.duzhe888.com/book/8f9i4j/)
-- [邻居小孩太有钱[快穿]](https://www.duzhe888.com/book/8f9hna/)
-- [重生后雌君追来了](https://www.duzhe888.com/book/8f9d1g/)
-- [全星际都想吃我做的菜](https://www.duzhe888.com/book/8f9cri/)
-- [和饲养的黑蛇恋爱后](https://www.duzhe888.com/book/8f9b6c/)
-- [骗失忆死对头修合欢道](https://www.duzhe888.com/book/8f95rf/)
-- [我将双打队友护至身前，自己站桩躺赢](https://www.duzhe888.com/book/8f94eh/)
-- [身为宇智波的你，召唤出了千手家的老爷爷](https://www.duzhe888.com/book/8f8lrl/)
-- [海岛求生：生活玩家种田囤货](https://www.duzhe888.com/book/r3uds/)
+- [在千禧年的伦敦当女巫](https://www.duzhe888.com/book/2koepcq/)
+- [井闼山经理每天都被挖墙脚](https://www.duzhe888.com/book/2koepbg/)
+- [星际团宠小人鱼](https://www.duzhe888.com/book/2koep8p/)
+- [分手后与诱系妻子再度热恋](https://www.duzhe888.com/book/2koep7c/)
+- [你，后室管理员](https://www.duzhe888.com/book/2koep6v/)
+- [直男咒术师的限制级游戏](https://www.duzhe888.com/book/2koep4k/)
+- [纯爱宇智波基本恋爱法](https://www.duzhe888.com/book/2koep3s/)
+- [某柯学的正义伙伴](https://www.duzhe888.com/book/2kobv8u/)
+- [男朋友买一送一](https://www.duzhe888.com/book/2kobkku/)
+- [我有嘉宾](https://www.duzhe888.com/book/2kobft7/)
+- [若清晨所见之蓝](https://www.duzhe888.com/book/8fa187/)
+- [沈助理又在隐藏他的超能力](https://www.duzhe888.com/book/8f9v0q/)
+- [系统不许我摆烂](https://www.duzhe888.com/book/8f9uas/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.duzhe888.com/book/8f9krh/)
+- [[综武侠]有间民宿](https://www.duzhe888.com/book/8f9hqs/)
+- [忍界观察日记](https://www.duzhe888.com/book/8f9br4/)
+- [绿叶](https://www.duzhe888.com/book/8f9bem/)
+- [这谁的沙雕二次元心声！](https://www.duzhe888.com/book/8f94rd/)
+- [一枝枝怨](https://www.duzhe888.com/book/8f938d/)
+- [老公是松散生命体](https://www.duzhe888.com/book/8f92ac/)
+- [[足球]罗蜜第一志愿](https://www.duzhe888.com/book/8f8nmm/)
+- [[足球]幼年巨星被豪门主席强买之后](https://www.duzhe888.com/book/8f8n1t/)
+- [多梦你一会儿](https://www.duzhe888.com/book/8f8mep/)
+- [拯救世界从扮演反派开始](https://www.duzhe888.com/book/8f8kac/)
+- [和前女友的心上人he了](https://www.duzhe888.com/book/8f8fsq/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1321/index.md)
