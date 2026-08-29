@@ -1,17 +1,17 @@
 
 # 科幻读书-免费小说阅读|言情小说|小说排行榜|全本完本小说下载
 
-更新时间：2026-08-29 03:26:27
+更新时间：2026-08-30 03:27:32
 
 科幻读书提供海量完结全本小说在线阅读服务，涵盖言情、都市、耽美、穿越等多种类型，并定期更新连载章节及发布最新小说排行榜单。支持有声小说推荐与下载。
 
 - [科幻读书](https://www.kehuan918.com/)
 
 ## 最新小说
+- [发家致富小夫郎](https://www.kehuan918.com/book/1d56799/)
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.kehuan918.com/book/1d564un/)
 - [[原神+崩铁]在提瓦特隐居也未尝不可](https://www.kehuan918.com/book/1d564uk/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kehuan918.com/book/1d564uf/)
-- [软饭，站着吃](https://www.kehuan918.com/book/1d564ub/)
 - [万人嫌女配深陷修罗场](https://www.kehuan918.com/book/1d564u2/)
 - [昼色清明](https://www.kehuan918.com/book/1d564tu/)
 - [当织田作绑定魅魔系统](https://www.kehuan918.com/book/1d564ts/)
@@ -23,7 +23,7 @@
 - [和光太郎谈恋爱](https://www.kehuan918.com/book/1d564te/)
 - [[希腊神话]诸神都是我学生](https://www.kehuan918.com/book/1d564td/)
 - [凤凰男就该窝里下蛋](https://www.kehuan918.com/book/1d564tc/)
-- [[排球]游戏角色想和玩家谈恋爱](https://www.kehuan918.com/book/1d564t8/)
+- [游戏角色想和玩家谈恋爱](https://www.kehuan918.com/book/1d564t8/)
 - [女先生](https://www.kehuan918.com/book/1d564t4/)
 - [与亡夫春风一度后](https://www.kehuan918.com/book/1d564sv/)
 - [渡鬼](https://www.kehuan918.com/book/1d564su/)
@@ -42,7 +42,7 @@
 - [败类游戏](https://www.kehuan918.com/book/1d564rp/)
 - [我们生活玩家是这样的](https://www.kehuan918.com/book/1d564rm/)
 - [[三国]清澈，但千古一帝](https://www.kehuan918.com/book/1d564rk/)
-- [氪金林太郎，我成了无冕之王](https://www.kehuan918.com/book/1d564rh/)
+- [氪金游戏，从养成林太郎开始](https://www.kehuan918.com/book/1d564rh/)
 - [除病弱万人嫌外全员重生](https://www.kehuan918.com/book/1d564rg/)
 - [[娱乐圈]穿进同人文里哦多尅](https://www.kehuan918.com/book/1d564rc/)
 - [折禅（强取豪夺）](https://www.kehuan918.com/book/1d564r8/)
@@ -64,14 +64,13 @@
 - [被怪物女友始乱终弃后[gb]](https://www.kehuan918.com/book/1d564pq/)
 - [我真的只会Ctrl啊！！！](https://www.kehuan918.com/book/1d562g2/)
 - [灭世龙崽有什么错](https://www.kehuan918.com/book/1d55rdp/)
+- [九零重组小家庭](https://www.kehuan918.com/book/1d55pm3/)
 - [人妻O救赎指南](https://www.kehuan918.com/book/1d55ohq/)
 - [在虫族世界逃命升级](https://www.kehuan918.com/book/1d55l4l/)
 - [神豪文男主是我爸](https://www.kehuan918.com/book/1d55k3k/)
-- [无限末日副本：我有移动安全屋](https://www.kehuan918.com/book/1d55edq/)
 - [我有特殊的升官技巧](https://www.kehuan918.com/book/1d558hk/)
 - [星际团宠小人鱼](https://www.kehuan918.com/book/1d555km/)
 - [十九世纪贵族厨房（美食）](https://www.kehuan918.com/book/1d555kj/)
-- [夺养媳](https://www.kehuan918.com/book/1d555dd/)
 - [反派人生，易如反掌[快穿]](https://www.kehuan918.com/book/1d55502/)
 - [高调装神，猥琐发育](https://www.kehuan918.com/book/1d54udq/)
 - [摄政王家的咸鱼夫郎](https://www.kehuan918.com/book/1d54f2u/)
@@ -87,6 +86,7 @@
 - [误标记隔壁阿姨O之后](https://www.kehuan918.com/book/1d540oh/)
 - [为诡异打工，但反封建迷信](https://www.kehuan918.com/book/1d540ft/)
 - [不当救世主就要当人类恶了吗](https://www.kehuan918.com/book/1d53tmt/)
+- [社恐直播鉴宝，但带球跑](https://www.kehuan918.com/book/1d53ta7/)
 - [十福晋吃瓜日常(清穿)](https://www.kehuan918.com/book/1d53t13/)
 - [在民俗惊悚片被诸神庇护](https://www.kehuan918.com/book/1d53ssm/)
 - [当我穿为龙傲天的情敌](https://www.kehuan918.com/book/1d53rtb/)
@@ -109,7 +109,6 @@
 - [青空来信](https://www.kehuan918.com/book/1d533ib/)
 - [龙傲天他解锁宠妻系统](https://www.kehuan918.com/book/1d53362/)
 - [我，恶女，在线搞事](https://www.kehuan918.com/book/1d5321d/)
-- [星露谷，但大秦帝国](https://www.kehuan918.com/book/1d5317r/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.kehuan918.com/book/1d5306c/)
 - [人在虫族，写文爆红](https://www.kehuan918.com/book/1d52vth/)
 - [豪门前妻O总想诱我](https://www.kehuan918.com/book/1d52uhe/)
@@ -129,7 +128,6 @@
 - [悟咪观察笔记](https://www.kehuan918.com/book/1d52gpi/)
 - [迟晚](https://www.kehuan918.com/book/1d52g5f/)
 - [直男误入攻略天龙人游戏](https://www.kehuan918.com/book/1d52g2d/)
-- [娶了女装心机太子](https://www.kehuan918.com/book/1d52ee1/)
 - [萩原警官的咒术大冒险](https://www.kehuan918.com/book/1d52ecr/)
 - [穿越废星，我靠种田求生](https://www.kehuan918.com/book/1d52aid/)
 - [今天在伟大航路抽到SSR了吗](https://www.kehuan918.com/book/1d529lh/)
@@ -140,6 +138,7 @@
 - [如果时光不记得](https://www.kehuan918.com/book/1d5264s/)
 - [满级大佬制霸热血运动番](https://www.kehuan918.com/book/1d525r9/)
 - [搭档，一起来玩求生游戏吧！](https://www.kehuan918.com/book/1d525i8/)
+- [恶犬攻绑定上司的乖狗系统](https://www.kehuan918.com/book/1d525c3/)
 - [红楼之霸总他被迫拯救女主角](https://www.kehuan918.com/book/1d524ua/)
 - [虫族之雌君的人设不对劲](https://www.kehuan918.com/book/1d5243q/)
 - [绿茶病秧子骗他说喜欢](https://www.kehuan918.com/book/1d523d5/)
@@ -148,7 +147,6 @@
 - [我真的没想在选秀炒CP](https://www.kehuan918.com/book/1d51ub0/)
 - [把清冷权臣调成荡夫后](https://www.kehuan918.com/book/1d51rvc/)
 - [[群穿]我在御兽番抢人气](https://www.kehuan918.com/book/1d51qs5/)
-- [道长他为何那样](https://www.kehuan918.com/book/1d51qk1/)
 - [高嫁之后](https://www.kehuan918.com/book/1d510ak/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kehuan918.com/book/1d50vtv/)
 - [海岛求生：生活玩家种田囤货](https://www.kehuan918.com/book/1d50vt0/)
@@ -157,7 +155,6 @@
 - [五十年代港城日常](https://www.kehuan918.com/book/1d50vmp/)
 - [日化人生[科研]](https://www.kehuan918.com/book/1d50vmg/)
 - [高门小婢](https://www.kehuan918.com/book/1d50vbb/)
-- [穿到反派落魄时](https://www.kehuan918.com/book/1d50v4g/)
 - [卧底后被港岛大小姐缠上了](https://www.kehuan918.com/book/1d50v22/)
 - [警察，但犯罪大师系统[刑侦]](https://www.kehuan918.com/book/1d50uvj/)
 - [成为养成系练习生后](https://www.kehuan918.com/book/1d50uto/)
@@ -168,7 +165,6 @@
 - [御兽师，我打工养你啊](https://www.kehuan918.com/book/1d50uft/)
 - [假少爷不想活了](https://www.kehuan918.com/book/1d50ufd/)
 - [千禧年，拆迁分了十栋楼！](https://www.kehuan918.com/book/1d50u67/)
-- [我真不是算命的！[香江]](https://www.kehuan918.com/book/1d50tof/)
 - [如何扮演源氏重宝](https://www.kehuan918.com/book/1d50tlo/)
 - [六零之成了卷王的妹妹](https://www.kehuan918.com/book/1d50tkm/)
 - [古代种田养娃日常](https://www.kehuan918.com/book/1d50tj3/)
@@ -176,7 +172,6 @@
 - [95美国贵族高中模拟](https://www.kehuan918.com/book/1d50th6/)
 - [巨物致富：回乡开钓场](https://www.kehuan918.com/book/1d50tei/)
 - [穿成炮灰后我封神了［快穿］](https://www.kehuan918.com/book/1d50tdc/)
-- [被反派暴君听到心声后[穿书]](https://www.kehuan918.com/book/1d50t8b/)
 - [全民求生:从小木屋到魔法农场](https://www.kehuan918.com/book/1d50t7c/)
 - [[娱乐圈]过分美丽的她](https://www.kehuan918.com/book/1d50t3m/)
 ## 相关内容

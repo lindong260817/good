@@ -1,33 +1,29 @@
 
 # 燃文故事小说网 - 无弹窗全本小说免费阅读
 
-更新时间：2026-08-29 03:23:17
+更新时间：2026-08-30 03:24:19
 
 燃文故事小说网提供无弹窗干扰的小说阅读体验，支持全本小说在线免费阅读。
 
 - [燃文故事小说网](https://www.gushi687.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.gushi687.com/book/63qv0tu/)
+- [我的烧烤摊超美味[美食]](https://www.gushi687.com/book/63qv0rb/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.gushi687.com/book/63qv0qq/)
 - [我有嘉宾](https://www.gushi687.com/book/63qus6k/)
 - [星际团宠小人鱼](https://www.gushi687.com/book/63qu1ll/)
 - [分手后与诱系妻子再度热恋](https://www.gushi687.com/book/63qu1kf/)
 - [你，后室管理员](https://www.gushi687.com/book/63qu1hk/)
-- [男朋友买一送一](https://www.gushi687.com/book/63qtfgj/)
-- [绿叶](https://www.gushi687.com/book/63qt36v/)
-- [若清晨所见之蓝](https://www.gushi687.com/book/63qss9q/)
-- [沈助理又在隐藏他的超能力](https://www.gushi687.com/book/63qsnnl/)
+- [高调装神，猥琐发育](https://www.gushi687.com/book/63qtqic/)
+- [如何正确哄睡暴君](https://www.gushi687.com/book/63qt77t/)
+- [被鬼怪宠爱的漂亮书生](https://www.gushi687.com/book/63qsota/)
 - [老公是松散生命体](https://www.gushi687.com/book/63qsnk7/)
 - [微臣怜惜公主](https://www.gushi687.com/book/63qsl52/)
-- [系统不许我摆烂](https://www.gushi687.com/book/63qshu8/)
-- [亚当斯与韦恩的适配性](https://www.gushi687.com/book/63qsd3v/)
+- [他要和我谈恋爱](https://www.gushi687.com/book/63qsbvq/)
+- [战死的阿爹回来了[年代]](https://www.gushi687.com/book/63qs83r/)
 - [多梦你一会儿](https://www.gushi687.com/book/63qs6v5/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.gushi687.com/book/63qs5kv/)
-- [这谁的沙雕二次元心声！](https://www.gushi687.com/book/63qs4qq/)
-- [[综武侠]有间民宿](https://www.gushi687.com/book/63qs3tq/)
-- [和前女友的心上人he了](https://www.gushi687.com/book/63qs155/)
-- [忍界观察日记](https://www.gushi687.com/book/63qs0ra/)
-- [某柯学的正义伙伴](https://www.gushi687.com/book/63qruqq/)
+- [漫画路人绑定系统后](https://www.gushi687.com/book/63qs5nu/)
+- [[足球]能不能好好模拟游戏](https://www.gushi687.com/book/63qs3ka/)
 - [[足球]罗蜜第一志愿](https://www.gushi687.com/book/63qruk8/)
 - [井闼山经理每天都被挖墙脚](https://www.gushi687.com/book/63qrrkr/)
 - [一枝枝怨](https://www.gushi687.com/book/63qrrhm/)
@@ -35,10 +31,8 @@
 - [法外狂猫](https://www.gushi687.com/book/63qrdlo/)
 - [好兄弟暴富后非要跟我结婚](https://www.gushi687.com/book/63qrbqi/)
 - [关于我虚构了一个男友这件事](https://www.gushi687.com/book/63qrb4d/)
-- [契约情人](https://www.gushi687.com/book/63qr9n7/)
+- [和室友他爸恋爱后](https://www.gushi687.com/book/63qqvkj/)
 - [纯爱宇智波基本恋爱法](https://www.gushi687.com/book/63qprnt/)
-- [直男咒术师的限制级游戏](https://www.gushi687.com/book/63qpqgi/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.gushi687.com/book/63qpqg3/)
 - [拯救世界从扮演反派开始](https://www.gushi687.com/book/63qppu9/)
 ## 相关内容
 - [README](/README.md)

@@ -1,13 +1,15 @@
 
 # 曹操SPA小说 - 小说的海洋，文学的殿堂 | 在线阅读与下载原创小说
 
-更新时间：2026-08-29 03:19:24
+更新时间：2026-08-30 03:20:22
 
 曹操SPA小说是一个专注于优质小说和文学创作的网站，这里是书迷们的天堂，提供丰富的原创网络小说、经典文学作品在线阅读与下载，致力于打造一个充满灵感与创意的文学世界。
 
 - [曹操SPA小说](https://www.caocaospa.com/)
 
 ## 最新小说
+- [九零重组小家庭](https://www.caocaospa.com/book/8q1tdd6/)
+- [发家致富小夫郎](https://www.caocaospa.com/book/8q1t6dh/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.caocaospa.com/book/8q1ssv7/)
 - [当织田作绑定魅魔系统](https://www.caocaospa.com/book/8q1ssl6/)
 - [退婚流龙傲天，但未婚夫是我](https://www.caocaospa.com/book/8q1ssbs/)
@@ -38,8 +40,8 @@
 - [水管工[GB]](https://www.caocaospa.com/book/8q1sr5f/)
 - [异种新婚报告](https://www.caocaospa.com/book/8q1sr4e/)
 - [被怪物女友始乱终弃后[gb]](https://www.caocaospa.com/book/8q1sr0s/)
-- [氪金林太郎，我成了无冕之王](https://www.caocaospa.com/book/8q1sqt4/)
-- [[排球]游戏角色想和玩家谈恋爱](https://www.caocaospa.com/book/8q1sqrt/)
+- [氪金游戏，从养成林太郎开始](https://www.caocaospa.com/book/8q1sqt4/)
+- [游戏角色想和玩家谈恋爱](https://www.caocaospa.com/book/8q1sqrt/)
 - [重回养父年少时](https://www.caocaospa.com/book/8q1sqrg/)
 - [万人嫌女配深陷修罗场](https://www.caocaospa.com/book/8q1sqnd/)
 - [始乱终弃高岭之花以后](https://www.caocaospa.com/book/8q1sqna/)
@@ -53,7 +55,6 @@
 - [下潜一万米，海渊求生](https://www.caocaospa.com/book/8q1sqg8/)
 - [败类游戏](https://www.caocaospa.com/book/8q1sqft/)
 - [身为人造人的我梦想是成为救世主](https://www.caocaospa.com/book/8q1sqfb/)
-- [软饭，站着吃](https://www.caocaospa.com/book/8q1sqeg/)
 - [婚后矜持](https://www.caocaospa.com/book/8q1sqac/)
 - [私恋旧星](https://www.caocaospa.com/book/8q1sqa7/)
 - [[原神+崩铁]在提瓦特隐居也未尝不可](https://www.caocaospa.com/book/8q1sq8u/)
@@ -81,6 +82,7 @@
 - [十福晋吃瓜日常(清穿)](https://www.caocaospa.com/book/8q1s5va/)
 - [当菟丝花要分手后](https://www.caocaospa.com/book/8q1s5l8/)
 - [[综英美]让我统治哥谭！！！](https://www.caocaospa.com/book/8q1s5e9/)
+- [社恐直播鉴宝，但带球跑](https://www.caocaospa.com/book/8q1s4vs/)
 - [当我穿为龙傲天的情敌](https://www.caocaospa.com/book/8q1s2k9/)
 - [霓虹夏日](https://www.caocaospa.com/book/8q1s03c/)
 - [养成游戏，但破解版](https://www.caocaospa.com/book/8q1rvdh/)
@@ -132,6 +134,7 @@
 - [[足球]没头脑和不高兴](https://www.caocaospa.com/book/8q1qeki/)
 - [这男人该死的甜美](https://www.caocaospa.com/book/8q1qcek/)
 - [红楼之霸总他被迫拯救女主角](https://www.caocaospa.com/book/8q1qc65/)
+- [恶犬攻绑定上司的乖狗系统](https://www.caocaospa.com/book/8q1qc2l/)
 - [把清冷权臣调成荡夫后](https://www.caocaospa.com/book/8q1q9vn/)
 - [绿茶病秧子骗他说喜欢](https://www.caocaospa.com/book/8q1q9mc/)
 - [我真的没想在选秀炒CP](https://www.caocaospa.com/book/8q1q5ar/)
@@ -141,7 +144,6 @@
 - [全民求生:从小木屋到魔法农场](https://www.caocaospa.com/book/8q1p7o7/)
 - [趁她之危](https://www.caocaospa.com/book/8q1p7o1/)
 - [警察，但犯罪大师系统[刑侦]](https://www.caocaospa.com/book/8q1p7mn/)
-- [穿到反派落魄时](https://www.caocaospa.com/book/8q1p7lt/)
 - [在民俗惊悚片被诸神庇护](https://www.caocaospa.com/book/8q1p7kj/)
 - [千禧年，拆迁分了十栋楼！](https://www.caocaospa.com/book/8q1p7i3/)
 - [如何扮演源氏重宝](https://www.caocaospa.com/book/8q1p7fv/)
@@ -150,23 +152,17 @@
 - [成为养成系练习生后](https://www.caocaospa.com/book/8q1p7a7/)
 - [穿成炮灰后我封神了［快穿］](https://www.caocaospa.com/book/8q1p79l/)
 - [替嫁后咸鱼继母佛系日常](https://www.caocaospa.com/book/8q1p75c/)
-- [我真不是算命的！[香江]](https://www.caocaospa.com/book/8q1p73r/)
 - [为诡异打工，但反封建迷信](https://www.caocaospa.com/book/8q1p6nj/)
 - [[娱乐圈]过分美丽的她](https://www.caocaospa.com/book/8q1p6ls/)
 - [五十年代港城日常](https://www.caocaospa.com/book/8q1p6lc/)
 - [人妻O救赎指南](https://www.caocaospa.com/book/8q1p6kb/)
-- [道长他为何那样](https://www.caocaospa.com/book/8q1p6em/)
-- [被反派暴君听到心声后[穿书]](https://www.caocaospa.com/book/8q1p6c6/)
 - [95美国贵族高中模拟](https://www.caocaospa.com/book/8q1p6b5/)
 - [假少爷不想活了](https://www.caocaospa.com/book/8q1p6a3/)
 - [卧底后被港岛大小姐缠上了](https://www.caocaospa.com/book/8q1p65k/)
 - [八零恶毒后妈杀疯了](https://www.caocaospa.com/book/8q1p60t/)
 - [九零首富的替嫁小媳妇](https://www.caocaospa.com/book/8q1p5ub/)
 - [星际团宠小人鱼](https://www.caocaospa.com/book/8q1p5tj/)
-- [娶了女装心机太子](https://www.caocaospa.com/book/8q1p5qu/)
 - [日化人生[科研]](https://www.caocaospa.com/book/8q1p5of/)
-- [无限末日副本：我有移动安全屋](https://www.caocaospa.com/book/8q1p5nf/)
-- [夺养媳](https://www.caocaospa.com/book/8q1p5mg/)
 - [古代种田养娃日常](https://www.caocaospa.com/book/8q1p5le/)
 - [巨物致富：回乡开钓场](https://www.caocaospa.com/book/8q1p5jl/)
 - [十九世纪贵族厨房（美食）](https://www.caocaospa.com/book/8q1p5iu/)
@@ -175,7 +171,6 @@
 - [清澈女大的六零年代](https://www.caocaospa.com/book/8q1p5bh/)
 - [六零之成了卷王的妹妹](https://www.caocaospa.com/book/8q1p5af/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.caocaospa.com/book/8q1p59l/)
-- [星露谷，但大秦帝国](https://www.caocaospa.com/book/8q1p57u/)
 - [大瑛弟国](https://www.caocaospa.com/book/8q1p52a/)
 - [猫猫也要养家糊口](https://www.caocaospa.com/book/8q1p4qg/)
 - [高调装神，猥琐发育](https://www.caocaospa.com/book/8q1p4kh/)

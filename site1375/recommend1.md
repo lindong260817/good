@@ -1,13 +1,15 @@
 
 # 精英文学 - 书友最值得收藏的小说免费阅读网
 
-更新时间：2026-08-29 03:37:58
+更新时间：2026-08-30 03:39:13
 
 精英文学为您提供一个干净舒适的阅读环境，作为书友最值得收藏的小说免费阅读网之一，我们致力于打造无广告干扰的最佳在线阅读体验。
 
 - [精英文学](https://www.xcposji.com/)
 
 ## 最新小说
+- [发家致富小夫郎](https://www.xcposji.com/book/jnmckv/)
+- [九零重组小家庭](https://www.xcposji.com/book/jnm8cn/)
 - [下潜一万米，海渊求生](https://www.xcposji.com/book/jnm809/)
 - [凤凰男就该窝里下蛋](https://www.xcposji.com/book/jnm807/)
 - [阿竹与野桃](https://www.xcposji.com/book/jnm803/)
@@ -35,11 +37,10 @@
 - [私恋旧星](https://www.xcposji.com/book/jnm7sp/)
 - [灭世龙崽有什么错](https://www.xcposji.com/book/jnm7sg/)
 - [我夫君怎会是龙傲天？](https://www.xcposji.com/book/jnm7sb/)
-- [[排球]游戏角色想和玩家谈恋爱](https://www.xcposji.com/book/jnm7s4/)
+- [游戏角色想和玩家谈恋爱](https://www.xcposji.com/book/jnm7s4/)
 - [女先生](https://www.xcposji.com/book/jnm7rl/)
 - [乖乖小宝被豪门长兄娇养了](https://www.xcposji.com/book/jnm7rf/)
 - [游戏boss们抢着要当我的猫[全息]](https://www.xcposji.com/book/jnm7ra/)
-- [软饭，站着吃](https://www.xcposji.com/book/jnm7r9/)
 - [炮灰丫鬟靠签到躺赢了](https://www.xcposji.com/book/jnm7r4/)
 - [除病弱万人嫌外全员重生](https://www.xcposji.com/book/jnm7r1/)
 - [[希腊神话]诸神都是我学生](https://www.xcposji.com/book/jnm7r0/)
@@ -56,7 +57,7 @@
 - [当织田作绑定魅魔系统](https://www.xcposji.com/book/jnm7pa/)
 - [[三国]清澈，但千古一帝](https://www.xcposji.com/book/jnm7p4/)
 - [渡鬼](https://www.xcposji.com/book/jnm7p1/)
-- [氪金林太郎，我成了无冕之王](https://www.xcposji.com/book/jnm7p0/)
+- [氪金游戏，从养成林太郎开始](https://www.xcposji.com/book/jnm7p0/)
 - [师姐她怎么还不来追求我](https://www.xcposji.com/book/jnm7oo/)
 - [[娱乐圈]穿进同人文里哦多尅](https://www.xcposji.com/book/jnm7ok/)
 - [[原神+崩铁]在提瓦特隐居也未尝不可](https://www.xcposji.com/book/jnm7oj/)
@@ -65,7 +66,6 @@
 - [在虫族世界逃命升级](https://www.xcposji.com/book/jnm50q/)
 - [神豪文男主是我爸](https://www.xcposji.com/book/jnm3on/)
 - [我真的只会Ctrl啊！！！](https://www.xcposji.com/book/jnm208/)
-- [无限末日副本：我有移动安全屋](https://www.xcposji.com/book/jnlrdv/)
 - [我有特殊的升官技巧](https://www.xcposji.com/book/jnloqc/)
 - [反派人生，易如反掌[快穿]](https://www.xcposji.com/book/jnll9d/)
 - [人妻O救赎指南](https://www.xcposji.com/book/jnldf9/)
@@ -87,6 +87,7 @@
 - [[全职高手]霸图老板是叶修](https://www.xcposji.com/book/jnkcqk/)
 - [当我穿为龙傲天的情敌](https://www.xcposji.com/book/jnkcpb/)
 - [高嫁之后](https://www.xcposji.com/book/jnkc7i/)
+- [社恐直播鉴宝，但带球跑](https://www.xcposji.com/book/jnkbst/)
 - [[综英美]让我统治哥谭！！！](https://www.xcposji.com/book/jnk7id/)
 - [养成游戏，但破解版](https://www.xcposji.com/book/jnk7ce/)
 - [霓虹夏日](https://www.xcposji.com/book/jnk4bl/)
@@ -120,7 +121,6 @@
 - [直男误入攻略天龙人游戏](https://www.xcposji.com/book/jnj1a7/)
 - [悟咪观察笔记](https://www.xcposji.com/book/jnj06t/)
 - [萩原警官的咒术大冒险](https://www.xcposji.com/book/jnivcg/)
-- [娶了女装心机太子](https://www.xcposji.com/book/jniv26/)
 - [穿越废星，我靠种田求生](https://www.xcposji.com/book/jniu3g/)
 - [今天在伟大航路抽到SSR了吗](https://www.xcposji.com/book/jniu03/)
 - [虫族之雌君的人设不对劲](https://www.xcposji.com/book/jnipd4/)
@@ -133,6 +133,7 @@
 - [刑部的小衙门](https://www.xcposji.com/book/jniku5/)
 - [红楼之霸总他被迫拯救女主角](https://www.xcposji.com/book/jnikih/)
 - [满级大佬制霸热血运动番](https://www.xcposji.com/book/jnik6g/)
+- [恶犬攻绑定上司的乖狗系统](https://www.xcposji.com/book/jnik4j/)
 - [绿茶病秧子骗他说喜欢](https://www.xcposji.com/book/jnij3c/)
 - [暴君偏头痛](https://www.xcposji.com/book/jniif0/)
 - [把清冷权臣调成荡夫后](https://www.xcposji.com/book/jnigm6/)
@@ -140,14 +141,12 @@
 - [[群穿]我在御兽番抢人气](https://www.xcposji.com/book/jnidl2/)
 - [欢迎来到纳萨力克丧葬公司](https://www.xcposji.com/book/jnibdh/)
 - [我，恶女，在线搞事](https://www.xcposji.com/book/jni8i3/)
-- [道长他为何那样](https://www.xcposji.com/book/jni8cj/)
 - [高门小婢](https://www.xcposji.com/book/jnhggt/)
 - [我有一座安全城](https://www.xcposji.com/book/jnhged/)
 - [替嫁后咸鱼继母佛系日常](https://www.xcposji.com/book/jnhgdj/)
 - [海岛求生：生活玩家种田囤货](https://www.xcposji.com/book/jnhgck/)
 - [星际团宠小人鱼](https://www.xcposji.com/book/jnhgbu/)
 - [警察，但犯罪大师系统[刑侦]](https://www.xcposji.com/book/jnhga9/)
-- [夺养媳](https://www.xcposji.com/book/jnhg9v/)
 - [为诡异打工，但反封建迷信](https://www.xcposji.com/book/jnhg7m/)
 - [御兽师，我打工养你啊](https://www.xcposji.com/book/jnhg19/)
 - [如何扮演源氏重宝](https://www.xcposji.com/book/jnhfsv/)
@@ -159,12 +158,10 @@
 - [趁她之危](https://www.xcposji.com/book/jnhfhp/)
 - [日化人生[科研]](https://www.xcposji.com/book/jnhfh2/)
 - [卧底后被港岛大小姐缠上了](https://www.xcposji.com/book/jnhfgl/)
-- [我真不是算命的！[香江]](https://www.xcposji.com/book/jnhfdg/)
 - [十九世纪贵族厨房（美食）](https://www.xcposji.com/book/jnhf8f/)
 - [六零之成了卷王的妹妹](https://www.xcposji.com/book/jnhf7n/)
 - [五十年代港城日常](https://www.xcposji.com/book/jnhf6m/)
 - [大瑛弟国](https://www.xcposji.com/book/jnhf0a/)
-- [被反派暴君听到心声后[穿书]](https://www.xcposji.com/book/jnhesu/)
 - [巨物致富：回乡开钓场](https://www.xcposji.com/book/jnherk/)
 - [假少爷不想活了](https://www.xcposji.com/book/jnheql/)
 - [[娱乐圈]过分美丽的她](https://www.xcposji.com/book/jnhef6/)
@@ -175,9 +172,7 @@
 - [高调装神，猥琐发育](https://www.xcposji.com/book/jnheam/)
 - [成为养成系练习生后](https://www.xcposji.com/book/jnhe5o/)
 - [八零恶毒后妈杀疯了](https://www.xcposji.com/book/jnhe5m/)
-- [穿到反派落魄时](https://www.xcposji.com/book/jnhdu0/)
 - [古代种田养娃日常](https://www.xcposji.com/book/jnhdou/)
-- [星露谷，但大秦帝国](https://www.xcposji.com/book/jnhdn0/)
 - [95美国贵族高中模拟](https://www.xcposji.com/book/jnhdlq/)
 ## 相关内容
 - [README](/README.md)
