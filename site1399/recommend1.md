@@ -1,13 +1,15 @@
 
 # 佚名奇书小说 - 免费更新的小说阅读网站
 
-更新时间：2026-08-29 03:39:38
+更新时间：2026-08-30 03:40:59
 
 佚名奇书小说提供全网各类热门小说在线阅读服务，支持免费观看。这里汇集了丰富的小说资源，包括但不限于都市、玄幻、武侠等多种类型，并且保证章节更新及时，页面设计清爽无广告干扰，是广大书友不可多得的好去处。
 
 - [佚名奇书小说](https://www.yimingeduai.com/)
 
 ## 最新小说
+- [九零重组小家庭](https://www.yimingeduai.com/book/6adn1kr/)
+- [发家致富小夫郎](https://www.yimingeduai.com/book/6admt0b/)
 - [乖乖小宝被豪门长兄娇养了](https://www.yimingeduai.com/book/6admm5m/)
 - [凤凰男就该窝里下蛋](https://www.yimingeduai.com/book/6admm56/)
 - [与亡夫春风一度后](https://www.yimingeduai.com/book/6admm4s/)
@@ -17,7 +19,6 @@
 - [炮灰丫鬟靠签到躺赢了](https://www.yimingeduai.com/book/6admm4a/)
 - [退婚流龙傲天，但未婚夫是我](https://www.yimingeduai.com/book/6admm41/)
 - [[足球]顶级名帅](https://www.yimingeduai.com/book/6admm3v/)
-- [软饭，站着吃](https://www.yimingeduai.com/book/6admm3q/)
 - [神豪文男主是我爸](https://www.yimingeduai.com/book/6admm3o/)
 - [我的烧烤摊超美味[美食]](https://www.yimingeduai.com/book/6admm3b/)
 - [在虫族世界逃命升级](https://www.yimingeduai.com/book/6admm37/)
@@ -39,7 +40,7 @@
 - [宫陷](https://www.yimingeduai.com/book/6admlvq/)
 - [败类游戏](https://www.yimingeduai.com/book/6admlvf/)
 - [影帝今天分手了吗[娱乐圈]](https://www.yimingeduai.com/book/6admlv5/)
-- [[排球]游戏角色想和玩家谈恋爱](https://www.yimingeduai.com/book/6admlv1/)
+- [游戏角色想和玩家谈恋爱](https://www.yimingeduai.com/book/6admlv1/)
 - [卡尔蜜拉也能成为特利迦白月光？](https://www.yimingeduai.com/book/6admlun/)
 - [婚后矜持](https://www.yimingeduai.com/book/6admluk/)
 - [师姐她怎么还不来追求我](https://www.yimingeduai.com/book/6admluj/)
@@ -51,7 +52,7 @@
 - [私恋旧星](https://www.yimingeduai.com/book/6admltr/)
 - [被怪物女友始乱终弃后[gb]](https://www.yimingeduai.com/book/6admltp/)
 - [猫猫也要被魅魔魅惑吗？](https://www.yimingeduai.com/book/6admltf/)
-- [氪金林太郎，我成了无冕之王](https://www.yimingeduai.com/book/6admlta/)
+- [氪金游戏，从养成林太郎开始](https://www.yimingeduai.com/book/6admlta/)
 - [我的NPC队友全是火影天花板](https://www.yimingeduai.com/book/6admlsp/)
 - [始乱终弃高岭之花以后](https://www.yimingeduai.com/book/6admlsj/)
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.yimingeduai.com/book/6admls4/)
@@ -118,7 +119,9 @@
 - [我不是御兽大师](https://www.yimingeduai.com/book/6adk621/)
 - [万人嫌女配过分漂亮](https://www.yimingeduai.com/book/6adk5e3/)
 - [漫漫仙途](https://www.yimingeduai.com/book/6adk4ko/)
+- [恶犬攻绑定上司的乖狗系统](https://www.yimingeduai.com/book/6adk499/)
 - [你是我的根目录](https://www.yimingeduai.com/book/6adk42b/)
+- [社恐直播鉴宝，但带球跑](https://www.yimingeduai.com/book/6adk187/)
 - [人在虫族，写文爆红](https://www.yimingeduai.com/book/6adjvs2/)
 - [春归燕](https://www.yimingeduai.com/book/6adjsja/)
 - [魔尊和仙帝共坠爱河之后](https://www.yimingeduai.com/book/6adjs7v/)
@@ -138,7 +141,6 @@
 - [欢迎来到纳萨力克丧葬公司](https://www.yimingeduai.com/book/6adj4d4/)
 - [[群穿]我在御兽番抢人气](https://www.yimingeduai.com/book/6adj47c/)
 - [全民求生:从小木屋到魔法农场](https://www.yimingeduai.com/book/6adi8o2/)
-- [星露谷，但大秦帝国](https://www.yimingeduai.com/book/6adi8m5/)
 - [八零恶毒后妈杀疯了](https://www.yimingeduai.com/book/6adi8jp/)
 - [海岛求生：生活玩家种田囤货](https://www.yimingeduai.com/book/6adi8em/)
 - [六零之成了卷王的妹妹](https://www.yimingeduai.com/book/6adi89j/)
@@ -148,7 +150,6 @@
 - [警察，但犯罪大师系统[刑侦]](https://www.yimingeduai.com/book/6adi7uf/)
 - [卧底后被港岛大小姐缠上了](https://www.yimingeduai.com/book/6adi7sc/)
 - [在民俗惊悚片被诸神庇护](https://www.yimingeduai.com/book/6adi7kq/)
-- [道长他为何那样](https://www.yimingeduai.com/book/6adi7k0/)
 - [巨物致富：回乡开钓场](https://www.yimingeduai.com/book/6adi7il/)
 - [为诡异打工，但反封建迷信](https://www.yimingeduai.com/book/6adi7hu/)
 - [如何扮演源氏重宝](https://www.yimingeduai.com/book/6adi7gf/)
@@ -167,18 +168,12 @@
 - [日化人生[科研]](https://www.yimingeduai.com/book/6adi6g6/)
 - [九零首富的替嫁小媳妇](https://www.yimingeduai.com/book/6adi6g3/)
 - [95美国贵族高中模拟](https://www.yimingeduai.com/book/6adi6e5/)
-- [我真不是算命的！[香江]](https://www.yimingeduai.com/book/6adi6dm/)
 - [大瑛弟国](https://www.yimingeduai.com/book/6adi6bh/)
 - [假少爷不想活了](https://www.yimingeduai.com/book/6adi6a2/)
-- [无限末日副本：我有移动安全屋](https://www.yimingeduai.com/book/6adi680/)
-- [夺养媳](https://www.yimingeduai.com/book/6adi674/)
 - [高门小婢](https://www.yimingeduai.com/book/6adi666/)
-- [被反派暴君听到心声后[穿书]](https://www.yimingeduai.com/book/6adi63c/)
 - [人妻O救赎指南](https://www.yimingeduai.com/book/6adi5t3/)
-- [娶了女装心机太子](https://www.yimingeduai.com/book/6adi5jn/)
 - [御兽师，我打工养你啊](https://www.yimingeduai.com/book/6adi5hc/)
 - [穿成炮灰后我封神了［快穿］](https://www.yimingeduai.com/book/6adi5gg/)
-- [穿到反派落魄时](https://www.yimingeduai.com/book/6adi5gd/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1399/index.md)

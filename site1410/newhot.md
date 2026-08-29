@@ -1,44 +1,42 @@
 
 # 新华 MBA雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-08-29 03:38:12
+更新时间：2026-08-30 03:39:27
 
 新华 MBA雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。
 
 - [新华MBA雷火小说网](https://www.xhmba.com/)
 
 ## 最新小说
+- [如何正确哄睡暴君](https://www.xhmba.com/book/7mj0ru6/)
+- [清穿女回来后[天幕]](https://www.xhmba.com/book/7mj0qsi/)
 - [微臣怜惜公主](https://www.xhmba.com/book/7mj0jp2/)
 - [老公是松散生命体](https://www.xhmba.com/book/7mj0i00/)
 - [法外狂猫](https://www.xhmba.com/book/7mj0gdu/)
-- [若清晨所见之蓝](https://www.xhmba.com/book/7mj0bvk/)
-- [沈助理又在隐藏他的超能力](https://www.xhmba.com/book/7mj06m0/)
+- [和室友他爸恋爱后](https://www.xhmba.com/book/7mj0bco/)
+- [战死的阿爹回来了[年代]](https://www.xhmba.com/book/7mj09h4/)
 - [就算是龙傲天也不可以[快穿]](https://www.xhmba.com/book/7mj06bs/)
-- [系统不许我摆烂](https://www.xhmba.com/book/7mj01oi/)
 - [多梦你一会儿](https://www.xhmba.com/book/7mivve5/)
-- [直男咒术师的限制级游戏](https://www.xhmba.com/book/7mivt1v/)
 - [穿为清冷影后的污点A](https://www.xhmba.com/book/7mivsjm/)
-- [这谁的沙雕二次元心声！](https://www.xhmba.com/book/7mivr13/)
-- [和前女友的心上人he了](https://www.xhmba.com/book/7mivp0f/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.xhmba.com/book/7mivolb/)
 - [[足球]小小鸟堂堂来袭](https://www.xhmba.com/book/7mivo3l/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.xhmba.com/book/7mivlmv/)
+- [漫画路人绑定系统后](https://www.xhmba.com/book/7mivl2r/)
 - [拯救世界从扮演反派开始](https://www.xhmba.com/book/7mivkkf/)
-- [[综武侠]有间民宿](https://www.xhmba.com/book/7mivi31/)
-- [忍界观察日记](https://www.xhmba.com/book/7mivi1e/)
-- [契约情人](https://www.xhmba.com/book/7mivhev/)
+- [[足球]能不能好好模拟游戏](https://www.xhmba.com/book/7mivked/)
 - [[足球]罗蜜第一志愿](https://www.xhmba.com/book/7mivh0u/)
+- [人偶游戏](https://www.xhmba.com/book/7mivguo/)
 - [关于我虚构了一个男友这件事](https://www.xhmba.com/book/7mivfvt/)
-- [某柯学的正义伙伴](https://www.xhmba.com/book/7mivfb0/)
 - [一枝枝怨](https://www.xhmba.com/book/7mivc3c/)
+- [撕毁女配剧本的我被神之子读心了](https://www.xhmba.com/book/7mivbhc/)
 - [好兄弟暴富后非要跟我结婚](https://www.xhmba.com/book/7mivbgc/)
-- [在千禧年的伦敦当女巫](https://www.xhmba.com/book/7miuli8/)
+- [我的烧烤摊超美味[美食]](https://www.xhmba.com/book/7miuljg/)
 - [井闼山经理每天都被挖墙脚](https://www.xhmba.com/book/7miuk40/)
-- [绿叶](https://www.xhmba.com/book/7miujqo/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xhmba.com/book/7miuk1q/)
 - [你，后室管理员](https://www.xhmba.com/book/7mit9dn/)
 - [纯爱宇智波基本恋爱法](https://www.xhmba.com/book/7mit9c0/)
 - [星际团宠小人鱼](https://www.xhmba.com/book/7mit8o9/)
 - [分手后与诱系妻子再度热恋](https://www.xhmba.com/book/7mit87o/)
+- [高调装神，猥琐发育](https://www.xhmba.com/book/7mit7ee/)
+- [他要和我谈恋爱](https://www.xhmba.com/book/7mit7e0/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1410/index.md)

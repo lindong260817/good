@@ -1,15 +1,16 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-08-29 03:22:59
+更新时间：2026-08-30 03:24:01
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
 - [故事文学网](https://www.gushi1314.com/)
 
 ## 最新小说
+- [发家致富小夫郎](https://www.gushi1314.com/book/8m9jua2/)
 - [猫猫也要被魅魔魅惑吗？](https://www.gushi1314.com/book/8m9jua1/)
-- [[排球]游戏角色想和玩家谈恋爱](https://www.gushi1314.com/book/8m9ju9s/)
+- [游戏角色想和玩家谈恋爱](https://www.gushi1314.com/book/8m9ju9s/)
 - [当织田作绑定魅魔系统](https://www.gushi1314.com/book/8m9ju9q/)
 - [宫陷](https://www.gushi1314.com/book/8m9ju9p/)
 - [无限回档，我把自己刷成了女帝](https://www.gushi1314.com/book/8m9ju9k/)
@@ -33,7 +34,7 @@
 - [婚后矜持](https://www.gushi1314.com/book/8m9ju81/)
 - [退婚流龙傲天，但未婚夫是我](https://www.gushi1314.com/book/8m9ju7o/)
 - [乖乖小宝被豪门长兄娇养了](https://www.gushi1314.com/book/8m9ju7n/)
-- [氪金林太郎，我成了无冕之王](https://www.gushi1314.com/book/8m9ju7i/)
+- [氪金游戏，从养成林太郎开始](https://www.gushi1314.com/book/8m9ju7i/)
 - [深渊if，从染血骑士迪卢克开始[原神]](https://www.gushi1314.com/book/8m9ju7h/)
 - [暴君偏头痛](https://www.gushi1314.com/book/8m9ju7f/)
 - [游戏boss们抢着要当我的猫[全息]](https://www.gushi1314.com/book/8m9ju7e/)
@@ -66,9 +67,7 @@
 - [我司艺人永不塌房](https://www.gushi1314.com/book/8m9ju57/)
 - [被怪物女友始乱终弃后[gb]](https://www.gushi1314.com/book/8m9ju54/)
 - [水管工[GB]](https://www.gushi1314.com/book/8m9ju52/)
-- [软饭，站着吃](https://www.gushi1314.com/book/8m9ju51/)
 - [太子哥哥不想当哥哥](https://www.gushi1314.com/book/8m9ju4v/)
-- [夺养媳](https://www.gushi1314.com/book/8m9ju4e/)
 - [九零首富的替嫁小媳妇](https://www.gushi1314.com/book/8m9ju3k/)
 - [十九世纪贵族厨房（美食）](https://www.gushi1314.com/book/8m9ju2m/)
 - [星际团宠小人鱼](https://www.gushi1314.com/book/8m9ju2l/)
@@ -77,15 +76,13 @@
 - [千禧年，拆迁分了十栋楼！](https://www.gushi1314.com/book/8m9jtvo/)
 - [高嫁之后](https://www.gushi1314.com/book/8m9jtu2/)
 - [六零之成了卷王的妹妹](https://www.gushi1314.com/book/8m9jsm0/)
-- [道长他为何那样](https://www.gushi1314.com/book/8m9jsls/)
 - [我不是御兽大师](https://www.gushi1314.com/book/8m9jslq/)
 - [满级大佬制霸热血运动番](https://www.gushi1314.com/book/8m9jslg/)
 - [古代种田养娃日常](https://www.gushi1314.com/book/8m9itj9/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.gushi1314.com/book/8m9isu7/)
-- [被反派暴君听到心声后[穿书]](https://www.gushi1314.com/book/8m9ipfo/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.gushi1314.com/book/8m9icev/)
+- [九零重组小家庭](https://www.gushi1314.com/book/8m9i6se/)
 - [灭世龙崽有什么错](https://www.gushi1314.com/book/8m9i66j/)
-- [无限末日副本：我有移动安全屋](https://www.gushi1314.com/book/8m9hlsa/)
 - [我有特殊的升官技巧](https://www.gushi1314.com/book/8m9hfnn/)
 - [御兽师，我打工养你啊](https://www.gushi1314.com/book/8m9hdrb/)
 - [反派人生，易如反掌[快穿]](https://www.gushi1314.com/book/8m9hc90/)
@@ -108,6 +105,7 @@
 - [全球进化，而我保持不变](https://www.gushi1314.com/book/8m9g7m3/)
 - [当我穿为龙傲天的情敌](https://www.gushi1314.com/book/rqk9hd/)
 - [不当救世主就要当人类恶了吗](https://www.gushi1314.com/book/rqk8q9/)
+- [社恐直播鉴宝，但带球跑](https://www.gushi1314.com/book/rqk73n/)
 - [枕边热吻](https://www.gushi1314.com/book/rqk56d/)
 - [[全职高手]霸图老板是叶修](https://www.gushi1314.com/book/rqk3oc/)
 - [假金丝雀深陷修罗场](https://www.gushi1314.com/book/rqk1ip/)
@@ -128,7 +126,6 @@
 - [龙傲天他解锁宠妻系统](https://www.gushi1314.com/book/rqj8lj/)
 - [青空来信](https://www.gushi1314.com/book/rqj87r/)
 - [漫漫仙途](https://www.gushi1314.com/book/rqj6iq/)
-- [星露谷，但大秦帝国](https://www.gushi1314.com/book/rqj6ca/)
 - [当我cos了漫画if线主角](https://www.gushi1314.com/book/rqj63m/)
 - [人在虫族，写文爆红](https://www.gushi1314.com/book/rqj5jr/)
 - [豪门前妻O总想诱我](https://www.gushi1314.com/book/rqj1f9/)
@@ -137,7 +134,6 @@
 - [重临巅峰[花滑]](https://www.gushi1314.com/book/rqj0g9/)
 - [你是我的根目录](https://www.gushi1314.com/book/rqiulk/)
 - [魔尊和仙帝共坠爱河之后](https://www.gushi1314.com/book/rqiu44/)
-- [娶了女装心机太子](https://www.gushi1314.com/book/rqir8s/)
 - [直男误入攻略天龙人游戏](https://www.gushi1314.com/book/rqipq5/)
 - [兽世种田撸狼首领](https://www.gushi1314.com/book/rqion6/)
 - [[综港影]野生情人出没地](https://www.gushi1314.com/book/rqiobh/)
@@ -148,6 +144,7 @@
 - [红楼之霸总他被迫拯救女主角](https://www.gushi1314.com/book/rqiglv/)
 - [[足球]没头脑和不高兴](https://www.gushi1314.com/book/rqig1r/)
 - [刑部的小衙门](https://www.gushi1314.com/book/rqifmf/)
+- [恶犬攻绑定上司的乖狗系统](https://www.gushi1314.com/book/rqif0a/)
 - [今天在伟大航路抽到SSR了吗](https://www.gushi1314.com/book/rqiel6/)
 - [悟咪观察笔记](https://www.gushi1314.com/book/rqie2n/)
 - [虫族之雌君的人设不对劲](https://www.gushi1314.com/book/rqidvp/)
@@ -161,7 +158,6 @@
 - [把清冷权臣调成荡夫后](https://www.gushi1314.com/book/rqi9e4/)
 - [[娱乐圈]过分美丽的她](https://www.gushi1314.com/book/2p1qis/)
 - [大瑛弟国](https://www.gushi1314.com/book/2p1qb8/)
-- [穿到反派落魄时](https://www.gushi1314.com/book/2p1q8q/)
 - [科学主义魔法学院](https://www.gushi1314.com/book/2p1q8l/)
 - [我有一座安全城](https://www.gushi1314.com/book/2p1q50/)
 - [猫猫也要养家糊口](https://www.gushi1314.com/book/2p1q0i/)
@@ -169,7 +165,6 @@
 - [全民求生:从小木屋到魔法农场](https://www.gushi1314.com/book/2p1ptk/)
 - [替嫁后咸鱼继母佛系日常](https://www.gushi1314.com/book/2p1ps7/)
 - [当恶女捡回高岭之花](https://www.gushi1314.com/book/2p1prh/)
-- [我真不是算命的！[香江]](https://www.gushi1314.com/book/2p1plg/)
 - [95美国贵族高中模拟](https://www.gushi1314.com/book/2p1p7h/)
 - [五十年代港城日常](https://www.gushi1314.com/book/2p1or3/)
 - [卧底后被港岛大小姐缠上了](https://www.gushi1314.com/book/2p1omd/)

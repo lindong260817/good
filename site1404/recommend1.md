@@ -1,13 +1,15 @@
 
 # 小顽童寻书网-最热门的免费小说阅读平台|全本玄幻言情网游穿越都市小说在线阅读
 
-更新时间：2026-08-29 03:39:09
+更新时间：2026-08-30 03:40:29
 
 小顽童寻书网提供一个无广告、无弹窗干扰的环境，让您享受纯净的小说阅读体验。涵盖玄幻、网游、言情、穿越、都市等多种类型的小说资源，在这里可以找到最新的章节更新以及完整的书籍内容。
 
 - [小顽童寻书网](https://www.xwt999.com/)
 
 ## 最新小说
+- [九零重组小家庭](https://www.xwt999.com/book/1u5mn22/)
+- [发家致富小夫郎](https://www.xwt999.com/book/1u5mgaj/)
 - [灭世龙崽有什么错](https://www.xwt999.com/book/1u5m6cv/)
 - [身为人造人的我梦想是成为救世主](https://www.xwt999.com/book/1u5m6at/)
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.xwt999.com/book/1u5m65q/)
@@ -28,7 +30,7 @@
 - [除病弱万人嫌外全员重生](https://www.xwt999.com/book/1u5m556/)
 - [始乱终弃高岭之花以后](https://www.xwt999.com/book/1u5m54i/)
 - [炮灰丫鬟靠签到躺赢了](https://www.xwt999.com/book/1u5m540/)
-- [[排球]游戏角色想和玩家谈恋爱](https://www.xwt999.com/book/1u5m50q/)
+- [游戏角色想和玩家谈恋爱](https://www.xwt999.com/book/1u5m50q/)
 - [在虫族世界逃命升级](https://www.xwt999.com/book/1u5m4u7/)
 - [师姐她怎么还不来追求我](https://www.xwt999.com/book/1u5m4sr/)
 - [影帝今天分手了吗[娱乐圈]](https://www.xwt999.com/book/1u5m4sq/)
@@ -39,11 +41,10 @@
 - [重回养父年少时](https://www.xwt999.com/book/1u5m4o5/)
 - [游戏boss们抢着要当我的猫[全息]](https://www.xwt999.com/book/1u5m4nk/)
 - [撕碎[刑侦]](https://www.xwt999.com/book/1u5m4mp/)
-- [软饭，站着吃](https://www.xwt999.com/book/1u5m4mf/)
 - [春归燕](https://www.xwt999.com/book/1u5m4m3/)
 - [女先生](https://www.xwt999.com/book/1u5m4l3/)
 - [猫猫也要被魅魔魅惑吗？](https://www.xwt999.com/book/1u5m4kp/)
-- [氪金林太郎，我成了无冕之王](https://www.xwt999.com/book/1u5m4hv/)
+- [氪金游戏，从养成林太郎开始](https://www.xwt999.com/book/1u5m4hv/)
 - [我们生活玩家是这样的](https://www.xwt999.com/book/1u5m4hl/)
 - [与亡夫春风一度后](https://www.xwt999.com/book/1u5m4h6/)
 - [在千禧年的伦敦当女巫](https://www.xwt999.com/book/1u5m4f6/)
@@ -82,6 +83,7 @@
 - [假金丝雀深陷修罗场](https://www.xwt999.com/book/1u5lg28/)
 - [当我穿为龙傲天的情敌](https://www.xwt999.com/book/1u5lfbo/)
 - [[综英美]让我统治哥谭！！！](https://www.xwt999.com/book/1u5lekc/)
+- [社恐直播鉴宝，但带球跑](https://www.xwt999.com/book/1u5le3t/)
 - [霓虹夏日](https://www.xwt999.com/book/1u5lc07/)
 - [我司艺人永不塌房](https://www.xwt999.com/book/1u5l979/)
 - [养成游戏，但破解版](https://www.xwt999.com/book/1u5l7gb/)
@@ -131,6 +133,7 @@
 - [虫族之雌君的人设不对劲](https://www.xwt999.com/book/1u5jp2s/)
 - [[足球]没头脑和不高兴](https://www.xwt999.com/book/1u5jnpo/)
 - [红楼之霸总他被迫拯救女主角](https://www.xwt999.com/book/1u5jnh8/)
+- [恶犬攻绑定上司的乖狗系统](https://www.xwt999.com/book/1u5jlo1/)
 - [这男人该死的甜美](https://www.xwt999.com/book/1u5jl96/)
 - [把清冷权臣调成荡夫后](https://www.xwt999.com/book/1u5jiig/)
 - [绿茶病秧子骗他说喜欢](https://www.xwt999.com/book/1u5jhu5/)
@@ -139,9 +142,7 @@
 - [[群穿]我在御兽番抢人气](https://www.xwt999.com/book/1u5jdlh/)
 - [全民求生:从小木屋到魔法农场](https://www.xwt999.com/book/1u5ihme/)
 - [为诡异打工，但反封建迷信](https://www.xwt999.com/book/1u5ihh6/)
-- [无限末日副本：我有移动安全屋](https://www.xwt999.com/book/1u5ihfs/)
 - [巨物致富：回乡开钓场](https://www.xwt999.com/book/1u5ihfn/)
-- [道长他为何那样](https://www.xwt999.com/book/1u5iha2/)
 - [五十年代港城日常](https://www.xwt999.com/book/1u5ih1q/)
 - [御兽师，我打工养你啊](https://www.xwt999.com/book/1u5ih0j/)
 - [[娱乐圈]过分美丽的她](https://www.xwt999.com/book/1u5igri/)
@@ -155,7 +156,6 @@
 - [大瑛弟国](https://www.xwt999.com/book/1u5igde/)
 - [猫猫也要养家糊口](https://www.xwt999.com/book/1u5igbf/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.xwt999.com/book/1u5ig9r/)
-- [我真不是算命的！[香江]](https://www.xwt999.com/book/1u5ig45/)
 - [我是唯一地上神国](https://www.xwt999.com/book/1u5ig31/)
 - [六零之成了卷王的妹妹](https://www.xwt999.com/book/1u5ifvj/)
 - [古代种田养娃日常](https://www.xwt999.com/book/1u5ifs4/)
@@ -167,14 +167,9 @@
 - [十九世纪贵族厨房（美食）](https://www.xwt999.com/book/1u5ifc7/)
 - [清澈女大的六零年代](https://www.xwt999.com/book/1u5ifb7/)
 - [九零首富的替嫁小媳妇](https://www.xwt999.com/book/1u5ifa8/)
-- [穿到反派落魄时](https://www.xwt999.com/book/1u5if7n/)
-- [星露谷，但大秦帝国](https://www.xwt999.com/book/1u5ieq9/)
-- [夺养媳](https://www.xwt999.com/book/1u5iena/)
 - [趁她之危](https://www.xwt999.com/book/1u5ien8/)
 - [八零恶毒后妈杀疯了](https://www.xwt999.com/book/1u5ien4/)
-- [娶了女装心机太子](https://www.xwt999.com/book/1u5ieka/)
 - [人妻O救赎指南](https://www.xwt999.com/book/1u5iek8/)
-- [被反派暴君听到心声后[穿书]](https://www.xwt999.com/book/1u5iei3/)
 - [高门小婢](https://www.xwt999.com/book/1u5iegm/)
 - [假少爷不想活了](https://www.xwt999.com/book/1u5iefo/)
 - [星际团宠小人鱼](https://www.xwt999.com/book/1u5ieem/)
