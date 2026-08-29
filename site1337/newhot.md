@@ -1,40 +1,34 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-29 03:20:42
+更新时间：2026-08-30 03:21:43
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
 - [随梦小说网](https://www.cq082.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.cq082.com/book/1sdfgb4/)
+- [我的烧烤摊超美味[美食]](https://www.cq082.com/book/1sdfgao/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.cq082.com/book/1sdfgag/)
 - [我有嘉宾](https://www.cq082.com/book/1sdf52s/)
 - [你，后室管理员](https://www.cq082.com/book/1sdf02p/)
 - [星际团宠小人鱼](https://www.cq082.com/book/1sdf00k/)
 - [分手后与诱系妻子再度热恋](https://www.cq082.com/book/1sdevv3/)
-- [男朋友买一送一](https://www.cq082.com/book/1sddkbr/)
-- [直男咒术师的限制级游戏](https://www.cq082.com/book/1sddd6r/)
-- [绿叶](https://www.cq082.com/book/1sdd0u9/)
-- [若清晨所见之蓝](https://www.cq082.com/book/1sdd00l/)
-- [沈助理又在隐藏他的超能力](https://www.cq082.com/book/1sdcooh/)
-- [系统不许我摆烂](https://www.cq082.com/book/1sdcntj/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.cq082.com/book/1sdc9u5/)
+- [高调装神，猥琐发育](https://www.cq082.com/book/1sddldh/)
+- [如何正确哄睡暴君](https://www.cq082.com/book/1sdd5hl/)
+- [漫画路人绑定系统后](https://www.cq082.com/book/1sdc9g7/)
 - [多梦你一会儿](https://www.cq082.com/book/1sdc92f/)
-- [[综武侠]有间民宿](https://www.cq082.com/book/1sdc8l8/)
+- [他要和我谈恋爱](https://www.cq082.com/book/1sdc84h/)
+- [被鬼怪宠爱的漂亮书生](https://www.cq082.com/book/1sdc7bg/)
 - [微臣怜惜公主](https://www.cq082.com/book/1sdc6r4/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.cq082.com/book/1sdc4ug/)
+- [[足球]能不能好好模拟游戏](https://www.cq082.com/book/1sdc5mr/)
 - [拯救世界从扮演反派开始](https://www.cq082.com/book/1sdc4f3/)
-- [忍界观察日记](https://www.cq082.com/book/1sdc49j/)
-- [和前女友的心上人he了](https://www.cq082.com/book/1sdc1ek/)
-- [这谁的沙雕二次元心声！](https://www.cq082.com/book/1sdc174/)
-- [亚当斯与韦恩的适配性](https://www.cq082.com/book/1sdc0vu/)
-- [某柯学的正义伙伴](https://www.cq082.com/book/1sdbu07/)
 - [老公是松散生命体](https://www.cq082.com/book/1sdbtcc/)
 - [纯爱宇智波基本恋爱法](https://www.cq082.com/book/1sdbrua/)
 - [一枝枝怨](https://www.cq082.com/book/1sdbrov/)
 - [[足球]罗蜜第一志愿](https://www.cq082.com/book/1sdbpej/)
 - [井闼山经理每天都被挖墙脚](https://www.cq082.com/book/1sdbnoh/)
+- [战死的阿爹回来了[年代]](https://www.cq082.com/book/1sdbk81/)
 - [好兄弟暴富后非要跟我结婚](https://www.cq082.com/book/1sdbbna/)
 - [关于我虚构了一个男友这件事](https://www.cq082.com/book/1sdbbif/)
 ## 相关内容

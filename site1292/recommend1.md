@@ -1,13 +1,14 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-08-29 03:40:52
+更新时间：2026-08-30 03:42:13
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
 - [酷匠小说网](https://www.yumin66.com/)
 
 ## 最新小说
+- [发家致富小夫郎](https://www.yumin66.com/book/5q5nc5/)
 - [被怪物女友始乱终弃后[gb]](https://www.yumin66.com/book/5q5nc4/)
 - [乖乖小宝被豪门长兄娇养了](https://www.yumin66.com/book/5q5nc3/)
 - [我的烧烤摊超美味[美食]](https://www.yumin66.com/book/5q5nc0/)
@@ -32,7 +33,7 @@
 - [[希腊神话]诸神都是我学生](https://www.yumin66.com/book/5q5na8/)
 - [当织田作绑定魅魔系统](https://www.yumin66.com/book/5q5na7/)
 - [私恋旧星](https://www.yumin66.com/book/5q5na6/)
-- [氪金林太郎，我成了无冕之王](https://www.yumin66.com/book/5q5na4/)
+- [氪金游戏，从养成林太郎开始](https://www.yumin66.com/book/5q5na4/)
 - [下潜一万米，海渊求生](https://www.yumin66.com/book/5q5na3/)
 - [万人嫌女配深陷修罗场](https://www.yumin66.com/book/5q5na0/)
 - [卡尔蜜拉也能成为特利迦白月光？](https://www.yumin66.com/book/5q5n9u/)
@@ -40,7 +41,7 @@
 - [败类游戏](https://www.yumin66.com/book/5q5n9r/)
 - [重回养父年少时](https://www.yumin66.com/book/5q5n9q/)
 - [婚后矜持](https://www.yumin66.com/book/5q5n9o/)
-- [[排球]游戏角色想和玩家谈恋爱](https://www.yumin66.com/book/5q5n9n/)
+- [游戏角色想和玩家谈恋爱](https://www.yumin66.com/book/5q5n9n/)
 - [除病弱万人嫌外全员重生](https://www.yumin66.com/book/5q5n9m/)
 - [暴君偏头痛](https://www.yumin66.com/book/5q5n9i/)
 - [我夫君怎会是龙傲天？](https://www.yumin66.com/book/5q5n9e/)
@@ -53,7 +54,6 @@
 - [太子哥哥不想当哥哥](https://www.yumin66.com/book/5q5n8q/)
 - [折禅（强取豪夺）](https://www.yumin66.com/book/5q5n8p/)
 - [影帝今天分手了吗[娱乐圈]](https://www.yumin66.com/book/5q5n8m/)
-- [软饭，站着吃](https://www.yumin66.com/book/5q5n8j/)
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.yumin66.com/book/5q5n8h/)
 - [凤凰男就该窝里下蛋](https://www.yumin66.com/book/5q5n8f/)
 - [撕碎[刑侦]](https://www.yumin66.com/book/5q5n89/)
@@ -68,7 +68,6 @@
 - [[娱乐圈]穿进同人文里哦多尅](https://www.yumin66.com/book/5q5n7b/)
 - [游戏boss们抢着要当我的猫[全息]](https://www.yumin66.com/book/5q5n7a/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yumin66.com/book/5q5n74/)
-- [夺养媳](https://www.yumin66.com/book/5q5n6j/)
 - [星际团宠小人鱼](https://www.yumin66.com/book/5q5n58/)
 - [十九世纪贵族厨房（美食）](https://www.yumin66.com/book/5q5n54/)
 - [九零首富的替嫁小媳妇](https://www.yumin66.com/book/5q5n4l/)
@@ -78,14 +77,12 @@
 - [千禧年，拆迁分了十栋楼！](https://www.yumin66.com/book/5q5n22/)
 - [我不是御兽大师](https://www.yumin66.com/book/5q5loc/)
 - [满级大佬制霸热血运动番](https://www.yumin66.com/book/5q5lo4/)
-- [道长他为何那样](https://www.yumin66.com/book/5q5lnl/)
 - [六零之成了卷王的妹妹](https://www.yumin66.com/book/5q5lni/)
 - [古代种田养娃日常](https://www.yumin66.com/book/5q517g/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.yumin66.com/book/5q50qj/)
-- [被反派暴君听到心声后[穿书]](https://www.yumin66.com/book/5q4jpk/)
+- [九零重组小家庭](https://www.yumin66.com/book/5q45vl/)
 - [灭世龙崽有什么错](https://www.yumin66.com/book/5q3vgq/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.yumin66.com/book/5q3msv/)
-- [无限末日副本：我有移动安全屋](https://www.yumin66.com/book/5q3h11/)
 - [我有特殊的升官技巧](https://www.yumin66.com/book/5q3avk/)
 - [御兽师，我打工养你啊](https://www.yumin66.com/book/5q38m5/)
 - [反派人生，易如反掌[快穿]](https://www.yumin66.com/book/5q378i/)
@@ -108,6 +105,7 @@
 - [全球进化，而我保持不变](https://www.yumin66.com/book/5q1vh0/)
 - [当我穿为龙傲天的情敌](https://www.yumin66.com/book/im3oe/)
 - [不当救世主就要当人类恶了吗](https://www.yumin66.com/book/im19a/)
+- [社恐直播鉴宝，但带球跑](https://www.yumin66.com/book/ilup0/)
 - [枕边热吻](https://www.yumin66.com/book/iltf1/)
 - [[全职高手]霸图老板是叶修](https://www.yumin66.com/book/ilqqh/)
 - [十福晋吃瓜日常(清穿)](https://www.yumin66.com/book/ilol1/)
@@ -130,7 +128,6 @@
 - [当我cos了漫画if线主角](https://www.yumin66.com/book/iktke/)
 - [漫漫仙途](https://www.yumin66.com/book/iksvi/)
 - [人在虫族，写文爆红](https://www.yumin66.com/book/ikspn/)
-- [星露谷，但大秦帝国](https://www.yumin66.com/book/iksn6/)
 - [重临巅峰[花滑]](https://www.yumin66.com/book/ikrc3/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.yumin66.com/book/ikqtf/)
 - [豪门前妻O总想诱我](https://www.yumin66.com/book/ikqfo/)
@@ -138,7 +135,6 @@
 - [你是我的根目录](https://www.yumin66.com/book/iko3k/)
 - [恋爱脑毁灭世界](https://www.yumin66.com/book/ikng2/)
 - [兽世种田撸狼首领](https://www.yumin66.com/book/ikkgn/)
-- [娶了女装心机太子](https://www.yumin66.com/book/ikicn/)
 - [直男误入攻略天龙人游戏](https://www.yumin66.com/book/ikhsd/)
 - [[综港影]野生情人出没地](https://www.yumin66.com/book/ikfue/)
 - [穿越废星，我靠种田求生](https://www.yumin66.com/book/ikec6/)
@@ -148,6 +144,7 @@
 - [红楼之霸总他被迫拯救女主角](https://www.yumin66.com/book/ika04/)
 - [这男人该死的甜美](https://www.yumin66.com/book/ik8l3/)
 - [刑部的小衙门](https://www.yumin66.com/book/ik7mr/)
+- [恶犬攻绑定上司的乖狗系统](https://www.yumin66.com/book/ik7li/)
 - [萩原警官的咒术大冒险](https://www.yumin66.com/book/ik7hc/)
 - [我真的没想在选秀炒CP](https://www.yumin66.com/book/ik7ct/)
 - [今天在伟大航路抽到SSR了吗](https://www.yumin66.com/book/ik6kt/)
@@ -165,7 +162,6 @@
 - [我是唯一地上神国](https://www.yumin66.com/book/1rj6u/)
 - [米花无刁民](https://www.yumin66.com/book/1rj38/)
 - [全民求生:从小木屋到魔法农场](https://www.yumin66.com/book/1ritm/)
-- [我真不是算命的！[香江]](https://www.yumin66.com/book/1riqh/)
 - [警察，但犯罪大师系统[刑侦]](https://www.yumin66.com/book/1riji/)
 - [大瑛弟国](https://www.yumin66.com/book/1ri97/)
 - [[娱乐圈]过分美丽的她](https://www.yumin66.com/book/1ri3h/)
@@ -178,7 +174,6 @@
 - [清澈女大的六零年代](https://www.yumin66.com/book/5upa/)
 - [高门小婢](https://www.yumin66.com/book/5um3/)
 - [如何扮演源氏重宝](https://www.yumin66.com/book/5uij/)
-- [穿到反派落魄时](https://www.yumin66.com/book/j1p/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1292/index.md)

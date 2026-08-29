@@ -1,43 +1,39 @@
 
 # 宁波慈绿农垦小说-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-08-29 03:28:55
+更新时间：2026-08-30 03:30:00
 
 宁波慈绿农垦小说提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
 - [宁波慈绿农垦小说](https://www.nbcxnk.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.nbcxnk.com/book/2srvvkq/)
-- [男朋友买一送一](https://www.nbcxnk.com/book/2srv9rd/)
-- [绿叶](https://www.nbcxnk.com/book/2srv5er/)
-- [亚当斯与韦恩的适配性](https://www.nbcxnk.com/book/2srv3mh/)
+- [我的烧烤摊超美味[美食]](https://www.nbcxnk.com/book/2srvvgi/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.nbcxnk.com/book/2srvvda/)
+- [被鬼怪宠爱的漂亮书生](https://www.nbcxnk.com/book/2srv6o4/)
+- [如何正确哄睡暴君](https://www.nbcxnk.com/book/2srv1s2/)
 - [老公是松散生命体](https://www.nbcxnk.com/book/2srupu7/)
 - [微臣怜惜公主](https://www.nbcxnk.com/book/2srupn1/)
-- [若清晨所见之蓝](https://www.nbcxnk.com/book/2srulq1/)
-- [沈助理又在隐藏他的超能力](https://www.nbcxnk.com/book/2srughg/)
-- [系统不许我摆烂](https://www.nbcxnk.com/book/2srubhr/)
-- [直男咒术师的限制级游戏](https://www.nbcxnk.com/book/2sru93k/)
-- [这谁的沙雕二次元心声！](https://www.nbcxnk.com/book/2sru6v7/)
+- [战死的阿爹回来了[年代]](https://www.nbcxnk.com/book/2srue1e/)
 - [多梦你一会儿](https://www.nbcxnk.com/book/2sru57h/)
 - [穿为清冷影后的污点A](https://www.nbcxnk.com/book/2sru23n/)
 - [就算是龙傲天也不可以[快穿]](https://www.nbcxnk.com/book/2sru23c/)
+- [漫画路人绑定系统后](https://www.nbcxnk.com/book/2sru0q5/)
 - [拯救世界从扮演反派开始](https://www.nbcxnk.com/book/2sru0gk/)
-- [和前女友的心上人he了](https://www.nbcxnk.com/book/2sru03e/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.nbcxnk.com/book/2srtvu0/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.nbcxnk.com/book/2srtvqs/)
-- [[综武侠]有间民宿](https://www.nbcxnk.com/book/2srtu87/)
-- [忍界观察日记](https://www.nbcxnk.com/book/2srttb8/)
+- [[足球]能不能好好模拟游戏](https://www.nbcxnk.com/book/2sru057/)
 - [井闼山经理每天都被挖墙脚](https://www.nbcxnk.com/book/2srtsdb/)
-- [某柯学的正义伙伴](https://www.nbcxnk.com/book/2srtr9v/)
 - [[足球]罗蜜第一志愿](https://www.nbcxnk.com/book/2srtqt2/)
-- [契约情人](https://www.nbcxnk.com/book/2srtnvi/)
 - [法外狂猫](https://www.nbcxnk.com/book/2srtmm6/)
 - [一枝枝怨](https://www.nbcxnk.com/book/2srtmm0/)
 - [[足球]小小鸟堂堂来袭](https://www.nbcxnk.com/book/2srtmkf/)
+- [和室友他爸恋爱后](https://www.nbcxnk.com/book/2srtka7/)
+- [撕毁女配剧本的我被神之子读心了](https://www.nbcxnk.com/book/2srtijd/)
+- [人偶游戏](https://www.nbcxnk.com/book/2srthb5/)
 - [好兄弟暴富后非要跟我结婚](https://www.nbcxnk.com/book/2srtf6q/)
 - [关于我虚构了一个男友这件事](https://www.nbcxnk.com/book/2srtdt8/)
+- [他要和我谈恋爱](https://www.nbcxnk.com/book/2srrkq6/)
 - [星际团宠小人鱼](https://www.nbcxnk.com/book/2srrjt3/)
+- [高调装神，猥琐发育](https://www.nbcxnk.com/book/2srrj6v/)
 - [你，后室管理员](https://www.nbcxnk.com/book/2srrj1p/)
 - [分手后与诱系妻子再度热恋](https://www.nbcxnk.com/book/2srrik9/)
 - [纯爱宇智波基本恋爱法](https://www.nbcxnk.com/book/2srrhsn/)

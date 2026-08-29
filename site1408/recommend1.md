@@ -1,13 +1,15 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-08-29 03:35:17
+更新时间：2026-08-30 03:36:30
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。
 
 - [顶点中文小说](https://www.wangrn.com/)
 
 ## 最新小说
+- [九零重组小家庭](https://www.wangrn.com/book/4bbn84l/)
+- [发家致富小夫郎](https://www.wangrn.com/book/4bbn1do/)
 - [猫猫也要被魅魔魅惑吗？](https://www.wangrn.com/book/4bbmnnj/)
 - [[希腊神话]诸神都是我学生](https://www.wangrn.com/book/4bbmnmd/)
 - [和光太郎谈恋爱](https://www.wangrn.com/book/4bbmnm4/)
@@ -34,9 +36,8 @@
 - [凤凰男就该窝里下蛋](https://www.wangrn.com/book/4bbmm6v/)
 - [我夫君怎会是龙傲天？](https://www.wangrn.com/book/4bbmm4l/)
 - [败类游戏](https://www.wangrn.com/book/4bbmm2m/)
-- [氪金林太郎，我成了无冕之王](https://www.wangrn.com/book/4bbmlv3/)
+- [氪金游戏，从养成林太郎开始](https://www.wangrn.com/book/4bbmlv3/)
 - [女先生](https://www.wangrn.com/book/4bbmlrq/)
-- [软饭，站着吃](https://www.wangrn.com/book/4bbmlrm/)
 - [私恋旧星](https://www.wangrn.com/book/4bbmlr0/)
 - [炮灰丫鬟靠签到躺赢了](https://www.wangrn.com/book/4bbmlpq/)
 - [退婚流龙傲天，但未婚夫是我](https://www.wangrn.com/book/4bbmlno/)
@@ -44,7 +45,7 @@
 - [痴情女配开始放手了（快穿）](https://www.wangrn.com/book/4bbmlmr/)
 - [水管工[GB]](https://www.wangrn.com/book/4bbmlmm/)
 - [万人嫌女配深陷修罗场](https://www.wangrn.com/book/4bbmlmd/)
-- [[排球]游戏角色想和玩家谈恋爱](https://www.wangrn.com/book/4bbmllr/)
+- [游戏角色想和玩家谈恋爱](https://www.wangrn.com/book/4bbmllr/)
 - [我的NPC队友全是火影天花板](https://www.wangrn.com/book/4bbmljb/)
 - [卡尔蜜拉也能成为特利迦白月光？](https://www.wangrn.com/book/4bbmlij/)
 - [昼色清明](https://www.wangrn.com/book/4bbmlgu/)
@@ -80,6 +81,7 @@
 - [不当救世主就要当人类恶了吗](https://www.wangrn.com/book/4bbm1ta/)
 - [假金丝雀深陷修罗场](https://www.wangrn.com/book/4bbm1t8/)
 - [十福晋吃瓜日常(清穿)](https://www.wangrn.com/book/4bbm1kn/)
+- [社恐直播鉴宝，但带球跑](https://www.wangrn.com/book/4bblv0v/)
 - [[综英美]让我统治哥谭！！！](https://www.wangrn.com/book/4bbluvl/)
 - [当我穿为龙傲天的情敌](https://www.wangrn.com/book/4bbltts/)
 - [霓虹夏日](https://www.wangrn.com/book/4bbls56/)
@@ -132,6 +134,7 @@
 - [虫族之雌君的人设不对劲](https://www.wangrn.com/book/4bbk92d/)
 - [这男人该死的甜美](https://www.wangrn.com/book/4bbk7n1/)
 - [红楼之霸总他被迫拯救女主角](https://www.wangrn.com/book/4bbk7h7/)
+- [恶犬攻绑定上司的乖狗系统](https://www.wangrn.com/book/4bbk601/)
 - [把清冷权臣调成荡夫后](https://www.wangrn.com/book/4bbk44r/)
 - [绿茶病秧子骗他说喜欢](https://www.wangrn.com/book/4bbk2vd/)
 - [我真的没想在选秀炒CP](https://www.wangrn.com/book/4bbk1mt/)
@@ -140,7 +143,6 @@
 - [穿成炮灰后我封神了［快穿］](https://www.wangrn.com/book/4bbj2gb/)
 - [清澈女大的六零年代](https://www.wangrn.com/book/4bbj2ga/)
 - [如何扮演源氏重宝](https://www.wangrn.com/book/4bbj2eu/)
-- [道长他为何那样](https://www.wangrn.com/book/4bbj2dd/)
 - [卧底后被港岛大小姐缠上了](https://www.wangrn.com/book/4bbj22p/)
 - [高门小婢](https://www.wangrn.com/book/4bbj20c/)
 - [御兽师，我打工养你啊](https://www.wangrn.com/book/4bbj1v1/)
@@ -151,8 +153,6 @@
 - [警察，但犯罪大师系统[刑侦]](https://www.wangrn.com/book/4bbj1qc/)
 - [海岛求生：生活玩家种田囤货](https://www.wangrn.com/book/4bbj1oh/)
 - [日化人生[科研]](https://www.wangrn.com/book/4bbj1og/)
-- [星露谷，但大秦帝国](https://www.wangrn.com/book/4bbj1ng/)
-- [被反派暴君听到心声后[穿书]](https://www.wangrn.com/book/4bbj1js/)
 - [古代种田养娃日常](https://www.wangrn.com/book/4bbj1bd/)
 - [十九世纪贵族厨房（美食）](https://www.wangrn.com/book/4bbj19h/)
 - [千禧年，拆迁分了十栋楼！](https://www.wangrn.com/book/4bbj11l/)
@@ -162,7 +162,6 @@
 - [九零首富的替嫁小媳妇](https://www.wangrn.com/book/4bbj0hi/)
 - [我是唯一地上神国](https://www.wangrn.com/book/4bbj0em/)
 - [95美国贵族高中模拟](https://www.wangrn.com/book/4bbj0el/)
-- [无限末日副本：我有移动安全屋](https://www.wangrn.com/book/4bbj05t/)
 - [[娱乐圈]过分美丽的她](https://www.wangrn.com/book/4bbj04k/)
 - [五十年代港城日常](https://www.wangrn.com/book/4bbj03e/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.wangrn.com/book/4bbj01f/)
@@ -173,12 +172,8 @@
 - [人妻O救赎指南](https://www.wangrn.com/book/4bbivlu/)
 - [巨物致富：回乡开钓场](https://www.wangrn.com/book/4bbivj3/)
 - [在民俗惊悚片被诸神庇护](https://www.wangrn.com/book/4bbivgg/)
-- [夺养媳](https://www.wangrn.com/book/4bbivfp/)
-- [娶了女装心机太子](https://www.wangrn.com/book/4bbivev/)
 - [替嫁后咸鱼继母佛系日常](https://www.wangrn.com/book/4bbivd9/)
 - [星际团宠小人鱼](https://www.wangrn.com/book/4bbivbk/)
-- [穿到反派落魄时](https://www.wangrn.com/book/4bbiv9m/)
-- [我真不是算命的！[香江]](https://www.wangrn.com/book/4bbiv97/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1408/index.md)

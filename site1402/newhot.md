@@ -1,46 +1,42 @@
 
 # 耽美小说网 - 最热门的耽美小说在线阅读
 
-更新时间：2026-08-29 03:29:22
+更新时间：2026-08-30 03:30:28
 
 耽美小说网是一个广大书友喜欢的小说网，免费为您提供热门耽美小说、女生小说、都市言情小说无弹窗在线阅读和txt下载。
 
 - [耽美小说网](https://www.nvwagen.com/)
 
 ## 最新小说
-- [男朋友买一送一](https://www.nvwagen.com/book/8u4hpor/)
-- [在千禧年的伦敦当女巫](https://www.nvwagen.com/book/8u4hod6/)
-- [绿叶](https://www.nvwagen.com/book/8u4hk9e/)
-- [亚当斯与韦恩的适配性](https://www.nvwagen.com/book/8u4hjep/)
+- [被鬼怪宠爱的漂亮书生](https://www.nvwagen.com/book/8u4hqh3/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.nvwagen.com/book/8u4hnso/)
+- [我的烧烤摊超美味[美食]](https://www.nvwagen.com/book/8u4hngr/)
+- [如何正确哄睡暴君](https://www.nvwagen.com/book/8u4hkd9/)
 - [老公是松散生命体](https://www.nvwagen.com/book/8u4hdkq/)
 - [微臣怜惜公主](https://www.nvwagen.com/book/8u4halq/)
 - [法外狂猫](https://www.nvwagen.com/book/8u4h9g3/)
-- [若清晨所见之蓝](https://www.nvwagen.com/book/8u4h5m9/)
-- [沈助理又在隐藏他的超能力](https://www.nvwagen.com/book/8u4h1gk/)
+- [和室友他爸恋爱后](https://www.nvwagen.com/book/8u4h2do/)
+- [战死的阿爹回来了[年代]](https://www.nvwagen.com/book/8u4h18n/)
 - [就算是龙傲天也不可以[快穿]](https://www.nvwagen.com/book/8u4h05b/)
-- [系统不许我摆烂](https://www.nvwagen.com/book/8u4grkg/)
-- [直男咒术师的限制级游戏](https://www.nvwagen.com/book/8u4goa3/)
 - [多梦你一会儿](https://www.nvwagen.com/book/8u4gmq2/)
 - [穿为清冷影后的污点A](https://www.nvwagen.com/book/8u4gmgi/)
-- [这谁的沙雕二次元心声！](https://www.nvwagen.com/book/8u4gloj/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.nvwagen.com/book/8u4gjcp/)
-- [和前女友的心上人he了](https://www.nvwagen.com/book/8u4gh72/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.nvwagen.com/book/8u4gg9p/)
 - [拯救世界从扮演反派开始](https://www.nvwagen.com/book/8u4gg4u/)
+- [漫画路人绑定系统后](https://www.nvwagen.com/book/8u4gg0r/)
+- [[足球]能不能好好模拟游戏](https://www.nvwagen.com/book/8u4gg0k/)
 - [井闼山经理每天都被挖墙脚](https://www.nvwagen.com/book/8u4gftd/)
 - [[足球]小小鸟堂堂来袭](https://www.nvwagen.com/book/8u4gedt/)
-- [[综武侠]有间民宿](https://www.nvwagen.com/book/8u4gd7q/)
-- [忍界观察日记](https://www.nvwagen.com/book/8u4gc6r/)
 - [[足球]罗蜜第一志愿](https://www.nvwagen.com/book/8u4gc13/)
-- [某柯学的正义伙伴](https://www.nvwagen.com/book/8u4ga9v/)
-- [契约情人](https://www.nvwagen.com/book/8u4g9oh/)
+- [人偶游戏](https://www.nvwagen.com/book/8u4g9om/)
 - [好兄弟暴富后非要跟我结婚](https://www.nvwagen.com/book/8u4g7mr/)
+- [撕毁女配剧本的我被神之子读心了](https://www.nvwagen.com/book/8u4g7ep/)
 - [关于我虚构了一个男友这件事](https://www.nvwagen.com/book/8u4g76m/)
 - [一枝枝怨](https://www.nvwagen.com/book/8u4g61f/)
 - [纯爱宇智波基本恋爱法](https://www.nvwagen.com/book/8u4e4li/)
 - [分手后与诱系妻子再度热恋](https://www.nvwagen.com/book/8u4e4e3/)
+- [他要和我谈恋爱](https://www.nvwagen.com/book/8u4e42g/)
 - [你，后室管理员](https://www.nvwagen.com/book/8u4e39t/)
 - [星际团宠小人鱼](https://www.nvwagen.com/book/8u4e2tj/)
+- [高调装神，猥琐发育](https://www.nvwagen.com/book/8u4e2sf/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1402/index.md)
