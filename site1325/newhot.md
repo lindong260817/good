@@ -1,38 +1,29 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-08-29 03:38:51
+更新时间：2026-08-30 03:40:11
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。
 
 - [炫书网](https://www.xqwz8bk.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.xqwz8bk.com/book/1igm31t/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xqwz8bk.com/book/1igm330/)
 - [井闼山经理每天都被挖墙脚](https://www.xqwz8bk.com/book/1igm314/)
+- [我的烧烤摊超美味[美食]](https://www.xqwz8bk.com/book/1igm2vu/)
+- [他要和我谈恋爱](https://www.xqwz8bk.com/book/1igm2uj/)
 - [星际团宠小人鱼](https://www.xqwz8bk.com/book/1igm2ui/)
 - [你，后室管理员](https://www.xqwz8bk.com/book/1igm2tn/)
 - [分手后与诱系妻子再度热恋](https://www.xqwz8bk.com/book/1igm2st/)
+- [高调装神，猥琐发育](https://www.xqwz8bk.com/book/1igm2sj/)
 - [纯爱宇智波基本恋爱法](https://www.xqwz8bk.com/book/1igm2ok/)
-- [直男咒术师的限制级游戏](https://www.xqwz8bk.com/book/1igm2nn/)
-- [某柯学的正义伙伴](https://www.xqwz8bk.com/book/1igjaf1/)
-- [男朋友买一送一](https://www.xqwz8bk.com/book/1igivog/)
 - [我有嘉宾](https://www.xqwz8bk.com/book/1igiolo/)
-- [若清晨所见之蓝](https://www.xqwz8bk.com/book/51niuo/)
-- [沈助理又在隐藏他的超能力](https://www.xqwz8bk.com/book/51nhdc/)
-- [系统不许我摆烂](https://www.xqwz8bk.com/book/51ne85/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.xqwz8bk.com/book/51n3go/)
-- [[综武侠]有间民宿](https://www.xqwz8bk.com/book/51n0rm/)
-- [忍界观察日记](https://www.xqwz8bk.com/book/51mro0/)
-- [绿叶](https://www.xqwz8bk.com/book/51mq28/)
-- [这谁的沙雕二次元心声！](https://www.xqwz8bk.com/book/51mm6d/)
+- [漫画路人绑定系统后](https://www.xqwz8bk.com/book/51n69m/)
 - [老公是松散生命体](https://www.xqwz8bk.com/book/51mj0i/)
 - [一枝枝怨](https://www.xqwz8bk.com/book/51mgp0/)
 - [多梦你一会儿](https://www.xqwz8bk.com/book/51m9kq/)
 - [拯救世界从扮演反派开始](https://www.xqwz8bk.com/book/51m6sd/)
 - [[足球]罗蜜第一志愿](https://www.xqwz8bk.com/book/51m4qf/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.xqwz8bk.com/book/51m4lu/)
-- [和前女友的心上人he了](https://www.xqwz8bk.com/book/51lvtu/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1325/index.md)

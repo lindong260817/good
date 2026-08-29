@@ -1,45 +1,41 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-08-29 03:35:17
+更新时间：2026-08-30 03:36:30
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。
 
 - [顶点中文小说](https://www.wangrn.com/)
 
 ## 最新小说
-- [男朋友买一送一](https://www.wangrn.com/book/4bbmnl0/)
-- [在千禧年的伦敦当女巫](https://www.wangrn.com/book/4bbml5c/)
-- [绿叶](https://www.wangrn.com/book/4bbmj1u/)
-- [亚当斯与韦恩的适配性](https://www.wangrn.com/book/4bbmhgd/)
+- [被鬼怪宠爱的漂亮书生](https://www.wangrn.com/book/4bbmobu/)
+- [我的烧烤摊超美味[美食]](https://www.wangrn.com/book/4bbmnc1/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wangrn.com/book/4bbmktc/)
+- [如何正确哄睡暴君](https://www.wangrn.com/book/4bbmjig/)
 - [老公是松散生命体](https://www.wangrn.com/book/4bbmbn3/)
 - [微臣怜惜公主](https://www.wangrn.com/book/4bbm8mo/)
 - [法外狂猫](https://www.wangrn.com/book/4bbm6bs/)
-- [若清晨所见之蓝](https://www.wangrn.com/book/4bbm503/)
-- [沈助理又在隐藏他的超能力](https://www.wangrn.com/book/4bbm0ao/)
+- [战死的阿爹回来了[年代]](https://www.wangrn.com/book/4bblvva/)
+- [和室友他爸恋爱后](https://www.wangrn.com/book/4bbluti/)
 - [就算是龙傲天也不可以[快穿]](https://www.wangrn.com/book/4bblus1/)
-- [系统不许我摆烂](https://www.wangrn.com/book/4bblq6j/)
-- [直男咒术师的限制级游戏](https://www.wangrn.com/book/4bblklc/)
-- [这谁的沙雕二次元心声！](https://www.wangrn.com/book/4bblj66/)
 - [多梦你一会儿](https://www.wangrn.com/book/4bblin3/)
 - [穿为清冷影后的污点A](https://www.wangrn.com/book/4bblia4/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.wangrn.com/book/4bblfk5/)
-- [和前女友的心上人he了](https://www.wangrn.com/book/4bblfeg/)
 - [拯救世界从扮演反派开始](https://www.wangrn.com/book/4bbldv0/)
 - [井闼山经理每天都被挖墙脚](https://www.wangrn.com/book/4bbld9t/)
 - [[足球]小小鸟堂堂来袭](https://www.wangrn.com/book/4bblcml/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.wangrn.com/book/4bblc1r/)
-- [忍界观察日记](https://www.wangrn.com/book/4bblbkk/)
+- [漫画路人绑定系统后](https://www.wangrn.com/book/4bblcle/)
+- [[足球]能不能好好模拟游戏](https://www.wangrn.com/book/4bblc09/)
 - [[足球]罗蜜第一志愿](https://www.wangrn.com/book/4bblbd6/)
-- [[综武侠]有间民宿](https://www.wangrn.com/book/4bblb3l/)
-- [契约情人](https://www.wangrn.com/book/4bbl6ga/)
-- [某柯学的正义伙伴](https://www.wangrn.com/book/4bbl60o/)
+- [人偶游戏](https://www.wangrn.com/book/4bbl6i9/)
 - [关于我虚构了一个男友这件事](https://www.wangrn.com/book/4bbl57d/)
 - [好兄弟暴富后非要跟我结婚](https://www.wangrn.com/book/4bbl511/)
+- [撕毁女配剧本的我被神之子读心了](https://www.wangrn.com/book/4bbl4fb/)
 - [一枝枝怨](https://www.wangrn.com/book/4bbl3oe/)
 - [分手后与诱系妻子再度热恋](https://www.wangrn.com/book/4bbj2c0/)
+- [他要和我谈恋爱](https://www.wangrn.com/book/4bbj0q1/)
 - [纯爱宇智波基本恋爱法](https://www.wangrn.com/book/4bbj0pk/)
 - [你，后室管理员](https://www.wangrn.com/book/4bbj0b9/)
+- [高调装神，猥琐发育](https://www.wangrn.com/book/4bbivq7/)
 - [星际团宠小人鱼](https://www.wangrn.com/book/4bbivbk/)
 ## 相关内容
 - [README](/README.md)

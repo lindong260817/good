@@ -1,13 +1,14 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-08-29 03:24:53
+更新时间：2026-08-30 03:25:57
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。
 
 - [奇书网](https://www.jxbfsz.com/)
 
 ## 最新小说
+- [发家致富小夫郎](https://www.jxbfsz.com/book/29i1p5n/)
 - [渡鬼](https://www.jxbfsz.com/book/29i1oci/)
 - [我们生活玩家是这样的](https://www.jxbfsz.com/book/29i1oce/)
 - [九十年代从军记](https://www.jxbfsz.com/book/29i1occ/)
@@ -27,7 +28,7 @@
 - [始乱终弃高岭之花以后](https://www.jxbfsz.com/book/29i1oav/)
 - [折禅（强取豪夺）](https://www.jxbfsz.com/book/29i1oau/)
 - [影帝今天分手了吗[娱乐圈]](https://www.jxbfsz.com/book/29i1oaq/)
-- [氪金林太郎，我成了无冕之王](https://www.jxbfsz.com/book/29i1oao/)
+- [氪金游戏，从养成林太郎开始](https://www.jxbfsz.com/book/29i1oao/)
 - [除病弱万人嫌外全员重生](https://www.jxbfsz.com/book/29i1oan/)
 - [痴情女配开始放手了（快穿）](https://www.jxbfsz.com/book/29i1oam/)
 - [[三国]清澈，但千古一帝](https://www.jxbfsz.com/book/29i1oal/)
@@ -52,8 +53,7 @@
 - [[原神+崩铁]在提瓦特隐居也未尝不可](https://www.jxbfsz.com/book/29i1o8q/)
 - [师姐她怎么还不来追求我](https://www.jxbfsz.com/book/29i1o8p/)
 - [身为人造人的我梦想是成为救世主](https://www.jxbfsz.com/book/29i1o8o/)
-- [[排球]游戏角色想和玩家谈恋爱](https://www.jxbfsz.com/book/29i1o8l/)
-- [软饭，站着吃](https://www.jxbfsz.com/book/29i1o8j/)
+- [游戏角色想和玩家谈恋爱](https://www.jxbfsz.com/book/29i1o8l/)
 - [欢迎来到纳萨力克丧葬公司](https://www.jxbfsz.com/book/29i1o8g/)
 - [和光太郎谈恋爱](https://www.jxbfsz.com/book/29i1o8d/)
 - [退婚流龙傲天，但未婚夫是我](https://www.jxbfsz.com/book/29i1o8c/)
@@ -65,12 +65,11 @@
 - [我真的只会Ctrl啊！！！](https://www.jxbfsz.com/book/29i1f58/)
 - [人妻O救赎指南](https://www.jxbfsz.com/book/29i1ero/)
 - [星际团宠小人鱼](https://www.jxbfsz.com/book/29i17vc/)
-- [夺养媳](https://www.jxbfsz.com/book/29i17v6/)
 - [灭世龙崽有什么错](https://www.jxbfsz.com/book/29i140s/)
+- [九零重组小家庭](https://www.jxbfsz.com/book/29i13j5/)
 - [神豪文男主是我爸](https://www.jxbfsz.com/book/29i0ubo/)
 - [在虫族世界逃命升级](https://www.jxbfsz.com/book/29i0t0f/)
 - [趁她之危](https://www.jxbfsz.com/book/29i0qqn/)
-- [无限末日副本：我有移动安全屋](https://www.jxbfsz.com/book/29i0m6n/)
 - [我有特殊的升官技巧](https://www.jxbfsz.com/book/29i0ga0/)
 - [反派人生，易如反掌[快穿]](https://www.jxbfsz.com/book/29i0d03/)
 - [假少爷不想活了](https://www.jxbfsz.com/book/29i0cq6/)
@@ -78,7 +77,6 @@
 - [春归燕](https://www.jxbfsz.com/book/29hvtpp/)
 - [高调装神，猥琐发育](https://www.jxbfsz.com/book/29hvs6r/)
 - [千禧年，拆迁分了十栋楼！](https://www.jxbfsz.com/book/29hvllh/)
-- [被反派暴君听到心声后[穿书]](https://www.jxbfsz.com/book/29hvl9j/)
 - [摄政王家的咸鱼夫郎](https://www.jxbfsz.com/book/29hvic0/)
 - [第一游侠[全息]](https://www.jxbfsz.com/book/29hvh9d/)
 - [全球进化，而我保持不变](https://www.jxbfsz.com/book/29hvfc7/)
@@ -95,6 +93,7 @@
 - [当我穿为龙傲天的情敌](https://www.jxbfsz.com/book/29hv4t3/)
 - [误标记隔壁阿姨O之后](https://www.jxbfsz.com/book/29hv3rn/)
 - [不当救世主就要当人类恶了吗](https://www.jxbfsz.com/book/29hv3l4/)
+- [社恐直播鉴宝，但带球跑](https://www.jxbfsz.com/book/29hv2mb/)
 - [[全职高手]霸图老板是叶修](https://www.jxbfsz.com/book/29hv0de/)
 - [假金丝雀深陷修罗场](https://www.jxbfsz.com/book/29huvqo/)
 - [在民俗惊悚片被诸神庇护](https://www.jxbfsz.com/book/29hussh/)
@@ -115,7 +114,6 @@
 - [我司艺人永不塌房](https://www.jxbfsz.com/book/29hu7vo/)
 - [龙傲天他解锁宠妻系统](https://www.jxbfsz.com/book/29hu75t/)
 - [青空来信](https://www.jxbfsz.com/book/29hu63l/)
-- [星露谷，但大秦帝国](https://www.jxbfsz.com/book/29hu5pf/)
 - [豪门前妻O总想诱我](https://www.jxbfsz.com/book/29hu4vf/)
 - [当恶女捡回高岭之花](https://www.jxbfsz.com/book/29hu4rh/)
 - [人在虫族，写文爆红](https://www.jxbfsz.com/book/29hu4mk/)
@@ -133,7 +131,6 @@
 - [[综英美]让我统治哥谭！！！](https://www.jxbfsz.com/book/29htq00/)
 - [直男误入攻略天龙人游戏](https://www.jxbfsz.com/book/29hto1i/)
 - [迟晚](https://www.jxbfsz.com/book/29htmff/)
-- [娶了女装心机太子](https://www.jxbfsz.com/book/29htl9a/)
 - [悟咪观察笔记](https://www.jxbfsz.com/book/29htkf6/)
 - [深渊if，从染血骑士迪卢克开始[原神]](https://www.jxbfsz.com/book/29htk98/)
 - [穿越废星，我靠种田求生](https://www.jxbfsz.com/book/29htjpt/)
@@ -142,6 +139,7 @@
 - [这男人该死的甜美](https://www.jxbfsz.com/book/29htdm8/)
 - [红楼之霸总他被迫拯救女主角](https://www.jxbfsz.com/book/29htdm2/)
 - [刑部的小衙门](https://www.jxbfsz.com/book/29htdgj/)
+- [恶犬攻绑定上司的乖狗系统](https://www.jxbfsz.com/book/29htbuo/)
 - [虫族之雌君的人设不对劲](https://www.jxbfsz.com/book/29htbtb/)
 - [今天在伟大航路抽到SSR了吗](https://www.jxbfsz.com/book/29hta0u/)
 - [搭档，一起来玩求生游戏吧！](https://www.jxbfsz.com/book/29ht9m1/)
@@ -151,7 +149,6 @@
 - [徐娘子的美食发家日常](https://www.jxbfsz.com/book/29ht5mb/)
 - [我真的没想在选秀炒CP](https://www.jxbfsz.com/book/29ht5j0/)
 - [把清冷权臣调成荡夫后](https://www.jxbfsz.com/book/29ht4mc/)
-- [道长他为何那样](https://www.jxbfsz.com/book/29hsvo3/)
 - [[群穿]我在御兽番抢人气](https://www.jxbfsz.com/book/29hsvnv/)
 - [高门小婢](https://www.jxbfsz.com/book/29hs864/)
 - [卧底后被港岛大小姐缠上了](https://www.jxbfsz.com/book/29hs84i/)
@@ -162,7 +159,6 @@
 - [我是唯一地上神国](https://www.jxbfsz.com/book/29hs78i/)
 - [穿成炮灰后我封神了［快穿］](https://www.jxbfsz.com/book/29hs784/)
 - [我有一座安全城](https://www.jxbfsz.com/book/29hs76u/)
-- [我真不是算命的！[香江]](https://www.jxbfsz.com/book/29hs71t/)
 - [大瑛弟国](https://www.jxbfsz.com/book/29hs702/)
 - [[娱乐圈]过分美丽的她](https://www.jxbfsz.com/book/29hs6vo/)
 - [日化人生[科研]](https://www.jxbfsz.com/book/29hs6p3/)
@@ -176,7 +172,6 @@
 - [巨物致富：回乡开钓场](https://www.jxbfsz.com/book/29hs5dv/)
 - [五十年代港城日常](https://www.jxbfsz.com/book/29hs5bk/)
 - [95美国贵族高中模拟](https://www.jxbfsz.com/book/29hs578/)
-- [穿到反派落魄时](https://www.jxbfsz.com/book/29hs53i/)
 - [全民求生:从小木屋到魔法农场](https://www.jxbfsz.com/book/29hs53d/)
 - [御兽师，我打工养你啊](https://www.jxbfsz.com/book/29hs531/)
 ## 相关内容

@@ -1,46 +1,43 @@
 
 # 佚名奇书小说 - 免费更新的小说阅读网站
 
-更新时间：2026-08-29 03:39:38
+更新时间：2026-08-30 03:40:59
 
 佚名奇书小说提供全网各类热门小说在线阅读服务，支持免费观看。这里汇集了丰富的小说资源，包括但不限于都市、玄幻、武侠等多种类型，并且保证章节更新及时，页面设计清爽无广告干扰，是广大书友不可多得的好去处。
 
 - [佚名奇书小说](https://www.yimingeduai.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.yimingeduai.com/book/6admlts/)
-- [直男咒术师的限制级游戏](https://www.yimingeduai.com/book/6admd3n/)
+- [我的烧烤摊超美味[美食]](https://www.yimingeduai.com/book/6admm3b/)
+- [阿竹与野桃](https://www.yimingeduai.com/book/6admm00/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yimingeduai.com/book/6admlrd/)
 - [一枝枝怨](https://www.yimingeduai.com/book/6adm9td/)
 - [好兄弟暴富后非要跟我结婚](https://www.yimingeduai.com/book/6adm6s1/)
-- [忍界观察日记](https://www.yimingeduai.com/book/6adm6ek/)
 - [[足球]小小鸟堂堂来袭](https://www.yimingeduai.com/book/6adm31n/)
 - [微臣怜惜公主](https://www.yimingeduai.com/book/6adm1hj/)
 - [就算是龙傲天也不可以[快穿]](https://www.yimingeduai.com/book/6adm0c5/)
-- [系统不许我摆烂](https://www.yimingeduai.com/book/6adlkfj/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.yimingeduai.com/book/6adlk24/)
-- [某柯学的正义伙伴](https://www.yimingeduai.com/book/6adldvs/)
+- [人偶游戏](https://www.yimingeduai.com/book/6adm049/)
+- [和室友他爸恋爱后](https://www.yimingeduai.com/book/6adlo7l/)
 - [关于我虚构了一个男友这件事](https://www.yimingeduai.com/book/6adld7o/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.yimingeduai.com/book/6adl2on/)
+- [如何正确哄睡暴君](https://www.yimingeduai.com/book/6adlbf5/)
+- [被鬼怪宠爱的漂亮书生](https://www.yimingeduai.com/book/6adlb72/)
+- [[足球]能不能好好模拟游戏](https://www.yimingeduai.com/book/6adl65m/)
 - [多梦你一会儿](https://www.yimingeduai.com/book/6adl2mo/)
-- [绿叶](https://www.yimingeduai.com/book/6adl083/)
 - [老公是松散生命体](https://www.yimingeduai.com/book/6adl00m/)
-- [沈助理又在隐藏他的超能力](https://www.yimingeduai.com/book/6adkul2/)
-- [契约情人](https://www.yimingeduai.com/book/6adkom8/)
-- [男朋友买一送一](https://www.yimingeduai.com/book/6adknc9/)
 - [井闼山经理每天都被挖墙脚](https://www.yimingeduai.com/book/6adkmc7/)
 - [拯救世界从扮演反派开始](https://www.yimingeduai.com/book/6adkkb1/)
-- [这谁的沙雕二次元心声！](https://www.yimingeduai.com/book/6adkjll/)
-- [[综武侠]有间民宿](https://www.yimingeduai.com/book/6adkekc/)
 - [穿为清冷影后的污点A](https://www.yimingeduai.com/book/6adkeds/)
 - [法外狂猫](https://www.yimingeduai.com/book/6adk3ap/)
-- [若清晨所见之蓝](https://www.yimingeduai.com/book/6adjk3l/)
+- [漫画路人绑定系统后](https://www.yimingeduai.com/book/6adjnh7/)
+- [战死的阿爹回来了[年代]](https://www.yimingeduai.com/book/6adjktc/)
+- [撕毁女配剧本的我被神之子读心了](https://www.yimingeduai.com/book/6adjinh/)
 - [[足球]罗蜜第一志愿](https://www.yimingeduai.com/book/6adjf8l/)
-- [亚当斯与韦恩的适配性](https://www.yimingeduai.com/book/6adjek2/)
-- [和前女友的心上人he了](https://www.yimingeduai.com/book/6adjc9d/)
+- [高调装神，猥琐发育](https://www.yimingeduai.com/book/6adi75l/)
 - [你，后室管理员](https://www.yimingeduai.com/book/6adi752/)
 - [星际团宠小人鱼](https://www.yimingeduai.com/book/6adi74q/)
 - [纯爱宇智波基本恋爱法](https://www.yimingeduai.com/book/6adi70i/)
 - [分手后与诱系妻子再度热恋](https://www.yimingeduai.com/book/6adi6ch/)
+- [他要和我谈恋爱](https://www.yimingeduai.com/book/6adi5lu/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1399/index.md)

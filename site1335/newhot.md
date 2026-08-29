@@ -1,40 +1,34 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-08-29 03:24:53
+更新时间：2026-08-30 03:25:57
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。
 
 - [奇书网](https://www.jxbfsz.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.jxbfsz.com/book/29i1obr/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.jxbfsz.com/book/29i1o9t/)
+- [我的烧烤摊超美味[美食]](https://www.jxbfsz.com/book/29i1o99/)
 - [我有嘉宾](https://www.jxbfsz.com/book/29i1d50/)
 - [你，后室管理员](https://www.jxbfsz.com/book/29i181q/)
 - [分手后与诱系妻子再度热恋](https://www.jxbfsz.com/book/29i1800/)
 - [星际团宠小人鱼](https://www.jxbfsz.com/book/29i17vc/)
-- [男朋友买一送一](https://www.jxbfsz.com/book/29hvqvp/)
-- [直男咒术师的限制级游戏](https://www.jxbfsz.com/book/29hvl7t/)
-- [绿叶](https://www.jxbfsz.com/book/29hvag7/)
-- [若清晨所见之蓝](https://www.jxbfsz.com/book/29hv8kf/)
-- [沈助理又在隐藏他的超能力](https://www.jxbfsz.com/book/29hv1ir/)
-- [系统不许我摆烂](https://www.jxbfsz.com/book/29huvon/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.jxbfsz.com/book/29hujtm/)
+- [高调装神，猥琐发育](https://www.jxbfsz.com/book/29hvs6r/)
+- [如何正确哄睡暴君](https://www.jxbfsz.com/book/29hvemd/)
+- [漫画路人绑定系统后](https://www.jxbfsz.com/book/29hujd4/)
 - [多梦你一会儿](https://www.jxbfsz.com/book/29hugot/)
 - [微臣怜惜公主](https://www.jxbfsz.com/book/29hugg0/)
-- [[综武侠]有间民宿](https://www.jxbfsz.com/book/29huemr/)
+- [他要和我谈恋爱](https://www.jxbfsz.com/book/29huftc/)
+- [被鬼怪宠爱的漂亮书生](https://www.jxbfsz.com/book/29hufhb/)
+- [[足球]能不能好好模拟游戏](https://www.jxbfsz.com/book/29hudlh/)
 - [拯救世界从扮演反派开始](https://www.jxbfsz.com/book/29hud2g/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.jxbfsz.com/book/29hubok/)
-- [忍界观察日记](https://www.jxbfsz.com/book/29hubln/)
-- [亚当斯与韦恩的适配性](https://www.jxbfsz.com/book/29huadm/)
-- [这谁的沙雕二次元心声！](https://www.jxbfsz.com/book/29hua9m/)
-- [和前女友的心上人he了](https://www.jxbfsz.com/book/29hua1g/)
-- [某柯学的正义伙伴](https://www.jxbfsz.com/book/29hu68r/)
 - [老公是松散生命体](https://www.jxbfsz.com/book/29hu5mg/)
 - [纯爱宇智波基本恋爱法](https://www.jxbfsz.com/book/29hu5hu/)
 - [一枝枝怨](https://www.jxbfsz.com/book/29hu2v6/)
 - [[足球]罗蜜第一志愿](https://www.jxbfsz.com/book/29hu27p/)
 - [井闼山经理每天都被挖墙脚](https://www.jxbfsz.com/book/29htu83/)
+- [战死的阿爹回来了[年代]](https://www.jxbfsz.com/book/29htsel/)
 - [好兄弟暴富后非要跟我结婚](https://www.jxbfsz.com/book/29htjav/)
 - [关于我虚构了一个男友这件事](https://www.jxbfsz.com/book/29htit1/)
 ## 相关内容
