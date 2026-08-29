@@ -1,15 +1,16 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-29 03:24:04
+更新时间：2026-08-30 03:25:07
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
 - [随梦小说网](https://www.hzciic.com/)
 
 ## 最新小说
+- [发家致富小夫郎](https://www.hzciic.com/book/1sjvhq2/)
 - [游戏boss们抢着要当我的猫[全息]](https://www.hzciic.com/book/1sjvhpu/)
-- [[排球]游戏角色想和玩家谈恋爱](https://www.hzciic.com/book/1sjvhpt/)
+- [游戏角色想和玩家谈恋爱](https://www.hzciic.com/book/1sjvhpt/)
 - [始乱终弃高岭之花以后](https://www.hzciic.com/book/1sjvhpr/)
 - [卡尔蜜拉也能成为特利迦白月光？](https://www.hzciic.com/book/1sjvhpo/)
 - [被怪物女友始乱终弃后[gb]](https://www.hzciic.com/book/1sjvhph/)
@@ -24,7 +25,7 @@
 - [我的NPC队友全是火影天花板](https://www.hzciic.com/book/1sjvhoj/)
 - [撕碎[刑侦]](https://www.hzciic.com/book/1sjvhoh/)
 - [欢迎来到纳萨力克丧葬公司](https://www.hzciic.com/book/1sjvho5/)
-- [氪金林太郎，我成了无冕之王](https://www.hzciic.com/book/1sjvho4/)
+- [氪金游戏，从养成林太郎开始](https://www.hzciic.com/book/1sjvho4/)
 - [折禅（强取豪夺）](https://www.hzciic.com/book/1sjvho2/)
 - [我要当厨修啊[美食]](https://www.hzciic.com/book/1sjvhnt/)
 - [我们生活玩家是这样的](https://www.hzciic.com/book/1sjvhnq/)
@@ -44,7 +45,6 @@
 - [水管工[GB]](https://www.hzciic.com/book/1sjvhmn/)
 - [渡鬼](https://www.hzciic.com/book/1sjvhmm/)
 - [猫猫也要被魅魔魅惑吗？](https://www.hzciic.com/book/1sjvhml/)
-- [软饭，站着吃](https://www.hzciic.com/book/1sjvhmi/)
 - [炮灰丫鬟靠签到躺赢了](https://www.hzciic.com/book/1sjvhmd/)
 - [在千禧年的伦敦当女巫](https://www.hzciic.com/book/1sjvhmb/)
 - [青城玩家明明超强却过分谨慎](https://www.hzciic.com/book/1sjvhm6/)
@@ -68,7 +68,6 @@
 - [深渊if，从染血骑士迪卢克开始[原神]](https://www.hzciic.com/book/1sjvhl2/)
 - [我写小说纯粹为了赚钱](https://www.hzciic.com/book/1sjvhl1/)
 - [下潜一万米，海渊求生](https://www.hzciic.com/book/1sjvhkv/)
-- [夺养媳](https://www.hzciic.com/book/1sjvhkf/)
 - [星际团宠小人鱼](https://www.hzciic.com/book/1sjvhjj/)
 - [十九世纪贵族厨房（美食）](https://www.hzciic.com/book/1sjvhj4/)
 - [九零首富的替嫁小媳妇](https://www.hzciic.com/book/1sjvhip/)
@@ -78,14 +77,12 @@
 - [千禧年，拆迁分了十栋楼！](https://www.hzciic.com/book/1sjvhdt/)
 - [六零之成了卷王的妹妹](https://www.hzciic.com/book/1sjvg6e/)
 - [我不是御兽大师](https://www.hzciic.com/book/1sjvg68/)
-- [道长他为何那样](https://www.hzciic.com/book/1sjvg64/)
 - [满级大佬制霸热血运动番](https://www.hzciic.com/book/1sjvg60/)
 - [古代种田养娃日常](https://www.hzciic.com/book/1sjuh0f/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.hzciic.com/book/1sjuggq/)
-- [被反派暴君听到心声后[穿书]](https://www.hzciic.com/book/1sjuctl/)
+- [九零重组小家庭](https://www.hzciic.com/book/1sjtr4p/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.hzciic.com/book/1sjtojr/)
 - [灭世龙崽有什么错](https://www.hzciic.com/book/1sjtkte/)
-- [无限末日副本：我有移动安全屋](https://www.hzciic.com/book/1sjt9bg/)
 - [我有特殊的升官技巧](https://www.hzciic.com/book/1sjt3bv/)
 - [御兽师，我打工养你啊](https://www.hzciic.com/book/1sjt152/)
 - [反派人生，易如反掌[快穿]](https://www.hzciic.com/book/1sjsvqa/)
@@ -109,6 +106,7 @@
 - [不当救世主就要当人类恶了吗](https://www.hzciic.com/book/62294j/)
 - [当我穿为龙傲天的情敌](https://www.hzciic.com/book/6226k7/)
 - [枕边热吻](https://www.hzciic.com/book/6224od/)
+- [社恐直播鉴宝，但带球跑](https://www.hzciic.com/book/6223f6/)
 - [[全职高手]霸图老板是叶修](https://www.hzciic.com/book/6222gi/)
 - [成为养成系练习生后](https://www.hzciic.com/book/62200t/)
 - [假金丝雀深陷修罗场](https://www.hzciic.com/book/621v58/)
@@ -127,7 +125,6 @@
 - [老婆是恋爱脑女配](https://www.hzciic.com/book/62170b/)
 - [漫画配角的不平凡日常](https://www.hzciic.com/book/62161u/)
 - [龙傲天他解锁宠妻系统](https://www.hzciic.com/book/6215ch/)
-- [星露谷，但大秦帝国](https://www.hzciic.com/book/621586/)
 - [人在虫族，写文爆红](https://www.hzciic.com/book/62140i/)
 - [漫漫仙途](https://www.hzciic.com/book/6213k0/)
 - [当我cos了漫画if线主角](https://www.hzciic.com/book/6213cs/)
@@ -138,7 +135,6 @@
 - [你是我的根目录](https://www.hzciic.com/book/620u2c/)
 - [恋爱脑毁灭世界](https://www.hzciic.com/book/620sgn/)
 - [兽世种田撸狼首领](https://www.hzciic.com/book/620pv7/)
-- [娶了女装心机太子](https://www.hzciic.com/book/620o2o/)
 - [直男误入攻略天龙人游戏](https://www.hzciic.com/book/620nbf/)
 - [[综港影]野生情人出没地](https://www.hzciic.com/book/620mbu/)
 - [穿越废星，我靠种田求生](https://www.hzciic.com/book/620kr4/)
@@ -148,6 +144,7 @@
 - [红楼之霸总他被迫拯救女主角](https://www.hzciic.com/book/620gea/)
 - [刑部的小衙门](https://www.hzciic.com/book/620ebl/)
 - [这男人该死的甜美](https://www.hzciic.com/book/620e1c/)
+- [恶犬攻绑定上司的乖狗系统](https://www.hzciic.com/book/620drq/)
 - [悟咪观察笔记](https://www.hzciic.com/book/620djq/)
 - [萩原警官的咒术大冒险](https://www.hzciic.com/book/620dgi/)
 - [虫族之雌君的人设不对劲](https://www.hzciic.com/book/620d7f/)
@@ -163,11 +160,9 @@
 - [高门小婢](https://www.hzciic.com/book/jcpgf/)
 - [清澈女大的六零年代](https://www.hzciic.com/book/jcpbe/)
 - [95美国贵族高中模拟](https://www.hzciic.com/book/jcp4v/)
-- [我真不是算命的！[香江]](https://www.hzciic.com/book/jcp0e/)
 - [替嫁后咸鱼继母佛系日常](https://www.hzciic.com/book/jcorl/)
 - [警察，但犯罪大师系统[刑侦]](https://www.hzciic.com/book/jcoqc/)
 - [科学主义魔法学院](https://www.hzciic.com/book/jcoje/)
-- [穿到反派落魄时](https://www.hzciic.com/book/jcodl/)
 - [当恶女捡回高岭之花](https://www.hzciic.com/book/jcobd/)
 - [五十年代港城日常](https://www.hzciic.com/book/jco9v/)
 - [海岛求生：生活玩家种田囤货](https://www.hzciic.com/book/1u388/)

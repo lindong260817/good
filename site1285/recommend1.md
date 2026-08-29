@@ -1,13 +1,14 @@
 
 # 书迷村-免费高质量网络小说阅读网,热门男生女生小说大全
 
-更新时间：2026-08-29 03:39:21
+更新时间：2026-08-30 03:40:41
 
 书迷村是广大书友最值得收藏的网络小说阅读平台，提供最新最全的男生小说、女生小说以及孟静薇等作者的作品。在这里可以免费阅读到高质量的小说章节内容，是小说爱好者的首选网站。
 
 - [书迷村](https://www.ycqnjy.com/)
 
 ## 最新小说
+- [发家致富小夫郎](https://www.ycqnjy.com/book/95ires8/)
 - [我们生活玩家是这样的](https://www.ycqnjy.com/book/95ires7/)
 - [我夫君怎会是龙傲天？](https://www.ycqnjy.com/book/95ires5/)
 - [宫陷](https://www.ycqnjy.com/book/95ires2/)
@@ -15,7 +16,7 @@
 - [折禅（强取豪夺）](https://www.ycqnjy.com/book/95irers/)
 - [我要当厨修啊[美食]](https://www.ycqnjy.com/book/95irerr/)
 - [九十年代从军记](https://www.ycqnjy.com/book/95irerq/)
-- [氪金林太郎，我成了无冕之王](https://www.ycqnjy.com/book/95irerm/)
+- [氪金游戏，从养成林太郎开始](https://www.ycqnjy.com/book/95irerm/)
 - [异种新婚报告](https://www.ycqnjy.com/book/95irerg/)
 - [在千禧年的伦敦当女巫](https://www.ycqnjy.com/book/95irerb/)
 - [重回养父年少时](https://www.ycqnjy.com/book/95irer6/)
@@ -36,7 +37,6 @@
 - [渡鬼](https://www.ycqnjy.com/book/95irepp/)
 - [被怪物女友始乱终弃后[gb]](https://www.ycqnjy.com/book/95irepk/)
 - [女先生](https://www.ycqnjy.com/book/95irepj/)
-- [软饭，站着吃](https://www.ycqnjy.com/book/95irepi/)
 - [与亡夫春风一度后](https://www.ycqnjy.com/book/95irepc/)
 - [和光太郎谈恋爱](https://www.ycqnjy.com/book/95irep8/)
 - [无限回档，我把自己刷成了女帝](https://www.ycqnjy.com/book/95irep4/)
@@ -66,9 +66,8 @@
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.ycqnjy.com/book/95irend/)
 - [我司艺人永不塌房](https://www.ycqnjy.com/book/95irenc/)
 - [暴君偏头痛](https://www.ycqnjy.com/book/95irena/)
-- [[排球]游戏角色想和玩家谈恋爱](https://www.ycqnjy.com/book/95iren9/)
+- [游戏角色想和玩家谈恋爱](https://www.ycqnjy.com/book/95iren9/)
 - [欢迎来到纳萨力克丧葬公司](https://www.ycqnjy.com/book/95iren5/)
-- [夺养媳](https://www.ycqnjy.com/book/95iremr/)
 - [九零首富的替嫁小媳妇](https://www.ycqnjy.com/book/95irel4/)
 - [星际团宠小人鱼](https://www.ycqnjy.com/book/95irel2/)
 - [十九世纪贵族厨房（美食）](https://www.ycqnjy.com/book/95irekt/)
@@ -76,16 +75,14 @@
 - [假少爷不想活了](https://www.ycqnjy.com/book/95irekh/)
 - [高嫁之后](https://www.ycqnjy.com/book/95ireih/)
 - [千禧年，拆迁分了十栋楼！](https://www.ycqnjy.com/book/95ireha/)
-- [道长他为何那样](https://www.ycqnjy.com/book/95ird8j/)
 - [我不是御兽大师](https://www.ycqnjy.com/book/95ird8b/)
 - [六零之成了卷王的妹妹](https://www.ycqnjy.com/book/95ird82/)
 - [满级大佬制霸热血运动番](https://www.ycqnjy.com/book/95ird7u/)
 - [古代种田养娃日常](https://www.ycqnjy.com/book/95iqo8g/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.ycqnjy.com/book/95iqnrf/)
-- [被反派暴君听到心声后[穿书]](https://www.ycqnjy.com/book/95iqap7/)
+- [九零重组小家庭](https://www.ycqnjy.com/book/95ipo1d/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ycqnjy.com/book/95ipnqh/)
 - [灭世龙崽有什么错](https://www.ycqnjy.com/book/95ipdol/)
-- [无限末日副本：我有移动安全屋](https://www.ycqnjy.com/book/95ip81i/)
 - [我有特殊的升官技巧](https://www.ycqnjy.com/book/95ip1of/)
 - [御兽师，我打工养你啊](https://www.ycqnjy.com/book/95iovqn/)
 - [反派人生，易如反掌[快穿]](https://www.ycqnjy.com/book/95iouen/)
@@ -108,6 +105,7 @@
 - [当我穿为龙傲天的情敌](https://www.ycqnjy.com/book/tbhsje/)
 - [全球进化，而我保持不变](https://www.ycqnjy.com/book/tbhrp3/)
 - [不当救世主就要当人类恶了吗](https://www.ycqnjy.com/book/tbhpsq/)
+- [社恐直播鉴宝，但带球跑](https://www.ycqnjy.com/book/tbhmva/)
 - [枕边热吻](https://www.ycqnjy.com/book/tbhmef/)
 - [[全职高手]霸图老板是叶修](https://www.ycqnjy.com/book/tbhkvp/)
 - [十福晋吃瓜日常(清穿)](https://www.ycqnjy.com/book/tbhgbo/)
@@ -124,7 +122,6 @@
 - [我，恶女，在线搞事](https://www.ycqnjy.com/book/tbgqnb/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.ycqnjy.com/book/tbgqlk/)
 - [漫画配角的不平凡日常](https://www.ycqnjy.com/book/tbgpqi/)
-- [星露谷，但大秦帝国](https://www.ycqnjy.com/book/tbgpop/)
 - [青空来信](https://www.ycqnjy.com/book/tbgpnt/)
 - [龙傲天他解锁宠妻系统](https://www.ycqnjy.com/book/tbgpav/)
 - [老婆是恋爱脑女配](https://www.ycqnjy.com/book/tbgou1/)
@@ -138,13 +135,13 @@
 - [恋爱脑毁灭世界](https://www.ycqnjy.com/book/tbgh4g/)
 - [魔尊和仙帝共坠爱河之后](https://www.ycqnjy.com/book/tbgglj/)
 - [兽世种田撸狼首领](https://www.ycqnjy.com/book/tbgefe/)
-- [娶了女装心机太子](https://www.ycqnjy.com/book/tbga4o/)
 - [直男误入攻略天龙人游戏](https://www.ycqnjy.com/book/tbga1b/)
 - [八零恶毒后妈杀疯了](https://www.ycqnjy.com/book/tbg7ra/)
 - [[综港影]野生情人出没地](https://www.ycqnjy.com/book/tbg7fp/)
 - [穿越废星，我靠种田求生](https://www.ycqnjy.com/book/tbg6e6/)
 - [[足球]没头脑和不高兴](https://www.ycqnjy.com/book/tbg44l/)
 - [迟晚](https://www.ycqnjy.com/book/tbg3lh/)
+- [恶犬攻绑定上司的乖狗系统](https://www.ycqnjy.com/book/tbg2i8/)
 - [如果时光不记得](https://www.ycqnjy.com/book/tbg29m/)
 - [红楼之霸总他被迫拯救女主角](https://www.ycqnjy.com/book/tbg26e/)
 - [在民俗惊悚片被诸神庇护](https://www.ycqnjy.com/book/tbg1tu/)
@@ -176,8 +173,6 @@
 - [[娱乐圈]过分美丽的她](https://www.ycqnjy.com/book/2tua9o/)
 - [卧底后被港岛大小姐缠上了](https://www.ycqnjy.com/book/9ckm7/)
 - [替嫁后咸鱼继母佛系日常](https://www.ycqnjy.com/book/9ckja/)
-- [我真不是算命的！[香江]](https://www.ycqnjy.com/book/9ckha/)
-- [穿到反派落魄时](https://www.ycqnjy.com/book/9ck83/)
 - [五十年代港城日常](https://www.ycqnjy.com/book/306i/)
 ## 相关内容
 - [README](/README.md)

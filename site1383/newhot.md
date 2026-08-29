@@ -1,44 +1,40 @@
 
 # 紫竹原始小说 - 最新最全的小说文学网站
 
-更新时间：2026-08-29 03:20:30
+更新时间：2026-08-30 03:21:29
 
 紫竹原始小说是一个专注于分享最新、最全的小说文学作品的网站。我们致力于为读者带来全新的阅读体验，欢迎访问我们的网站，尽情享受文学的魅力。
 
 - [紫竹原始小说](https://www.cnysxc.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.cnysxc.com/book/8edvmpn/)
-- [男朋友买一送一](https://www.cnysxc.com/book/8eduuo5/)
-- [绿叶](https://www.cnysxc.com/book/8edut60/)
-- [亚当斯与韦恩的适配性](https://www.cnysxc.com/book/8edupam/)
+- [我的烧烤摊超美味[美食]](https://www.cnysxc.com/book/8edvmqg/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.cnysxc.com/book/8edvmoh/)
+- [被鬼怪宠爱的漂亮书生](https://www.cnysxc.com/book/8edutu8/)
+- [如何正确哄睡暴君](https://www.cnysxc.com/book/8eduqnu/)
 - [微臣怜惜公主](https://www.cnysxc.com/book/8edui35/)
 - [老公是松散生命体](https://www.cnysxc.com/book/8edugg9/)
-- [若清晨所见之蓝](https://www.cnysxc.com/book/8edufqk/)
-- [沈助理又在隐藏他的超能力](https://www.cnysxc.com/book/8edua3s/)
-- [系统不许我摆烂](https://www.cnysxc.com/book/8edu436/)
-- [直男咒术师的限制级游戏](https://www.cnysxc.com/book/8edtvt9/)
+- [战死的阿爹回来了[年代]](https://www.cnysxc.com/book/8edu4qc/)
 - [多梦你一会儿](https://www.cnysxc.com/book/8edtu70/)
-- [这谁的沙雕二次元心声！](https://www.cnysxc.com/book/8edtt37/)
 - [就算是龙傲天也不可以[快穿]](https://www.cnysxc.com/book/8edtrfh/)
 - [穿为清冷影后的污点A](https://www.cnysxc.com/book/8edtr8f/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.cnysxc.com/book/8edto6b/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.cnysxc.com/book/8edtn9o/)
 - [拯救世界从扮演反派开始](https://www.cnysxc.com/book/8edtmtu/)
-- [和前女友的心上人he了](https://www.cnysxc.com/book/8edtm8e/)
-- [忍界观察日记](https://www.cnysxc.com/book/8edtlgu/)
-- [[综武侠]有间民宿](https://www.cnysxc.com/book/8edtklu/)
+- [[足球]能不能好好模拟游戏](https://www.cnysxc.com/book/8edtmro/)
+- [漫画路人绑定系统后](https://www.cnysxc.com/book/8edtmea/)
 - [井闼山经理每天都被挖墙脚](https://www.cnysxc.com/book/8edtk88/)
-- [某柯学的正义伙伴](https://www.cnysxc.com/book/8edti98/)
 - [[足球]罗蜜第一志愿](https://www.cnysxc.com/book/8edtgds/)
-- [契约情人](https://www.cnysxc.com/book/8edtep3/)
 - [[足球]小小鸟堂堂来袭](https://www.cnysxc.com/book/8edte1h/)
 - [一枝枝怨](https://www.cnysxc.com/book/8edtd30/)
 - [法外狂猫](https://www.cnysxc.com/book/8edtcvc/)
+- [撕毁女配剧本的我被神之子读心了](https://www.cnysxc.com/book/8edtc4j/)
+- [和室友他爸恋爱后](https://www.cnysxc.com/book/8edtat8/)
+- [人偶游戏](https://www.cnysxc.com/book/8edt7fm/)
 - [好兄弟暴富后非要跟我结婚](https://www.cnysxc.com/book/8edt6ug/)
 - [关于我虚构了一个男友这件事](https://www.cnysxc.com/book/8edt6t3/)
 - [纯爱宇智波基本恋爱法](https://www.cnysxc.com/book/8edrbfo/)
 - [你，后室管理员](https://www.cnysxc.com/book/8edrauk/)
+- [他要和我谈恋爱](https://www.cnysxc.com/book/8edraov/)
+- [高调装神，猥琐发育](https://www.cnysxc.com/book/8edraiu/)
 - [星际团宠小人鱼](https://www.cnysxc.com/book/8edr9sk/)
 - [分手后与诱系妻子再度热恋](https://www.cnysxc.com/book/8edr9ms/)
 ## 相关内容

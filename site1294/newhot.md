@@ -1,38 +1,29 @@
 
 # 思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-08-29 03:18:07
+更新时间：2026-08-30 03:19:05
 
 思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。
 
 - [思路客](https://www.968577.com/)
 
 ## 最新小说
+- [我的烧烤摊超美味[美食]](https://www.968577.com/book/1b28mem/)
 - [井闼山经理每天都被挖墙脚](https://www.968577.com/book/1b28mca/)
-- [在千禧年的伦敦当女巫](https://www.968577.com/book/1b28mc7/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.968577.com/book/1b28mbf/)
 - [分手后与诱系妻子再度热恋](https://www.968577.com/book/1b28man/)
 - [星际团宠小人鱼](https://www.968577.com/book/1b28m9j/)
 - [你，后室管理员](https://www.968577.com/book/1b28m9i/)
+- [他要和我谈恋爱](https://www.968577.com/book/1b28m9h/)
+- [高调装神，猥琐发育](https://www.968577.com/book/1b28m8g/)
 - [纯爱宇智波基本恋爱法](https://www.968577.com/book/1b28m3q/)
-- [直男咒术师的限制级游戏](https://www.968577.com/book/1b28m3a/)
-- [某柯学的正义伙伴](https://www.968577.com/book/1b25thr/)
-- [男朋友买一送一](https://www.968577.com/book/1b25gnd/)
 - [我有嘉宾](https://www.968577.com/book/1b25arh/)
-- [若清晨所见之蓝](https://www.968577.com/book/49smoj/)
-- [沈助理又在隐藏他的超能力](https://www.968577.com/book/49sk3i/)
-- [系统不许我摆烂](https://www.968577.com/book/49sja7/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.968577.com/book/49s7lv/)
-- [[综武侠]有间民宿](https://www.968577.com/book/49s1ff/)
-- [忍界观察日记](https://www.968577.com/book/49ruee/)
-- [绿叶](https://www.968577.com/book/49rqmq/)
+- [漫画路人绑定系统后](https://www.968577.com/book/49s8gc/)
 - [一枝枝怨](https://www.968577.com/book/49rlku/)
-- [这谁的沙雕二次元心声！](https://www.968577.com/book/49rlcv/)
 - [老公是松散生命体](https://www.968577.com/book/49rl15/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.968577.com/book/49ra97/)
 - [多梦你一会儿](https://www.968577.com/book/49r9le/)
 - [拯救世界从扮演反派开始](https://www.968577.com/book/49r7fl/)
 - [[足球]罗蜜第一志愿](https://www.968577.com/book/49r7cu/)
-- [和前女友的心上人he了](https://www.968577.com/book/49r493/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1294/index.md)

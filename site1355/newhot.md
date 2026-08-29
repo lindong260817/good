@@ -1,33 +1,29 @@
 
 # 梦翔橙子小说网-全本小说最值得收藏的在线阅读平台
 
-更新时间：2026-08-29 03:28:40
+更新时间：2026-08-30 03:29:46
 
 梦翔橙子小说网为您提供最新、最热门的小说资源，拥有全网最全面的小说库。无论是全本还是连载中，都能在这里找到。是解决书荒问题的理想选择，让您的阅读体验更加流畅愉快。
 
 - [梦翔橙子小说网](https://www.mengxiang668.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.mengxiang668.com/book/2nrpqt7/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.mengxiang668.com/book/2nrpr0c/)
+- [我的烧烤摊超美味[美食]](https://www.mengxiang668.com/book/2nrpqtd/)
 - [我有嘉宾](https://www.mengxiang668.com/book/2nrpm9k/)
 - [你，后室管理员](https://www.mengxiang668.com/book/2nrornj/)
 - [星际团宠小人鱼](https://www.mengxiang668.com/book/2nrorla/)
 - [分手后与诱系妻子再度热恋](https://www.mengxiang668.com/book/2nrorim/)
-- [男朋友买一送一](https://www.mengxiang668.com/book/2nroanj/)
-- [绿叶](https://www.mengxiang668.com/book/2nrnuq5/)
-- [若清晨所见之蓝](https://www.mengxiang668.com/book/2nrnkkb/)
-- [沈助理又在隐藏他的超能力](https://www.mengxiang668.com/book/2nrnj3n/)
+- [高调装神，猥琐发育](https://www.mengxiang668.com/book/2nrokhd/)
+- [如何正确哄睡暴君](https://www.mengxiang668.com/book/2nro015/)
+- [被鬼怪宠爱的漂亮书生](https://www.mengxiang668.com/book/2nrnido/)
 - [老公是松散生命体](https://www.mengxiang668.com/book/2nrnicd/)
 - [微臣怜惜公主](https://www.mengxiang668.com/book/2nrnejo/)
-- [系统不许我摆烂](https://www.mengxiang668.com/book/2nrncev/)
-- [亚当斯与韦恩的适配性](https://www.mengxiang668.com/book/2nrn7pi/)
+- [他要和我谈恋爱](https://www.mengxiang668.com/book/2nrn5pd/)
 - [多梦你一会儿](https://www.mengxiang668.com/book/2nrn1ad/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.mengxiang668.com/book/2nrmvu0/)
-- [[综武侠]有间民宿](https://www.mengxiang668.com/book/2nrmv4c/)
-- [这谁的沙雕二次元心声！](https://www.mengxiang668.com/book/2nrmuru/)
-- [和前女友的心上人he了](https://www.mengxiang668.com/book/2nrmrn0/)
-- [忍界观察日记](https://www.mengxiang668.com/book/2nrmqs3/)
-- [某柯学的正义伙伴](https://www.mengxiang668.com/book/2nrmp18/)
+- [漫画路人绑定系统后](https://www.mengxiang668.com/book/2nrn116/)
+- [战死的阿爹回来了[年代]](https://www.mengxiang668.com/book/2nrmvpp/)
+- [[足球]能不能好好模拟游戏](https://www.mengxiang668.com/book/2nrmv3c/)
 - [[足球]罗蜜第一志愿](https://www.mengxiang668.com/book/2nrmo94/)
 - [一枝枝怨](https://www.mengxiang668.com/book/2nrmmm8/)
 - [井闼山经理每天都被挖墙脚](https://www.mengxiang668.com/book/2nrmmbt/)
@@ -35,11 +31,9 @@
 - [法外狂猫](https://www.mengxiang668.com/book/2nrm7a6/)
 - [好兄弟暴富后非要跟我结婚](https://www.mengxiang668.com/book/2nrm6hu/)
 - [关于我虚构了一个男友这件事](https://www.mengxiang668.com/book/2nrm2vv/)
-- [契约情人](https://www.mengxiang668.com/book/2nrm2v7/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.mengxiang668.com/book/2nrklu4/)
+- [和室友他爸恋爱后](https://www.mengxiang668.com/book/2nrlrur/)
 - [纯爱宇智波基本恋爱法](https://www.mengxiang668.com/book/2nrklae/)
 - [拯救世界从扮演反派开始](https://www.mengxiang668.com/book/2nrkl01/)
-- [直男咒术师的限制级游戏](https://www.mengxiang668.com/book/2nrkjf6/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1355/index.md)
