@@ -1,38 +1,29 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-08-29 03:28:08
+更新时间：2026-08-30 03:29:14
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
 - [爱你中文网](https://www.longjiangstone.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.longjiangstone.com/book/34b4l0/)
+- [我的烧烤摊超美味[美食]](https://www.longjiangstone.com/book/34b4kl/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.longjiangstone.com/book/34b4kh/)
 - [井闼山经理每天都被挖墙脚](https://www.longjiangstone.com/book/34b4k0/)
+- [他要和我谈恋爱](https://www.longjiangstone.com/book/34b4ip/)
 - [分手后与诱系妻子再度热恋](https://www.longjiangstone.com/book/34b4ij/)
 - [星际团宠小人鱼](https://www.longjiangstone.com/book/34b4hq/)
 - [你，后室管理员](https://www.longjiangstone.com/book/34b4hl/)
+- [高调装神，猥琐发育](https://www.longjiangstone.com/book/34b4gf/)
 - [纯爱宇智波基本恋爱法](https://www.longjiangstone.com/book/34b4f0/)
-- [直男咒术师的限制级游戏](https://www.longjiangstone.com/book/34b4cq/)
-- [某柯学的正义伙伴](https://www.longjiangstone.com/book/348c4v/)
-- [男朋友买一送一](https://www.longjiangstone.com/book/3480qj/)
 - [我有嘉宾](https://www.longjiangstone.com/book/347r4j/)
-- [若清晨所见之蓝](https://www.longjiangstone.com/book/a3cp4/)
-- [沈助理又在隐藏他的超能力](https://www.longjiangstone.com/book/a3a1f/)
-- [系统不许我摆烂](https://www.longjiangstone.com/book/a35t6/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.longjiangstone.com/book/a2raq/)
-- [[综武侠]有间民宿](https://www.longjiangstone.com/book/a2mf2/)
-- [绿叶](https://www.longjiangstone.com/book/a2i62/)
-- [忍界观察日记](https://www.longjiangstone.com/book/a2grv/)
+- [漫画路人绑定系统后](https://www.longjiangstone.com/book/a2s3f/)
 - [一枝枝怨](https://www.longjiangstone.com/book/a2cbi/)
-- [这谁的沙雕二次元心声！](https://www.longjiangstone.com/book/a2c9m/)
 - [老公是松散生命体](https://www.longjiangstone.com/book/a2a1j/)
 - [多梦你一会儿](https://www.longjiangstone.com/book/a1vpn/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.longjiangstone.com/book/a1sb7/)
 - [拯救世界从扮演反派开始](https://www.longjiangstone.com/book/a1rdl/)
 - [[足球]罗蜜第一志愿](https://www.longjiangstone.com/book/a1rb2/)
-- [和前女友的心上人he了](https://www.longjiangstone.com/book/a1mbg/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1284/index.md)

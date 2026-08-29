@@ -1,38 +1,29 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-08-29 03:21:28
+更新时间：2026-08-30 03:22:28
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
 - [读者香书小说](https://www.duzhe888.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.duzhe888.com/book/2koepcq/)
+- [我的烧烤摊超美味[美食]](https://www.duzhe888.com/book/2koepde/)
 - [井闼山经理每天都被挖墙脚](https://www.duzhe888.com/book/2koepbg/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.duzhe888.com/book/2koepal/)
 - [星际团宠小人鱼](https://www.duzhe888.com/book/2koep8p/)
 - [分手后与诱系妻子再度热恋](https://www.duzhe888.com/book/2koep7c/)
+- [他要和我谈恋爱](https://www.duzhe888.com/book/2koep79/)
 - [你，后室管理员](https://www.duzhe888.com/book/2koep6v/)
-- [直男咒术师的限制级游戏](https://www.duzhe888.com/book/2koep4k/)
+- [高调装神，猥琐发育](https://www.duzhe888.com/book/2koep6g/)
 - [纯爱宇智波基本恋爱法](https://www.duzhe888.com/book/2koep3s/)
-- [某柯学的正义伙伴](https://www.duzhe888.com/book/2kobv8u/)
-- [男朋友买一送一](https://www.duzhe888.com/book/2kobkku/)
 - [我有嘉宾](https://www.duzhe888.com/book/2kobft7/)
-- [若清晨所见之蓝](https://www.duzhe888.com/book/8fa187/)
-- [沈助理又在隐藏他的超能力](https://www.duzhe888.com/book/8f9v0q/)
-- [系统不许我摆烂](https://www.duzhe888.com/book/8f9uas/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.duzhe888.com/book/8f9krh/)
-- [[综武侠]有间民宿](https://www.duzhe888.com/book/8f9hqs/)
-- [忍界观察日记](https://www.duzhe888.com/book/8f9br4/)
-- [绿叶](https://www.duzhe888.com/book/8f9bem/)
-- [这谁的沙雕二次元心声！](https://www.duzhe888.com/book/8f94rd/)
+- [漫画路人绑定系统后](https://www.duzhe888.com/book/8f9imb/)
 - [一枝枝怨](https://www.duzhe888.com/book/8f938d/)
 - [老公是松散生命体](https://www.duzhe888.com/book/8f92ac/)
 - [[足球]罗蜜第一志愿](https://www.duzhe888.com/book/8f8nmm/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.duzhe888.com/book/8f8n1t/)
 - [多梦你一会儿](https://www.duzhe888.com/book/8f8mep/)
 - [拯救世界从扮演反派开始](https://www.duzhe888.com/book/8f8kac/)
-- [和前女友的心上人he了](https://www.duzhe888.com/book/8f8fsq/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1321/index.md)

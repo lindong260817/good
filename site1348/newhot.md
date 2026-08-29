@@ -1,44 +1,38 @@
 
 # 看剧文学网 - 书友最值得收藏的小说阅读网
 
-更新时间：2026-08-29 03:25:41
+更新时间：2026-08-30 03:26:45
 
 看剧文学网，精选最好看的小说推荐给大家在线阅读。这里有网络小说大全，包括最火、最热门的小说最新章节，是书友最值得收藏的免费小说阅读网。
 
 - [看剧文学网](https://www.kanju788.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.kanju788.com/book/to4i9i/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kanju788.com/book/to4ico/)
+- [我的烧烤摊超美味[美食]](https://www.kanju788.com/book/to4i9a/)
 - [我有嘉宾](https://www.kanju788.com/book/to4dfb/)
 - [星际团宠小人鱼](https://www.kanju788.com/book/to3jnv/)
 - [分手后与诱系妻子再度热恋](https://www.kanju788.com/book/to3jig/)
 - [你，后室管理员](https://www.kanju788.com/book/to3jeb/)
-- [男朋友买一送一](https://www.kanju788.com/book/to30fq/)
-- [绿叶](https://www.kanju788.com/book/to2l91/)
-- [若清晨所见之蓝](https://www.kanju788.com/book/to2cqs/)
+- [高调装神，猥琐发育](https://www.kanju788.com/book/to3ckd/)
+- [如何正确哄睡暴君](https://www.kanju788.com/book/to2phd/)
+- [被鬼怪宠爱的漂亮书生](https://www.kanju788.com/book/to2b0c/)
 - [老公是松散生命体](https://www.kanju788.com/book/to2a6p/)
-- [沈助理又在隐藏他的超能力](https://www.kanju788.com/book/to28i7/)
 - [微臣怜惜公主](https://www.kanju788.com/book/to2782/)
-- [系统不许我摆烂](https://www.kanju788.com/book/to234i/)
-- [亚当斯与韦恩的适配性](https://www.kanju788.com/book/to1ub0/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.kanju788.com/book/to1mvn/)
+- [他要和我谈恋爱](https://www.kanju788.com/book/to1slu/)
+- [战死的阿爹回来了[年代]](https://www.kanju788.com/book/to1omm/)
+- [漫画路人绑定系统后](https://www.kanju788.com/book/to1o9t/)
 - [多梦你一会儿](https://www.kanju788.com/book/to1mpi/)
-- [[综武侠]有间民宿](https://www.kanju788.com/book/to1ldn/)
-- [这谁的沙雕二次元心声！](https://www.kanju788.com/book/to1lai/)
-- [和前女友的心上人he了](https://www.kanju788.com/book/to1ibc/)
-- [忍界观察日记](https://www.kanju788.com/book/to1hu1/)
+- [[足球]能不能好好模拟游戏](https://www.kanju788.com/book/to1k84/)
 - [[足球]罗蜜第一志愿](https://www.kanju788.com/book/to1ge4/)
-- [某柯学的正义伙伴](https://www.kanju788.com/book/to1elp/)
 - [一枝枝怨](https://www.kanju788.com/book/to1ds2/)
 - [井闼山经理每天都被挖墙脚](https://www.kanju788.com/book/to1dih/)
 - [[足球]小小鸟堂堂来袭](https://www.kanju788.com/book/to12el/)
 - [好兄弟暴富后非要跟我结婚](https://www.kanju788.com/book/to0toh/)
 - [法外狂猫](https://www.kanju788.com/book/to0sb3/)
 - [关于我虚构了一个男友这件事](https://www.kanju788.com/book/to0oig/)
-- [契约情人](https://www.kanju788.com/book/to0o7m/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.kanju788.com/book/tnvcg0/)
+- [和室友他爸恋爱后](https://www.kanju788.com/book/to0imn/)
 - [纯爱宇智波基本恋爱法](https://www.kanju788.com/book/tnvcdv/)
-- [直男咒术师的限制级游戏](https://www.kanju788.com/book/tnvb1d/)
 - [拯救世界从扮演反派开始](https://www.kanju788.com/book/tnvajd/)
 ## 相关内容
 - [README](/README.md)
