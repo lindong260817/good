@@ -1,38 +1,30 @@
 
 # 自由屋 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-08-29 03:41:42
+更新时间：2026-08-30 03:43:04
 
 自由屋文学网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
 - [自由屋](https://www.ziyuhai.com/)
 
 ## 最新小说
+- [阿竹与野桃](https://www.ziyuhai.com/book/84rn572/)
 - [井闼山经理每天都被挖墙脚](https://www.ziyuhai.com/book/84rn56n/)
-- [在千禧年的伦敦当女巫](https://www.ziyuhai.com/book/84rn558/)
+- [我的烧烤摊超美味[美食]](https://www.ziyuhai.com/book/84rn554/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.ziyuhai.com/book/84rn54a/)
+- [他要和我谈恋爱](https://www.ziyuhai.com/book/84rn52u/)
 - [星际团宠小人鱼](https://www.ziyuhai.com/book/84rn52t/)
 - [你，后室管理员](https://www.ziyuhai.com/book/84rn52k/)
 - [分手后与诱系妻子再度热恋](https://www.ziyuhai.com/book/84rn51g/)
+- [高调装神，猥琐发育](https://www.ziyuhai.com/book/84rn50f/)
 - [纯爱宇智波基本恋爱法](https://www.ziyuhai.com/book/84rn4so/)
-- [直男咒术师的限制级游戏](https://www.ziyuhai.com/book/84rn4s3/)
-- [某柯学的正义伙伴](https://www.ziyuhai.com/book/84rkc7d/)
-- [男朋友买一送一](https://www.ziyuhai.com/book/84rk0l8/)
 - [我有嘉宾](https://www.ziyuhai.com/book/84rjs3m/)
-- [若清晨所见之蓝](https://www.ziyuhai.com/book/q2qvcd/)
-- [沈助理又在隐藏他的超能力](https://www.ziyuhai.com/book/q2qrpa/)
-- [系统不许我摆烂](https://www.ziyuhai.com/book/q2qnpb/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.ziyuhai.com/book/q2qdrf/)
-- [[综武侠]有间民宿](https://www.ziyuhai.com/book/q2qb6q/)
-- [忍界观察日记](https://www.ziyuhai.com/book/q2q51o/)
-- [绿叶](https://www.ziyuhai.com/book/q2q36f/)
+- [漫画路人绑定系统后](https://www.ziyuhai.com/book/q2qg3p/)
 - [一枝枝怨](https://www.ziyuhai.com/book/q2puah/)
-- [这谁的沙雕二次元心声！](https://www.ziyuhai.com/book/q2ptab/)
 - [老公是松散生命体](https://www.ziyuhai.com/book/q2pt2v/)
 - [多梦你一会儿](https://www.ziyuhai.com/book/q2pi25/)
 - [[足球]罗蜜第一志愿](https://www.ziyuhai.com/book/q2pfeg/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.ziyuhai.com/book/q2peps/)
 - [拯救世界从扮演反派开始](https://www.ziyuhai.com/book/q2pecm/)
-- [和前女友的心上人he了](https://www.ziyuhai.com/book/q2pc5e/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1278/index.md)

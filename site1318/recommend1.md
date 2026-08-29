@@ -1,15 +1,16 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-08-29 03:33:06
+更新时间：2026-08-30 03:34:15
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
 - [书旗小说网](https://www.shuqi687.com/)
 
 ## 最新小说
+- [发家致富小夫郎](https://www.shuqi687.com/book/8vsmje2/)
 - [井闼山经理每天都被挖墙脚](https://www.shuqi687.com/book/8vsmje1/)
-- [氪金林太郎，我成了无冕之王](https://www.shuqi687.com/book/8vsmjdv/)
+- [氪金游戏，从养成林太郎开始](https://www.shuqi687.com/book/8vsmjdv/)
 - [[足球]顶级名帅](https://www.shuqi687.com/book/8vsmjds/)
 - [渡鬼](https://www.shuqi687.com/book/8vsmjdi/)
 - [深渊if，从染血骑士迪卢克开始[原神]](https://www.shuqi687.com/book/8vsmjdh/)
@@ -43,7 +44,7 @@
 - [炮灰丫鬟靠签到躺赢了](https://www.shuqi687.com/book/8vsmjb8/)
 - [退婚流龙傲天，但未婚夫是我](https://www.shuqi687.com/book/8vsmjb6/)
 - [万人嫌女配深陷修罗场](https://www.shuqi687.com/book/8vsmjb2/)
-- [[排球]游戏角色想和玩家谈恋爱](https://www.shuqi687.com/book/8vsmjb1/)
+- [游戏角色想和玩家谈恋爱](https://www.shuqi687.com/book/8vsmjb1/)
 - [身为人造人的我梦想是成为救世主](https://www.shuqi687.com/book/8vsmjar/)
 - [[三国]清澈，但千古一帝](https://www.shuqi687.com/book/8vsmjaq/)
 - [[综英美]让我统治哥谭！！！](https://www.shuqi687.com/book/8vsmjai/)
@@ -67,8 +68,6 @@
 - [撕碎[刑侦]](https://www.shuqi687.com/book/8vsmj95/)
 - [猫猫也要被魅魔魅惑吗？](https://www.shuqi687.com/book/8vsmj93/)
 - [水管工[GB]](https://www.shuqi687.com/book/8vsmj91/)
-- [软饭，站着吃](https://www.shuqi687.com/book/8vsmj8v/)
-- [夺养媳](https://www.shuqi687.com/book/8vsmj8c/)
 - [星际团宠小人鱼](https://www.shuqi687.com/book/8vsmj8b/)
 - [十九世纪贵族厨房（美食）](https://www.shuqi687.com/book/8vsmj7k/)
 - [九零首富的替嫁小媳妇](https://www.shuqi687.com/book/8vsmj7h/)
@@ -79,13 +78,11 @@
 - [我不是御兽大师](https://www.shuqi687.com/book/8vsmhpl/)
 - [满级大佬制霸热血运动番](https://www.shuqi687.com/book/8vsmhpj/)
 - [六零之成了卷王的妹妹](https://www.shuqi687.com/book/8vsmhpf/)
-- [道长他为何那样](https://www.shuqi687.com/book/8vsmhpc/)
 - [古代种田养娃日常](https://www.shuqi687.com/book/8vslsll/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.shuqi687.com/book/8vslrvp/)
-- [被反派暴君听到心声后[穿书]](https://www.shuqi687.com/book/8vslfaa/)
+- [九零重组小家庭](https://www.shuqi687.com/book/8vsl2f0/)
 - [灭世龙崽有什么错](https://www.shuqi687.com/book/8vskkr8/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shuqi687.com/book/8vskirb/)
-- [无限末日副本：我有移动安全屋](https://www.shuqi687.com/book/8vskbsr/)
 - [我有特殊的升官技巧](https://www.shuqi687.com/book/8vsk5vi/)
 - [御兽师，我打工养你啊](https://www.shuqi687.com/book/8vsk3j2/)
 - [反派人生，易如反掌[快穿]](https://www.shuqi687.com/book/8vsk26p/)
@@ -110,6 +107,7 @@
 - [不当救世主就要当人类恶了吗](https://www.shuqi687.com/book/sparua/)
 - [[全职高手]霸图老板是叶修](https://www.shuqi687.com/book/spaqla/)
 - [枕边热吻](https://www.shuqi687.com/book/spaqks/)
+- [社恐直播鉴宝，但带球跑](https://www.shuqi687.com/book/spaorb/)
 - [误标记隔壁阿姨O之后](https://www.shuqi687.com/book/spam06/)
 - [成为养成系练习生后](https://www.shuqi687.com/book/spal1c/)
 - [假金丝雀深陷修罗场](https://www.shuqi687.com/book/spakm6/)
@@ -124,7 +122,6 @@
 - [我，恶女，在线搞事](https://www.shuqi687.com/book/spa04p/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.shuqi687.com/book/sp9vhl/)
 - [老婆是恋爱脑女配](https://www.shuqi687.com/book/sp9v9s/)
-- [星露谷，但大秦帝国](https://www.shuqi687.com/book/sp9rh7/)
 - [漫画配角的不平凡日常](https://www.shuqi687.com/book/sp9rgj/)
 - [龙傲天他解锁宠妻系统](https://www.shuqi687.com/book/sp9r80/)
 - [人在虫族，写文爆红](https://www.shuqi687.com/book/sp9qst/)
@@ -140,7 +137,6 @@
 - [直男误入攻略天龙人游戏](https://www.shuqi687.com/book/sp9g61/)
 - [兽世种田撸狼首领](https://www.shuqi687.com/book/sp9emp/)
 - [[综港影]野生情人出没地](https://www.shuqi687.com/book/sp9dk9/)
-- [娶了女装心机太子](https://www.shuqi687.com/book/sp9cqv/)
 - [穿越废星，我靠种田求生](https://www.shuqi687.com/book/sp9c7j/)
 - [迟晚](https://www.shuqi687.com/book/sp98ov/)
 - [八零恶毒后妈杀疯了](https://www.shuqi687.com/book/sp98i2/)
@@ -153,6 +149,7 @@
 - [在民俗惊悚片被诸神庇护](https://www.shuqi687.com/book/sp93he/)
 - [悟咪观察笔记](https://www.shuqi687.com/book/sp93b5/)
 - [今天在伟大航路抽到SSR了吗](https://www.shuqi687.com/book/sp930v/)
+- [恶犬攻绑定上司的乖狗系统](https://www.shuqi687.com/book/sp92ls/)
 - [萩原警官的咒术大冒险](https://www.shuqi687.com/book/sp929d/)
 - [我真的没想在选秀炒CP](https://www.shuqi687.com/book/sp91kq/)
 - [绿茶病秧子骗他说喜欢](https://www.shuqi687.com/book/sp91em/)
@@ -164,9 +161,7 @@
 - [警察，但犯罪大师系统[刑侦]](https://www.shuqi687.com/book/2s42sj/)
 - [[娱乐圈]过分美丽的她](https://www.shuqi687.com/book/2s42m9/)
 - [我有一座安全城](https://www.shuqi687.com/book/2s42km/)
-- [穿到反派落魄时](https://www.shuqi687.com/book/2s428o/)
 - [卧底后被港岛大小姐缠上了](https://www.shuqi687.com/book/2s427t/)
-- [我真不是算命的！[香江]](https://www.shuqi687.com/book/2s41si/)
 - [95美国贵族高中模拟](https://www.shuqi687.com/book/2s41pu/)
 - [当恶女捡回高岭之花](https://www.shuqi687.com/book/2s41pj/)
 - [五十年代港城日常](https://www.shuqi687.com/book/2s41j6/)

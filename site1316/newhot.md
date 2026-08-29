@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-08-29 03:19:53
+更新时间：2026-08-30 03:20:53
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -9,30 +9,21 @@
 
 ## 最新小说
 - [井闼山经理每天都被挖墙脚](https://www.chuangyi1687.com/book/1hvgouu/)
-- [在千禧年的伦敦当女巫](https://www.chuangyi1687.com/book/1hvgosd/)
+- [我的烧烤摊超美味[美食]](https://www.chuangyi1687.com/book/1hvgord/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.chuangyi1687.com/book/1hvgor5/)
 - [分手后与诱系妻子再度热恋](https://www.chuangyi1687.com/book/1hvgoqh/)
 - [星际团宠小人鱼](https://www.chuangyi1687.com/book/1hvgopt/)
 - [你，后室管理员](https://www.chuangyi1687.com/book/1hvgop8/)
+- [他要和我谈恋爱](https://www.chuangyi1687.com/book/1hvgop7/)
+- [高调装神，猥琐发育](https://www.chuangyi1687.com/book/1hvgooe/)
 - [纯爱宇智波基本恋爱法](https://www.chuangyi1687.com/book/1hvgojv/)
-- [直男咒术师的限制级游戏](https://www.chuangyi1687.com/book/1hvgojn/)
-- [某柯学的正义伙伴](https://www.chuangyi1687.com/book/1hve06a/)
-- [男朋友买一送一](https://www.chuangyi1687.com/book/1hvdjlf/)
 - [我有嘉宾](https://www.chuangyi1687.com/book/1hvdfa8/)
-- [若清晨所见之蓝](https://www.chuangyi1687.com/book/500nm1/)
-- [沈助理又在隐藏他的超能力](https://www.chuangyi1687.com/book/500j2q/)
-- [系统不许我摆烂](https://www.chuangyi1687.com/book/500fl8/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.chuangyi1687.com/book/5009b5/)
-- [[综武侠]有间民宿](https://www.chuangyi1687.com/book/50035v/)
-- [忍界观察日记](https://www.chuangyi1687.com/book/4vvu7b/)
-- [绿叶](https://www.chuangyi1687.com/book/4vvt09/)
+- [漫画路人绑定系统后](https://www.chuangyi1687.com/book/5008cq/)
 - [一枝枝怨](https://www.chuangyi1687.com/book/4vvn1b/)
-- [这谁的沙雕二次元心声！](https://www.chuangyi1687.com/book/4vvm7l/)
 - [老公是松散生命体](https://www.chuangyi1687.com/book/4vvljq/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.chuangyi1687.com/book/4vvaqt/)
 - [多梦你一会儿](https://www.chuangyi1687.com/book/4vvakb/)
 - [[足球]罗蜜第一志愿](https://www.chuangyi1687.com/book/4vv7ka/)
 - [拯救世界从扮演反派开始](https://www.chuangyi1687.com/book/4vv7fs/)
-- [和前女友的心上人he了](https://www.chuangyi1687.com/book/4vv2v2/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1316/index.md)

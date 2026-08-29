@@ -1,38 +1,29 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-08-29 03:31:20
+更新时间：2026-08-30 03:32:27
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
 - [七步阁](https://www.revwarny.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.revwarny.com/book/3sgl7pu/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.revwarny.com/book/3sgl7p5/)
+- [我的烧烤摊超美味[美食]](https://www.revwarny.com/book/3sgl7m6/)
 - [井闼山经理每天都被挖墙脚](https://www.revwarny.com/book/3sgl7m2/)
 - [星际团宠小人鱼](https://www.revwarny.com/book/3sgl7kn/)
 - [分手后与诱系妻子再度热恋](https://www.revwarny.com/book/3sgl7js/)
 - [你，后室管理员](https://www.revwarny.com/book/3sgl7j5/)
-- [直男咒术师的限制级游戏](https://www.revwarny.com/book/3sgl7hr/)
+- [他要和我谈恋爱](https://www.revwarny.com/book/3sgl7it/)
+- [高调装神，猥琐发育](https://www.revwarny.com/book/3sgl7ih/)
 - [纯爱宇智波基本恋爱法](https://www.revwarny.com/book/3sgl7go/)
-- [某柯学的正义伙伴](https://www.revwarny.com/book/3sgiemk/)
-- [男朋友买一送一](https://www.revwarny.com/book/3sgi3a9/)
 - [我有嘉宾](https://www.revwarny.com/book/3sghtti/)
-- [若清晨所见之蓝](https://www.revwarny.com/book/ceh3ld/)
-- [系统不许我摆烂](https://www.revwarny.com/book/ceh253/)
-- [沈助理又在隐藏他的超能力](https://www.revwarny.com/book/ceh0li/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.revwarny.com/book/cegmq9/)
-- [[综武侠]有间民宿](https://www.revwarny.com/book/ceggj0/)
-- [忍界观察日记](https://www.revwarny.com/book/cegcof/)
-- [绿叶](https://www.revwarny.com/book/ceg9le/)
+- [漫画路人绑定系统后](https://www.revwarny.com/book/cegn6s/)
 - [一枝枝怨](https://www.revwarny.com/book/ceg4qj/)
 - [老公是松散生命体](https://www.revwarny.com/book/ceg48f/)
-- [这谁的沙雕二次元心声！](https://www.revwarny.com/book/ceg3rf/)
 - [多梦你一会儿](https://www.revwarny.com/book/cefnl1/)
 - [[足球]罗蜜第一志愿](https://www.revwarny.com/book/cefn53/)
 - [拯救世界从扮演反派开始](https://www.revwarny.com/book/cefn31/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.revwarny.com/book/cefl93/)
-- [和前女友的心上人he了](https://www.revwarny.com/book/cefj2g/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1302/index.md)

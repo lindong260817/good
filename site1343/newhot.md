@@ -1,40 +1,34 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-08-29 03:29:50
+更新时间：2026-08-30 03:30:57
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。
 
 - [左叶小说网](https://www.pusytgp.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.pusytgp.com/book/7pbouei/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.pusytgp.com/book/7pbouif/)
+- [我的烧烤摊超美味[美食]](https://www.pusytgp.com/book/7pboui3/)
 - [我有嘉宾](https://www.pusytgp.com/book/7pbojan/)
 - [星际团宠小人鱼](https://www.pusytgp.com/book/7pboe9n/)
 - [分手后与诱系妻子再度热恋](https://www.pusytgp.com/book/7pboe8v/)
 - [你，后室管理员](https://www.pusytgp.com/book/7pboe7m/)
-- [男朋友买一送一](https://www.pusytgp.com/book/7pbn3di/)
-- [直男咒术师的限制级游戏](https://www.pusytgp.com/book/7pbmr4e/)
-- [绿叶](https://www.pusytgp.com/book/7pbmfch/)
-- [若清晨所见之蓝](https://www.pusytgp.com/book/7pbmck4/)
-- [沈助理又在隐藏他的超能力](https://www.pusytgp.com/book/7pbm95b/)
-- [系统不许我摆烂](https://www.pusytgp.com/book/7pbm55e/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.pusytgp.com/book/7pblqd5/)
-- [[综武侠]有间民宿](https://www.pusytgp.com/book/7pblmok/)
+- [高调装神，猥琐发育](https://www.pusytgp.com/book/7pbn366/)
+- [如何正确哄睡暴君](https://www.pusytgp.com/book/7pbmkpg/)
+- [漫画路人绑定系统后](https://www.pusytgp.com/book/7pbloie/)
+- [被鬼怪宠爱的漂亮书生](https://www.pusytgp.com/book/7pblmrr/)
 - [微臣怜惜公主](https://www.pusytgp.com/book/7pblm8r/)
+- [他要和我谈恋爱](https://www.pusytgp.com/book/7pbllof/)
 - [多梦你一会儿](https://www.pusytgp.com/book/7pblljm/)
-- [忍界观察日记](https://www.pusytgp.com/book/7pblkhi/)
+- [[足球]能不能好好模拟游戏](https://www.pusytgp.com/book/7pblkcp/)
 - [拯救世界从扮演反派开始](https://www.pusytgp.com/book/7pbljon/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.pusytgp.com/book/7pbljlu/)
-- [和前女友的心上人he了](https://www.pusytgp.com/book/7pblhol/)
-- [这谁的沙雕二次元心声！](https://www.pusytgp.com/book/7pblhka/)
-- [亚当斯与韦恩的适配性](https://www.pusytgp.com/book/7pblfad/)
-- [某柯学的正义伙伴](https://www.pusytgp.com/book/7pblc0i/)
 - [纯爱宇智波基本恋爱法](https://www.pusytgp.com/book/7pblbln/)
 - [老公是松散生命体](https://www.pusytgp.com/book/7pblagb/)
 - [一枝枝怨](https://www.pusytgp.com/book/7pblaa9/)
 - [[足球]罗蜜第一志愿](https://www.pusytgp.com/book/7pbl90o/)
 - [井闼山经理每天都被挖墙脚](https://www.pusytgp.com/book/7pbl5vo/)
+- [战死的阿爹回来了[年代]](https://www.pusytgp.com/book/7pbl0of/)
 - [关于我虚构了一个男友这件事](https://www.pusytgp.com/book/7pbkpie/)
 - [好兄弟暴富后非要跟我结婚](https://www.pusytgp.com/book/7pbko4m/)
 ## 相关内容
