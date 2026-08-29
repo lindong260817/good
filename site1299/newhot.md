@@ -1,38 +1,29 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-29 03:37:11
+更新时间：2026-08-30 03:38:25
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
 - [速阅阁小说网](https://www.wsfsx.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.wsfsx.com/book/5ts29b7/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wsfsx.com/book/5ts2992/)
 - [井闼山经理每天都被挖墙脚](https://www.wsfsx.com/book/5ts297i/)
+- [我的烧烤摊超美味[美食]](https://www.wsfsx.com/book/5ts297g/)
 - [分手后与诱系妻子再度热恋](https://www.wsfsx.com/book/5ts296b/)
 - [星际团宠小人鱼](https://www.wsfsx.com/book/5ts2955/)
 - [你，后室管理员](https://www.wsfsx.com/book/5ts2951/)
+- [他要和我谈恋爱](https://www.wsfsx.com/book/5ts294j/)
+- [高调装神，猥琐发育](https://www.wsfsx.com/book/5ts294e/)
 - [纯爱宇智波基本恋爱法](https://www.wsfsx.com/book/5ts2945/)
-- [直男咒术师的限制级游戏](https://www.wsfsx.com/book/5ts291p/)
-- [某柯学的正义伙伴](https://www.wsfsx.com/book/5trvebu/)
-- [男朋友买一送一](https://www.wsfsx.com/book/5trv6g0/)
 - [我有嘉宾](https://www.wsfsx.com/book/5trv00k/)
-- [若清晨所见之蓝](https://www.wsfsx.com/book/ivljpj/)
-- [沈助理又在隐藏他的超能力](https://www.wsfsx.com/book/ivli57/)
-- [系统不许我摆烂](https://www.wsfsx.com/book/ivlgbs/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.wsfsx.com/book/ivl5sk/)
-- [[综武侠]有间民宿](https://www.wsfsx.com/book/ivl1ep/)
-- [绿叶](https://www.wsfsx.com/book/ivkt44/)
-- [忍界观察日记](https://www.wsfsx.com/book/ivks16/)
-- [这谁的沙雕二次元心声！](https://www.wsfsx.com/book/ivkmp2/)
+- [漫画路人绑定系统后](https://www.wsfsx.com/book/ivl6mv/)
 - [老公是松散生命体](https://www.wsfsx.com/book/ivkk58/)
 - [一枝枝怨](https://www.wsfsx.com/book/ivkjnn/)
 - [多梦你一会儿](https://www.wsfsx.com/book/ivk99v/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.wsfsx.com/book/ivk896/)
 - [拯救世界从扮演反派开始](https://www.wsfsx.com/book/ivk6la/)
 - [[足球]罗蜜第一志愿](https://www.wsfsx.com/book/ivk65b/)
-- [和前女友的心上人he了](https://www.wsfsx.com/book/ivk2gi/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1299/index.md)

@@ -1,45 +1,39 @@
 
 # 落秋文学网 - 免费全本小说阅读,最新章节更新,无弹窗广告
 
-更新时间：2026-08-29 03:36:27
+更新时间：2026-08-30 03:37:41
 
 落秋文学网提供最快最新的网络小说更新服务，推荐最好看的网络小说排行榜。全站支持无弹窗广告阅读体验，全本小说均可免费在线阅读。
 
 - [落秋文学网](https://www.wenxue868.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.wenxue868.com/book/rlcal4/)
+- [我的烧烤摊超美味[美食]](https://www.wenxue868.com/book/rlcamj/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wenxue868.com/book/rlcaks/)
 - [我有嘉宾](https://www.wenxue868.com/book/rlc62r/)
 - [星际团宠小人鱼](https://www.wenxue868.com/book/rlbbgl/)
 - [你，后室管理员](https://www.wenxue868.com/book/rlbbca/)
 - [分手后与诱系妻子再度热恋](https://www.wenxue868.com/book/rlbb85/)
-- [男朋友买一送一](https://www.wenxue868.com/book/rlaqj7/)
-- [绿叶](https://www.wenxue868.com/book/rladdj/)
-- [若清晨所见之蓝](https://www.wenxue868.com/book/rla5on/)
-- [沈助理又在隐藏他的超能力](https://www.wenxue868.com/book/rla3a1/)
+- [高调装神，猥琐发育](https://www.wenxue868.com/book/rlb4cb/)
+- [如何正确哄睡暴君](https://www.wenxue868.com/book/rlahgo/)
 - [老公是松散生命体](https://www.wenxue868.com/book/rla1v9/)
+- [被鬼怪宠爱的漂亮书生](https://www.wenxue868.com/book/rla1jg/)
 - [微臣怜惜公主](https://www.wenxue868.com/book/rl9ub5/)
-- [系统不许我摆烂](https://www.wenxue868.com/book/rl9sfe/)
-- [亚当斯与韦恩的适配性](https://www.wenxue868.com/book/rl9mmf/)
+- [他要和我谈恋爱](https://www.wenxue868.com/book/rl9mro/)
 - [多梦你一会儿](https://www.wenxue868.com/book/rl9hit/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.wenxue868.com/book/rl9g4h/)
-- [[综武侠]有间民宿](https://www.wenxue868.com/book/rl9ema/)
-- [这谁的沙雕二次元心声！](https://www.wenxue868.com/book/rl9dvb/)
-- [忍界观察日记](https://www.wenxue868.com/book/rl9an4/)
-- [和前女友的心上人he了](https://www.wenxue868.com/book/rl9a9h/)
+- [漫画路人绑定系统后](https://www.wenxue868.com/book/rl9ham/)
+- [战死的阿爹回来了[年代]](https://www.wenxue868.com/book/rl9g4r/)
+- [[足球]能不能好好模拟游戏](https://www.wenxue868.com/book/rl9edj/)
 - [[足球]罗蜜第一志愿](https://www.wenxue868.com/book/rl99b5/)
-- [某柯学的正义伙伴](https://www.wenxue868.com/book/rl9728/)
 - [井闼山经理每天都被挖墙脚](https://www.wenxue868.com/book/rl95pe/)
 - [一枝枝怨](https://www.wenxue868.com/book/rl95dr/)
 - [[足球]小小鸟堂堂来袭](https://www.wenxue868.com/book/rl8t64/)
 - [法外狂猫](https://www.wenxue868.com/book/rl8nmh/)
 - [好兄弟暴富后非要跟我结婚](https://www.wenxue868.com/book/rl8m2e/)
-- [契约情人](https://www.wenxue868.com/book/rl8k5r/)
 - [关于我虚构了一个男友这件事](https://www.wenxue868.com/book/rl8icv/)
-- [直男咒术师的限制级游戏](https://www.wenxue868.com/book/rl7471/)
+- [和室友他爸恋爱后](https://www.wenxue868.com/book/rl89vo/)
 - [纯爱宇智波基本恋爱法](https://www.wenxue868.com/book/rl73ni/)
 - [拯救世界从扮演反派开始](https://www.wenxue868.com/book/rl73f0/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.wenxue868.com/book/rl7308/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1372/index.md)

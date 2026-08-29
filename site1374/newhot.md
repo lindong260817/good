@@ -1,43 +1,37 @@
 
 # 看居中文网_免费小说在线阅读|无弹窗广告值得收藏
 
-更新时间：2026-08-29 03:25:26
+更新时间：2026-08-30 03:26:30
 
 看居中文网是最热门的免费小说网站，提供包括但不限于玄幻、都市、言情等多种类型的小说在线阅读服务。本站实时更新小说最新章节列表，拥有全面的小说排行榜，致力于为读者提供一个干净舒适的阅读环境，无弹窗广告干扰，是您寻找好书的理想之地。
 
 - [看居中文网](https://www.kanju688.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.kanju688.com/book/pavusr/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kanju688.com/book/pavur9/)
+- [我的烧烤摊超美味[美食]](https://www.kanju688.com/book/pavupj/)
 - [我有嘉宾](https://www.kanju688.com/book/pavq5g/)
 - [你，后室管理员](https://www.kanju688.com/book/pauvl4/)
 - [分手后与诱系妻子再度热恋](https://www.kanju688.com/book/pauvjr/)
 - [星际团宠小人鱼](https://www.kanju688.com/book/pauvdd/)
-- [男朋友买一送一](https://www.kanju688.com/book/paucm1/)
-- [绿叶](https://www.kanju688.com/book/pau2e5/)
-- [若清晨所见之蓝](https://www.kanju688.com/book/patpv2/)
+- [高调装神，猥琐发育](https://www.kanju688.com/book/pauoa8/)
+- [如何正确哄睡暴君](https://www.kanju688.com/book/pau5rb/)
+- [被鬼怪宠爱的漂亮书生](https://www.kanju688.com/book/patnqs/)
 - [老公是松散生命体](https://www.kanju688.com/book/patn3r/)
-- [沈助理又在隐藏他的超能力](https://www.kanju688.com/book/patm0j/)
 - [微臣怜惜公主](https://www.kanju688.com/book/patk2j/)
-- [系统不许我摆烂](https://www.kanju688.com/book/path4s/)
-- [亚当斯与韦恩的适配性](https://www.kanju688.com/book/pat9nd/)
+- [他要和我谈恋爱](https://www.kanju688.com/book/pat9rr/)
+- [战死的阿爹回来了[年代]](https://www.kanju688.com/book/pat64k/)
+- [漫画路人绑定系统后](https://www.kanju688.com/book/pat5m9/)
 - [多梦你一会儿](https://www.kanju688.com/book/pat4e6/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.kanju688.com/book/pat3uv/)
-- [这谁的沙雕二次元心声！](https://www.kanju688.com/book/pat2jo/)
-- [[综武侠]有间民宿](https://www.kanju688.com/book/pat24p/)
-- [和前女友的心上人he了](https://www.kanju688.com/book/pasvs0/)
-- [忍界观察日记](https://www.kanju688.com/book/pastrc/)
+- [[足球]能不能好好模拟游戏](https://www.kanju688.com/book/pat3cn/)
 - [[足球]罗蜜第一志愿](https://www.kanju688.com/book/passkf/)
-- [某柯学的正义伙伴](https://www.kanju688.com/book/pasr9i/)
 - [井闼山经理每天都被挖墙脚](https://www.kanju688.com/book/pasqn0/)
 - [一枝枝怨](https://www.kanju688.com/book/pasqlv/)
 - [[足球]小小鸟堂堂来袭](https://www.kanju688.com/book/pasfg0/)
 - [好兄弟暴富后非要跟我结婚](https://www.kanju688.com/book/pasbtr/)
 - [法外狂猫](https://www.kanju688.com/book/pasakb/)
-- [契约情人](https://www.kanju688.com/book/pas8cf/)
 - [关于我虚构了一个男友这件事](https://www.kanju688.com/book/pas7lf/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.kanju688.com/book/paqpe7/)
-- [直男咒术师的限制级游戏](https://www.kanju688.com/book/paqpcv/)
+- [和室友他爸恋爱后](https://www.kanju688.com/book/parutg/)
 - [纯爱宇智波基本恋爱法](https://www.kanju688.com/book/paqose/)
 - [拯救世界从扮演反派开始](https://www.kanju688.com/book/paqojc/)
 ## 相关内容

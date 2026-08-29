@@ -1,33 +1,29 @@
 
 # 书香小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-29 03:33:53
+更新时间：2026-08-30 03:35:02
 
 书香小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
 - [书香小说网](https://www.shuxiang368.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.shuxiang368.com/book/3qknrc4/)
+- [我的烧烤摊超美味[美食]](https://www.shuxiang368.com/book/3qknrek/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shuxiang368.com/book/3qknrcl/)
 - [我有嘉宾](https://www.shuxiang368.com/book/3qknmpj/)
 - [你，后室管理员](https://www.shuxiang368.com/book/3qkms4i/)
 - [分手后与诱系妻子再度热恋](https://www.shuxiang368.com/book/3qkms2v/)
 - [星际团宠小人鱼](https://www.shuxiang368.com/book/3qkms1p/)
-- [男朋友买一送一](https://www.shuxiang368.com/book/3qkm9jh/)
-- [绿叶](https://www.shuxiang368.com/book/3qklufv/)
-- [若清晨所见之蓝](https://www.shuxiang368.com/book/3qkllrh/)
-- [沈助理又在隐藏他的超能力](https://www.shuxiang368.com/book/3qklitk/)
+- [高调装神，猥琐发育](https://www.shuxiang368.com/book/3qkmkum/)
+- [如何正确哄睡暴君](https://www.shuxiang368.com/book/3qkm1s1/)
+- [被鬼怪宠爱的漂亮书生](https://www.shuxiang368.com/book/3qklj3n/)
 - [老公是松散生命体](https://www.shuxiang368.com/book/3qklhtf/)
 - [微臣怜惜公主](https://www.shuxiang368.com/book/3qklgrh/)
-- [系统不许我摆烂](https://www.shuxiang368.com/book/3qklc44/)
-- [亚当斯与韦恩的适配性](https://www.shuxiang368.com/book/3qkl74u/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.shuxiang368.com/book/3qkl30m/)
+- [他要和我谈恋爱](https://www.shuxiang368.com/book/3qkl63f/)
 - [多梦你一会儿](https://www.shuxiang368.com/book/3qkl1ec/)
-- [这谁的沙雕二次元心声！](https://www.shuxiang368.com/book/3qkkvar/)
-- [[综武侠]有间民宿](https://www.shuxiang368.com/book/3qkku6r/)
-- [和前女友的心上人he了](https://www.shuxiang368.com/book/3qkksd6/)
-- [忍界观察日记](https://www.shuxiang368.com/book/3qkkr9c/)
-- [某柯学的正义伙伴](https://www.shuxiang368.com/book/3qkknt4/)
+- [漫画路人绑定系统后](https://www.shuxiang368.com/book/3qkl1c5/)
+- [战死的阿爹回来了[年代]](https://www.shuxiang368.com/book/3qkl158/)
+- [[足球]能不能好好模拟游戏](https://www.shuxiang368.com/book/3qkkuqd/)
 - [[足球]罗蜜第一志愿](https://www.shuxiang368.com/book/3qkkns0/)
 - [一枝枝怨](https://www.shuxiang368.com/book/3qkkn1k/)
 - [井闼山经理每天都被挖墙脚](https://www.shuxiang368.com/book/3qkklfa/)
@@ -35,11 +31,9 @@
 - [法外狂猫](https://www.shuxiang368.com/book/3qkk8dh/)
 - [好兄弟暴富后非要跟我结婚](https://www.shuxiang368.com/book/3qkk6rf/)
 - [关于我虚构了一个男友这件事](https://www.shuxiang368.com/book/3qkk528/)
-- [契约情人](https://www.shuxiang368.com/book/3qkk44t/)
+- [和室友他爸恋爱后](https://www.shuxiang368.com/book/3qkjqap/)
 - [拯救世界从扮演反派开始](https://www.shuxiang368.com/book/3qkimo1/)
-- [直男咒术师的限制级游戏](https://www.shuxiang368.com/book/3qkilev/)
 - [纯爱宇智波基本恋爱法](https://www.shuxiang368.com/book/3qkil3u/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.shuxiang368.com/book/3qkikrn/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1357/index.md)

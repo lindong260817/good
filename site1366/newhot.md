@@ -1,33 +1,29 @@
 
 # 科幻188文学网-最新章节全文小说免费阅读
 
-更新时间：2026-08-29 03:26:12
+更新时间：2026-08-30 03:27:18
 
 科幻188文学网给广大网友提供最好的小说阅读服务，全站小说均可免费阅读且无任何弹窗干扰。这里是你寻找最新最全小说内容的理想之地。
 
 - [科幻188文学网](https://www.kehuan188.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.kehuan188.com/book/56q2su3/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kehuan188.com/book/56q2t1j/)
+- [我的烧烤摊超美味[美食]](https://www.kehuan188.com/book/56q2t12/)
 - [我有嘉宾](https://www.kehuan188.com/book/56q2ocv/)
 - [你，后室管理员](https://www.kehuan188.com/book/56q1tro/)
 - [星际团宠小人鱼](https://www.kehuan188.com/book/56q1tri/)
 - [分手后与诱系妻子再度热恋](https://www.kehuan188.com/book/56q1tic/)
-- [男朋友买一送一](https://www.kehuan188.com/book/56q1aq7/)
-- [绿叶](https://www.kehuan188.com/book/56q11mt/)
-- [若清晨所见之蓝](https://www.kehuan188.com/book/56q0me5/)
+- [高调装神，猥琐发育](https://www.kehuan188.com/book/56q1mkc/)
+- [如何正确哄睡暴君](https://www.kehuan188.com/book/56q133p/)
 - [老公是松散生命体](https://www.kehuan188.com/book/56q0ka3/)
-- [沈助理又在隐藏他的超能力](https://www.kehuan188.com/book/56q0k6r/)
+- [被鬼怪宠爱的漂亮书生](https://www.kehuan188.com/book/56q0jqb/)
 - [微臣怜惜公主](https://www.kehuan188.com/book/56q0h2s/)
-- [系统不许我摆烂](https://www.kehuan188.com/book/56q0ftn/)
-- [亚当斯与韦恩的适配性](https://www.kehuan188.com/book/56q087f/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.kehuan188.com/book/56q04g9/)
+- [他要和我谈恋爱](https://www.kehuan188.com/book/56q09oq/)
+- [漫画路人绑定系统后](https://www.kehuan188.com/book/56q02qq/)
 - [多梦你一会儿](https://www.kehuan188.com/book/56q02oo/)
-- [这谁的沙雕二次元心声！](https://www.kehuan188.com/book/56q010e/)
-- [[综武侠]有间民宿](https://www.kehuan188.com/book/56pvv3o/)
-- [忍界观察日记](https://www.kehuan188.com/book/56pvu95/)
-- [和前女友的心上人he了](https://www.kehuan188.com/book/56pvshv/)
-- [某柯学的正义伙伴](https://www.kehuan188.com/book/56pvrh3/)
+- [战死的阿爹回来了[年代]](https://www.kehuan188.com/book/56q02h0/)
+- [[足球]能不能好好模拟游戏](https://www.kehuan188.com/book/56q01ci/)
 - [[足球]罗蜜第一志愿](https://www.kehuan188.com/book/56pvr6l/)
 - [井闼山经理每天都被挖墙脚](https://www.kehuan188.com/book/56pvoqq/)
 - [一枝枝怨](https://www.kehuan188.com/book/56pvm23/)
@@ -35,10 +31,8 @@
 - [法外狂猫](https://www.kehuan188.com/book/56pv9vd/)
 - [好兄弟暴富后非要跟我结婚](https://www.kehuan188.com/book/56pv7vp/)
 - [关于我虚构了一个男友这件事](https://www.kehuan188.com/book/56pv5vl/)
-- [契约情人](https://www.kehuan188.com/book/56pv4o7/)
-- [直男咒术师的限制级游戏](https://www.kehuan188.com/book/56ptnln/)
+- [和室友他爸恋爱后](https://www.kehuan188.com/book/56pusje/)
 - [纯爱宇智波基本恋爱法](https://www.kehuan188.com/book/56ptnb6/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.kehuan188.com/book/56ptmf6/)
 - [拯救世界从扮演反派开始](https://www.kehuan188.com/book/56ptm1s/)
 ## 相关内容
 - [README](/README.md)
