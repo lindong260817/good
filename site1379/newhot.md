@@ -1,44 +1,42 @@
 
 # 云南野人山野小说网 - 创意小说与文学作品分享平台
 
-更新时间：2026-08-29 03:39:51
+更新时间：2026-08-30 03:41:12
 
 欢迎来到云南野人山野小说网 - 专注于创意小说和文学作品分享的在线平台。探索精选的小说系列及文学佳作，加入我们，与众多才华横溢的作者交流心得，共同创造美好的阅读旅程。
 
 - [云南野人山野小说网](https://www.ynyrsy.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.ynyrsy.com/book/dfdhne/)
-- [男朋友买一送一](https://www.ynyrsy.com/book/dfcek2/)
-- [绿叶](https://www.ynyrsy.com/book/dfc92d/)
-- [亚当斯与韦恩的适配性](https://www.ynyrsy.com/book/dfc2gl/)
-- [若清晨所见之蓝](https://www.ynyrsy.com/book/dfbs6u/)
+- [我有嘉宾](https://www.ynyrsy.com/book/dfdohb/)
+- [阿竹与野桃](https://www.ynyrsy.com/book/dfdhr3/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.ynyrsy.com/book/dfdhmj/)
+- [我的烧烤摊超美味[美食]](https://www.ynyrsy.com/book/dfdhkb/)
+- [被鬼怪宠爱的漂亮书生](https://www.ynyrsy.com/book/dfc4t5/)
+- [如何正确哄睡暴君](https://www.ynyrsy.com/book/dfc4sb/)
 - [老公是松散生命体](https://www.ynyrsy.com/book/dfbru3/)
 - [微臣怜惜公主](https://www.ynyrsy.com/book/dfbolh/)
-- [沈助理又在隐藏他的超能力](https://www.ynyrsy.com/book/dfbmng/)
-- [系统不许我摆烂](https://www.ynyrsy.com/book/dfbh7o/)
-- [直男咒术师的限制级游戏](https://www.ynyrsy.com/book/dfbdc1/)
+- [战死的阿爹回来了[年代]](https://www.ynyrsy.com/book/dfbdch/)
 - [多梦你一会儿](https://www.ynyrsy.com/book/dfb8r8/)
 - [穿为清冷影后的污点A](https://www.ynyrsy.com/book/dfb814/)
-- [这谁的沙雕二次元心声！](https://www.ynyrsy.com/book/dfb6nf/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.ynyrsy.com/book/dfb66p/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.ynyrsy.com/book/dfb45s/)
+- [[足球]能不能好好模拟游戏](https://www.ynyrsy.com/book/dfb6cv/)
+- [漫画路人绑定系统后](https://www.ynyrsy.com/book/dfb5ua/)
 - [井闼山经理每天都被挖墙脚](https://www.ynyrsy.com/book/dfb3f6/)
-- [忍界观察日记](https://www.ynyrsy.com/book/dfb2us/)
-- [[综武侠]有间民宿](https://www.ynyrsy.com/book/dfb220/)
 - [拯救世界从扮演反派开始](https://www.ynyrsy.com/book/dfb1ak/)
-- [和前女友的心上人he了](https://www.ynyrsy.com/book/dfb11h/)
 - [[足球]罗蜜第一志愿](https://www.ynyrsy.com/book/dfb0lp/)
-- [某柯学的正义伙伴](https://www.ynyrsy.com/book/dfats8/)
 - [一枝枝怨](https://www.ynyrsy.com/book/dfas1h/)
-- [契约情人](https://www.ynyrsy.com/book/dfan3c/)
+- [撕毁女配剧本的我被神之子读心了](https://www.ynyrsy.com/book/dfanrk/)
 - [[足球]小小鸟堂堂来袭](https://www.ynyrsy.com/book/dfamv4/)
 - [法外狂猫](https://www.ynyrsy.com/book/dfak0o/)
 - [好兄弟暴富后非要跟我结婚](https://www.ynyrsy.com/book/dfagl7/)
 - [关于我虚构了一个男友这件事](https://www.ynyrsy.com/book/dfaddr/)
+- [和室友他爸恋爱后](https://www.ynyrsy.com/book/dfacgp/)
+- [人偶游戏](https://www.ynyrsy.com/book/dfa9gh/)
 - [你，后室管理员](https://www.ynyrsy.com/book/df8q1k/)
 - [纯爱宇智波基本恋爱法](https://www.ynyrsy.com/book/df8p9l/)
 - [星际团宠小人鱼](https://www.ynyrsy.com/book/df8otm/)
+- [他要和我谈恋爱](https://www.ynyrsy.com/book/df8osg/)
+- [高调装神，猥琐发育](https://www.ynyrsy.com/book/df8olq/)
 - [分手后与诱系妻子再度热恋](https://www.ynyrsy.com/book/df8nf4/)
 ## 相关内容
 - [README](/README.md)

@@ -1,38 +1,29 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-08-29 03:26:57
+更新时间：2026-08-30 03:28:02
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
 - [笔趣屋](https://www.kmjike.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.kmjike.com/book/4mlvljs/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kmjike.com/book/4mlvlll/)
+- [我的烧烤摊超美味[美食]](https://www.kmjike.com/book/4mlvlkc/)
 - [井闼山经理每天都被挖墙脚](https://www.kmjike.com/book/4mlvli6/)
 - [分手后与诱系妻子再度热恋](https://www.kmjike.com/book/4mlvlgj/)
 - [星际团宠小人鱼](https://www.kmjike.com/book/4mlvlgg/)
+- [他要和我谈恋爱](https://www.kmjike.com/book/4mlvlg1/)
 - [你，后室管理员](https://www.kmjike.com/book/4mlvlep/)
+- [高调装神，猥琐发育](https://www.kmjike.com/book/4mlvlef/)
 - [纯爱宇智波基本恋爱法](https://www.kmjike.com/book/4mlvlde/)
-- [直男咒术师的限制级游戏](https://www.kmjike.com/book/4mlvld8/)
-- [某柯学的正义伙伴](https://www.kmjike.com/book/4mlsscs/)
-- [男朋友买一送一](https://www.kmjike.com/book/4mlshpc/)
 - [我有嘉宾](https://www.kmjike.com/book/4mlsbre/)
-- [若清晨所见之蓝](https://www.kmjike.com/book/f28iom/)
-- [沈助理又在隐藏他的超能力](https://www.kmjike.com/book/f28hep/)
-- [系统不许我摆烂](https://www.kmjike.com/book/f28bt6/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.kmjike.com/book/f285c1/)
-- [[综武侠]有间民宿](https://www.kmjike.com/book/f27tct/)
-- [忍界观察日记](https://www.kmjike.com/book/f27s34/)
-- [绿叶](https://www.kmjike.com/book/f27os0/)
+- [漫画路人绑定系统后](https://www.kmjike.com/book/f28319/)
 - [一枝枝怨](https://www.kmjike.com/book/f27ib4/)
-- [这谁的沙雕二次元心声！](https://www.kmjike.com/book/f27hnd/)
 - [老公是松散生命体](https://www.kmjike.com/book/f27hkv/)
 - [多梦你一会儿](https://www.kmjike.com/book/f2760j/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.kmjike.com/book/f274dd/)
 - [[足球]罗蜜第一志愿](https://www.kmjike.com/book/f274bp/)
 - [拯救世界从扮演反派开始](https://www.kmjike.com/book/f273b5/)
-- [和前女友的心上人he了](https://www.kmjike.com/book/f27285/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1298/index.md)

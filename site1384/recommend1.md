@@ -1,14 +1,16 @@
 
 # 积家健康小说 - 无弹窗无广告小说在线阅读
 
-更新时间：2026-08-29 03:24:22
+更新时间：2026-08-30 03:25:25
 
 积家健康小说提供一个干净简洁的平台让您享受无弹窗无广告的小说在线阅读体验。无论是在线阅读还是下载小说，都是完全免费的。
 
 - [积家健康小说](https://www.jijiajk.com/)
 
 ## 最新小说
-- [[排球]游戏角色想和玩家谈恋爱](https://www.jijiajk.com/book/3ab1tum/)
+- [九零重组小家庭](https://www.jijiajk.com/book/3ab29lp/)
+- [发家致富小夫郎](https://www.jijiajk.com/book/3ab24rp/)
+- [游戏角色想和玩家谈恋爱](https://www.jijiajk.com/book/3ab1tum/)
 - [婚后矜持](https://www.jijiajk.com/book/3ab1tuj/)
 - [私恋旧星](https://www.jijiajk.com/book/3ab1tu9/)
 - [退婚流龙傲天，但未婚夫是我](https://www.jijiajk.com/book/3ab1tu5/)
@@ -18,7 +20,7 @@
 - [我的烧烤摊超美味[美食]](https://www.jijiajk.com/book/3ab1ttg/)
 - [痴情女配开始放手了（快穿）](https://www.jijiajk.com/book/3ab1tte/)
 - [在虫族世界逃命升级](https://www.jijiajk.com/book/3ab1tsu/)
-- [氪金林太郎，我成了无冕之王](https://www.jijiajk.com/book/3ab1tst/)
+- [氪金游戏，从养成林太郎开始](https://www.jijiajk.com/book/3ab1tst/)
 - [与亡夫春风一度后](https://www.jijiajk.com/book/3ab1tsm/)
 - [无限回档，我把自己刷成了女帝](https://www.jijiajk.com/book/3ab1tsl/)
 - [撕碎[刑侦]](https://www.jijiajk.com/book/3ab1tsk/)
@@ -55,7 +57,6 @@
 - [[足球]顶级名帅](https://www.jijiajk.com/book/3ab1tl1/)
 - [被怪物女友始乱终弃后[gb]](https://www.jijiajk.com/book/3ab1tkq/)
 - [[三国]清澈，但千古一帝](https://www.jijiajk.com/book/3ab1tkm/)
-- [软饭，站着吃](https://www.jijiajk.com/book/3ab1tkk/)
 - [我们生活玩家是这样的](https://www.jijiajk.com/book/3ab1tkh/)
 - [乖乖小宝被豪门长兄娇养了](https://www.jijiajk.com/book/3ab1tkc/)
 - [万人嫌女配深陷修罗场](https://www.jijiajk.com/book/3ab1tk7/)
@@ -67,7 +68,6 @@
 - [我有特殊的升官技巧](https://www.jijiajk.com/book/3ab1mos/)
 - [反派人生，易如反掌[快穿]](https://www.jijiajk.com/book/3ab1mlv/)
 - [我真的只会Ctrl啊！！！](https://www.jijiajk.com/book/3ab1ml1/)
-- [无限末日副本：我有移动安全屋](https://www.jijiajk.com/book/3ab1g0o/)
 - [摄政王家的咸鱼夫郎](https://www.jijiajk.com/book/3ab15dt/)
 - [枕边热吻](https://www.jijiajk.com/book/3ab14e4/)
 - [绿叶](https://www.jijiajk.com/book/3ab13l6/)
@@ -85,6 +85,7 @@
 - [不当救世主就要当人类恶了吗](https://www.jijiajk.com/book/3ab0hho/)
 - [[全职高手]霸图老板是叶修](https://www.jijiajk.com/book/3ab0haj/)
 - [当菟丝花要分手后](https://www.jijiajk.com/book/3ab0h76/)
+- [社恐直播鉴宝，但带球跑](https://www.jijiajk.com/book/3ab0fgu/)
 - [当我穿为龙傲天的情敌](https://www.jijiajk.com/book/3ab0f0f/)
 - [[综英美]让我统治哥谭！！！](https://www.jijiajk.com/book/3ab0cqu/)
 - [养成游戏，但破解版](https://www.jijiajk.com/book/3ab096u/)
@@ -121,7 +122,6 @@
 - [今天在伟大航路抽到SSR了吗](https://www.jijiajk.com/book/3aav40j/)
 - [直男误入攻略天龙人游戏](https://www.jijiajk.com/book/3aav2g5/)
 - [萩原警官的咒术大冒险](https://www.jijiajk.com/book/3aav0fl/)
-- [娶了女装心机太子](https://www.jijiajk.com/book/3aauvqi/)
 - [穿越废星，我靠种田求生](https://www.jijiajk.com/book/3aauvfg/)
 - [满级大佬制霸热血运动番](https://www.jijiajk.com/book/3aauv2v/)
 - [我不是御兽大师](https://www.jijiajk.com/book/3aausse/)
@@ -133,6 +133,7 @@
 - [徐娘子的美食发家日常](https://www.jijiajk.com/book/3aaupgr/)
 - [搭档，一起来玩求生游戏吧！](https://www.jijiajk.com/book/3aaupg4/)
 - [这男人该死的甜美](https://www.jijiajk.com/book/3aauoab/)
+- [恶犬攻绑定上司的乖狗系统](https://www.jijiajk.com/book/3aauo44/)
 - [红楼之霸总他被迫拯救女主角](https://www.jijiajk.com/book/3aaunpa/)
 - [绿茶病秧子骗他说喜欢](https://www.jijiajk.com/book/3aaulu0/)
 - [把清冷权臣调成荡夫后](https://www.jijiajk.com/book/3aauka6/)
@@ -146,7 +147,6 @@
 - [假少爷不想活了](https://www.jijiajk.com/book/3aatisa/)
 - [九零首富的替嫁小媳妇](https://www.jijiajk.com/book/3aatirm/)
 - [八零恶毒后妈杀疯了](https://www.jijiajk.com/book/3aatirf/)
-- [夺养媳](https://www.jijiajk.com/book/3aatir7/)
 - [穿成炮灰后我封神了［快穿］](https://www.jijiajk.com/book/3aatir2/)
 - [卧底后被港岛大小姐缠上了](https://www.jijiajk.com/book/3aatipk/)
 - [古代种田养娃日常](https://www.jijiajk.com/book/3aatin1/)
@@ -164,20 +164,15 @@
 - [我是唯一地上神国](https://www.jijiajk.com/book/3aathhu/)
 - [全民求生:从小木屋到魔法农场](https://www.jijiajk.com/book/3aathhe/)
 - [御兽师，我打工养你啊](https://www.jijiajk.com/book/3aath8u/)
-- [我真不是算命的！[香江]](https://www.jijiajk.com/book/3aath45/)
 - [高门小婢](https://www.jijiajk.com/book/3aath31/)
 - [千禧年，拆迁分了十栋楼！](https://www.jijiajk.com/book/3aatgvb/)
 - [六零之成了卷王的妹妹](https://www.jijiajk.com/book/3aatgto/)
 - [巨物致富：回乡开钓场](https://www.jijiajk.com/book/3aatgrt/)
 - [大瑛弟国](https://www.jijiajk.com/book/3aatgkh/)
-- [被反派暴君听到心声后[穿书]](https://www.jijiajk.com/book/3aatgcg/)
 - [95美国贵族高中模拟](https://www.jijiajk.com/book/3aatg7n/)
 - [清澈女大的六零年代](https://www.jijiajk.com/book/3aatg53/)
 - [趁她之危](https://www.jijiajk.com/book/3aatg4l/)
-- [道长他为何那样](https://www.jijiajk.com/book/3aatg47/)
-- [星露谷，但大秦帝国](https://www.jijiajk.com/book/3aatg1n/)
 - [我有一座安全城](https://www.jijiajk.com/book/3aatg0v/)
-- [穿到反派落魄时](https://www.jijiajk.com/book/3aatg0l/)
 - [高调装神，猥琐发育](https://www.jijiajk.com/book/3aatg0k/)
 ## 相关内容
 - [README](/README.md)

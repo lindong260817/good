@@ -1,43 +1,39 @@
 
 # 耽美小说 - 最新全本免费手机小说阅读推荐
 
-更新时间：2026-08-29 03:32:25
+更新时间：2026-08-30 03:33:33
 
 耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！
 
 - [耽美小说](https://www.shgifts8.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.shgifts8.com/book/32ugqi1/)
-- [男朋友买一送一](https://www.shgifts8.com/book/32ugqgk/)
-- [绿叶](https://www.shgifts8.com/book/32ugn4t/)
-- [亚当斯与韦恩的适配性](https://www.shgifts8.com/book/32ugn43/)
+- [被鬼怪宠爱的漂亮书生](https://www.shgifts8.com/book/32ugvsc/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shgifts8.com/book/32ugqb1/)
+- [我的烧烤摊超美味[美食]](https://www.shgifts8.com/book/32ugq4c/)
+- [如何正确哄睡暴君](https://www.shgifts8.com/book/32ugptj/)
 - [老公是松散生命体](https://www.shgifts8.com/book/32uggiu/)
 - [法外狂猫](https://www.shgifts8.com/book/32ugdo4/)
 - [微臣怜惜公主](https://www.shgifts8.com/book/32ugc6j/)
-- [若清晨所见之蓝](https://www.shgifts8.com/book/32ugauf/)
 - [就算是龙傲天也不可以[快穿]](https://www.shgifts8.com/book/32ug55u/)
-- [沈助理又在隐藏他的超能力](https://www.shgifts8.com/book/32ug4go/)
-- [系统不许我摆烂](https://www.shgifts8.com/book/32ufvf4/)
-- [直男咒术师的限制级游戏](https://www.shgifts8.com/book/32ufrar/)
+- [战死的阿爹回来了[年代]](https://www.shgifts8.com/book/32ug4v5/)
+- [和室友他爸恋爱后](https://www.shgifts8.com/book/32ug3sn/)
 - [多梦你一会儿](https://www.shgifts8.com/book/32ufppi/)
-- [这谁的沙雕二次元心声！](https://www.shgifts8.com/book/32ufpda/)
 - [穿为清冷影后的污点A](https://www.shgifts8.com/book/32ufo4b/)
-- [和前女友的心上人he了](https://www.shgifts8.com/book/32uflg3/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.shgifts8.com/book/32ufkvh/)
 - [拯救世界从扮演反派开始](https://www.shgifts8.com/book/32ufjut/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.shgifts8.com/book/32ufjmq/)
+- [[足球]能不能好好模拟游戏](https://www.shgifts8.com/book/32ufjnf/)
 - [[足球]小小鸟堂堂来袭](https://www.shgifts8.com/book/32ufjkt/)
 - [井闼山经理每天都被挖墙脚](https://www.shgifts8.com/book/32ufhnc/)
-- [[综武侠]有间民宿](https://www.shgifts8.com/book/32ufgm2/)
-- [忍界观察日记](https://www.shgifts8.com/book/32uffq4/)
+- [漫画路人绑定系统后](https://www.shgifts8.com/book/32ufh56/)
 - [[足球]罗蜜第一志愿](https://www.shgifts8.com/book/32uff3k/)
-- [契约情人](https://www.shgifts8.com/book/32ufcba/)
-- [某柯学的正义伙伴](https://www.shgifts8.com/book/32ufbgb/)
+- [人偶游戏](https://www.shgifts8.com/book/32ufcq6/)
+- [撕毁女配剧本的我被神之子读心了](https://www.shgifts8.com/book/32ufb13/)
 - [关于我虚构了一个男友这件事](https://www.shgifts8.com/book/32ufa0e/)
 - [好兄弟暴富后非要跟我结婚](https://www.shgifts8.com/book/32uf9hk/)
 - [一枝枝怨](https://www.shgifts8.com/book/32uf99q/)
+- [他要和我谈恋爱](https://www.shgifts8.com/book/32ud6mi/)
 - [纯爱宇智波基本恋爱法](https://www.shgifts8.com/book/32ud6j3/)
+- [高调装神，猥琐发育](https://www.shgifts8.com/book/32ud5eo/)
 - [你，后室管理员](https://www.shgifts8.com/book/32ud5d7/)
 - [分手后与诱系妻子再度热恋](https://www.shgifts8.com/book/32ud599/)
 - [星际团宠小人鱼](https://www.shgifts8.com/book/32ud4io/)

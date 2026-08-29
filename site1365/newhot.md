@@ -1,33 +1,29 @@
 
 # 书城读书网_免费小说在线阅读|无弹窗广告
 
-更新时间：2026-08-29 03:32:38
+更新时间：2026-08-30 03:33:45
 
 书城读书网是最热门的免费小说网站，提供包括玄幻、都市、言情等多种类型的小说在线阅读服务。这里不仅有最新章节的实时更新，还有全面的小说排行榜，让您轻松找到喜欢的作品。阅读体验极佳，全程无弹窗广告干扰，值得收藏！
 
 - [书城读书网](https://www.shucheng168.com/)
 
 ## 最新小说
-- [在千禧年的伦敦当女巫](https://www.shucheng168.com/book/47fotrk/)
+- [我的烧烤摊超美味[美食]](https://www.shucheng168.com/book/47fots7/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shucheng168.com/book/47fotq8/)
 - [我有嘉宾](https://www.shucheng168.com/book/47fop7g/)
 - [星际团宠小人鱼](https://www.shucheng168.com/book/47fnukd/)
 - [分手后与诱系妻子再度热恋](https://www.shucheng168.com/book/47fnuh8/)
 - [你，后室管理员](https://www.shucheng168.com/book/47fnugt/)
-- [男朋友买一送一](https://www.shucheng168.com/book/47fnc7o/)
-- [绿叶](https://www.shucheng168.com/book/47fn1gd/)
-- [若清晨所见之蓝](https://www.shucheng168.com/book/47fmof7/)
+- [高调装神，猥琐发育](https://www.shucheng168.com/book/47fnn9t/)
+- [如何正确哄睡暴君](https://www.shucheng168.com/book/47fn5j0/)
+- [被鬼怪宠爱的漂亮书生](https://www.shucheng168.com/book/47fmmpe/)
 - [老公是松散生命体](https://www.shucheng168.com/book/47fmm2g/)
-- [沈助理又在隐藏他的超能力](https://www.shucheng168.com/book/47fmked/)
 - [微臣怜惜公主](https://www.shucheng168.com/book/47fmj5u/)
-- [系统不许我摆烂](https://www.shucheng168.com/book/47fmfrh/)
-- [亚当斯与韦恩的适配性](https://www.shucheng168.com/book/47fma1i/)
+- [他要和我谈恋爱](https://www.shucheng168.com/book/47fm8nh/)
+- [漫画路人绑定系统后](https://www.shucheng168.com/book/47fm5e1/)
 - [多梦你一会儿](https://www.shucheng168.com/book/47fm56o/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.shucheng168.com/book/47fm4l5/)
-- [[综武侠]有间民宿](https://www.shucheng168.com/book/47fm1gf/)
-- [这谁的沙雕二次元心声！](https://www.shucheng168.com/book/47flvpj/)
-- [忍界观察日记](https://www.shucheng168.com/book/47fltrp/)
-- [和前女友的心上人he了](https://www.shucheng168.com/book/47flthd/)
-- [某柯学的正义伙伴](https://www.shucheng168.com/book/47flqqn/)
+- [战死的阿爹回来了[年代]](https://www.shucheng168.com/book/47fm51n/)
+- [[足球]能不能好好模拟游戏](https://www.shucheng168.com/book/47fm1br/)
 - [[足球]罗蜜第一志愿](https://www.shucheng168.com/book/47flqfn/)
 - [一枝枝怨](https://www.shucheng168.com/book/47flnk8/)
 - [井闼山经理每天都被挖墙脚](https://www.shucheng168.com/book/47fln3k/)
@@ -35,10 +31,8 @@
 - [好兄弟暴富后非要跟我结婚](https://www.shucheng168.com/book/47fl97c/)
 - [法外狂猫](https://www.shucheng168.com/book/47fl8ab/)
 - [关于我虚构了一个男友这件事](https://www.shucheng168.com/book/47fl7gf/)
-- [契约情人](https://www.shucheng168.com/book/47fl7bb/)
-- [直男咒术师的限制级游戏](https://www.shucheng168.com/book/47fjonv/)
+- [和室友他爸恋爱后](https://www.shucheng168.com/book/47fkuom/)
 - [拯救世界从扮演反派开始](https://www.shucheng168.com/book/47fjo1o/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.shucheng168.com/book/47fjnru/)
 - [纯爱宇智波基本恋爱法](https://www.shucheng168.com/book/47fjn9g/)
 ## 相关内容
 - [README](/README.md)

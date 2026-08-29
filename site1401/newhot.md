@@ -1,46 +1,42 @@
 
 # 曹操SPA小说 - 小说的海洋，文学的殿堂 | 在线阅读与下载原创小说
 
-更新时间：2026-08-29 03:19:24
+更新时间：2026-08-30 03:20:22
 
 曹操SPA小说是一个专注于优质小说和文学创作的网站，这里是书迷们的天堂，提供丰富的原创网络小说、经典文学作品在线阅读与下载，致力于打造一个充满灵感与创意的文学世界。
 
 - [曹操SPA小说](https://www.caocaospa.com/)
 
 ## 最新小说
-- [男朋友买一送一](https://www.caocaospa.com/book/8q1ssaj/)
-- [在千禧年的伦敦当女巫](https://www.caocaospa.com/book/8q1ss3a/)
-- [绿叶](https://www.caocaospa.com/book/8q1sp22/)
-- [亚当斯与韦恩的适配性](https://www.caocaospa.com/book/8q1sku0/)
+- [被鬼怪宠爱的漂亮书生](https://www.caocaospa.com/book/8q1stpu/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.caocaospa.com/book/8q1sro8/)
+- [我的烧烤摊超美味[美食]](https://www.caocaospa.com/book/8q1sqli/)
+- [如何正确哄睡暴君](https://www.caocaospa.com/book/8q1snkf/)
 - [老公是松散生命体](https://www.caocaospa.com/book/8q1sgnm/)
 - [法外狂猫](https://www.caocaospa.com/book/8q1sd93/)
 - [微臣怜惜公主](https://www.caocaospa.com/book/8q1sbi0/)
-- [若清晨所见之蓝](https://www.caocaospa.com/book/8q1sbc1/)
 - [就算是龙傲天也不可以[快穿]](https://www.caocaospa.com/book/8q1s4g7/)
-- [沈助理又在隐藏他的超能力](https://www.caocaospa.com/book/8q1s2s0/)
-- [系统不许我摆烂](https://www.caocaospa.com/book/8q1rubr/)
-- [直男咒术师的限制级游戏](https://www.caocaospa.com/book/8q1rsj7/)
+- [和室友他爸恋爱后](https://www.caocaospa.com/book/8q1s4c6/)
+- [战死的阿爹回来了[年代]](https://www.caocaospa.com/book/8q1s2q7/)
 - [多梦你一会儿](https://www.caocaospa.com/book/8q1rnp6/)
 - [穿为清冷影后的污点A](https://www.caocaospa.com/book/8q1rnld/)
-- [这谁的沙雕二次元心声！](https://www.caocaospa.com/book/8q1rmua/)
-- [[足球]幼年巨星被豪门主席强买之后](https://www.caocaospa.com/book/8q1rmpp/)
-- [和前女友的心上人he了](https://www.caocaospa.com/book/8q1rlre/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.caocaospa.com/book/8q1rj86/)
+- [漫画路人绑定系统后](https://www.caocaospa.com/book/8q1rje9/)
 - [井闼山经理每天都被挖墙脚](https://www.caocaospa.com/book/8q1riql/)
 - [拯救世界从扮演反派开始](https://www.caocaospa.com/book/8q1rhci/)
+- [[足球]能不能好好模拟游戏](https://www.caocaospa.com/book/8q1rhbe/)
 - [[足球]小小鸟堂堂来袭](https://www.caocaospa.com/book/8q1rh81/)
-- [忍界观察日记](https://www.caocaospa.com/book/8q1rgpc/)
-- [[综武侠]有间民宿](https://www.caocaospa.com/book/8q1rfs3/)
 - [[足球]罗蜜第一志愿](https://www.caocaospa.com/book/8q1rfar/)
-- [契约情人](https://www.caocaospa.com/book/8q1rdrg/)
-- [某柯学的正义伙伴](https://www.caocaospa.com/book/8q1rcac/)
+- [人偶游戏](https://www.caocaospa.com/book/8q1rdtt/)
 - [关于我虚构了一个男友这件事](https://www.caocaospa.com/book/8q1ra99/)
 - [一枝枝怨](https://www.caocaospa.com/book/8q1ra8l/)
 - [好兄弟暴富后非要跟我结婚](https://www.caocaospa.com/book/8q1ra81/)
+- [撕毁女配剧本的我被神之子读心了](https://www.caocaospa.com/book/8q1r9pa/)
 - [分手后与诱系妻子再度热恋](https://www.caocaospa.com/book/8q1p7kq/)
 - [纯爱宇智波基本恋爱法](https://www.caocaospa.com/book/8q1p74a/)
 - [你，后室管理员](https://www.caocaospa.com/book/8q1p6sv/)
+- [他要和我谈恋爱](https://www.caocaospa.com/book/8q1p5vq/)
 - [星际团宠小人鱼](https://www.caocaospa.com/book/8q1p5tj/)
+- [高调装神，猥琐发育](https://www.caocaospa.com/book/8q1p4kh/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1401/index.md)
