@@ -1,7 +1,7 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-08-30 03:23:00
+更新时间：2026-08-31 03:24:11
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。
 
@@ -120,7 +120,6 @@
 - [人在虫族，写文爆红](https://www.fshxjd.com/book/74i01al/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.fshxjd.com/book/74i00ct/)
 - [漫画配角的不平凡日常](https://www.fshxjd.com/book/74i008q/)
-- [兽世种田撸狼首领](https://www.fshxjd.com/book/74hvvng/)
 - [重临巅峰[花滑]](https://www.fshxjd.com/book/74hvt18/)
 - [井闼山经理每天都被挖墙脚](https://www.fshxjd.com/book/74hvsfi/)
 - [漫漫仙途](https://www.fshxjd.com/book/74hvs5f/)

@@ -1,13 +1,14 @@
 
 # 生活文学小说-质感小说文学网站|高质量文学作品与创作交流平台
 
-更新时间：2026-08-30 03:33:03
+更新时间：2026-08-31 03:34:10
 
 生活文学小说是一个专注于提供质感小说文学的网站，致力于为文学爱好者打造一个高质量的文学作品和创作交流平台，在这里可以享受到独特的夜间文学之美。
 
 - [生活文学小说](https://www.shenghuo988.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.shenghuo988.com/book/86gb25t/)
 - [发家致富小夫郎](https://www.shenghuo988.com/book/86gathg/)
 - [宫陷](https://www.shenghuo988.com/book/86gar90/)
 - [除病弱万人嫌外全员重生](https://www.shenghuo988.com/book/86gar8u/)
@@ -65,9 +66,11 @@
 - [我真的只会Ctrl啊！！！](https://www.shenghuo988.com/book/86gaorn/)
 - [灭世龙崽有什么错](https://www.shenghuo988.com/book/86gahql/)
 - [九零重组小家庭](https://www.shenghuo988.com/book/86gag1v/)
+- [养父](https://www.shenghuo988.com/book/86gaeti/)
 - [人妻O救赎指南](https://www.shenghuo988.com/book/86gaesm/)
 - [在虫族世界逃命升级](https://www.shenghuo988.com/book/86gabei/)
 - [神豪文男主是我爸](https://www.shenghuo988.com/book/86gaai6/)
+- [从维多利亚时代开始](https://www.shenghuo988.com/book/86ga1t5/)
 - [我有特殊的升官技巧](https://www.shenghuo988.com/book/86g9utu/)
 - [十九世纪贵族厨房（美食）](https://www.shenghuo988.com/book/86g9rvq/)
 - [星际团宠小人鱼](https://www.shenghuo988.com/book/86g9ro3/)
@@ -78,7 +81,6 @@
 - [绿叶](https://www.shenghuo988.com/book/86g8ue0/)
 - [第一游侠[全息]](https://www.shenghuo988.com/book/86g8u8e/)
 - [始皇闺女躺平失败的日子](https://www.shenghuo988.com/book/86g8s45/)
-- [万人嫌女配过分漂亮](https://www.shenghuo988.com/book/86g8ro0/)
 - [枕边热吻](https://www.shenghuo988.com/book/86g8qir/)
 - [我写小说纯粹为了赚钱](https://www.shenghuo988.com/book/86g8qii/)
 - [九零首富的替嫁小媳妇](https://www.shenghuo988.com/book/86g8qef/)
@@ -113,7 +115,6 @@
 - [万人迷今天也在风靡全世界[快穿]](https://www.shenghuo988.com/book/86g7kk5/)
 - [井闼山经理每天都被挖墙脚](https://www.shenghuo988.com/book/86g7kh7/)
 - [人在虫族，写文爆红](https://www.shenghuo988.com/book/86g7kck/)
-- [兽世种田撸狼首领](https://www.shenghuo988.com/book/86g7k30/)
 - [恋爱脑毁灭世界](https://www.shenghuo988.com/book/86g7i3i/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.shenghuo988.com/book/86g7hac/)
 - [漫漫仙途](https://www.shenghuo988.com/book/86g7gts/)
@@ -145,6 +146,7 @@
 - [绿茶病秧子骗他说喜欢](https://www.shenghuo988.com/book/86g6ncn/)
 - [徐娘子的美食发家日常](https://www.shenghuo988.com/book/86g6lc7/)
 - [我真的没想在选秀炒CP](https://www.shenghuo988.com/book/86g6k9c/)
+- [在医院旧楼捡到个外科鼻祖](https://www.shenghuo988.com/book/86g6jc3/)
 - [把清冷权臣调成荡夫后](https://www.shenghuo988.com/book/86g6i00/)
 - [[群穿]我在御兽番抢人气](https://www.shenghuo988.com/book/86g6hph/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shenghuo988.com/book/86g5mim/)

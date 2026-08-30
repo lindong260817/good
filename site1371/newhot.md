@@ -1,7 +1,7 @@
 
 # 爱阅读-最新优质免费无弹窗小说在线阅读
 
-更新时间：2026-08-30 03:41:59
+更新时间：2026-08-31 03:43:06
 
 爱阅读提供清爽干净、页面整洁没弹窗的网络小说阅读体验。这里有大量的免费小说、完本小说供您选择，包括热门言情小说、玄幻小说、仙侠小说等多种类型。是广大书友必备的纯绿色小说阅读网站。
 
@@ -16,25 +16,31 @@
 - [星际团宠小人鱼](https://www.yuedu788.com/book/1on5von/)
 - [分手后与诱系妻子再度热恋](https://www.yuedu788.com/book/1on5vl7/)
 - [高调装神，猥琐发育](https://www.yuedu788.com/book/1on5om4/)
+- [男朋友买一送一](https://www.yuedu788.com/book/1on5csm/)
+- [失而复得的白月光[快穿]](https://www.yuedu788.com/book/1on594r/)
 - [如何正确哄睡暴君](https://www.yuedu788.com/book/1on54f7/)
+- [我不可能舔一个漂亮捞子](https://www.yuedu788.com/book/1on4sgj/)
+- [寻真](https://www.yuedu788.com/book/1on4rvn/)
 - [被鬼怪宠爱的漂亮书生](https://www.yuedu788.com/book/1on4o8o/)
-- [老公是松散生命体](https://www.yuedu788.com/book/1on4luj/)
+- [沈助理又在隐藏他的超能力](https://www.yuedu788.com/book/1on4n90/)
 - [微臣怜惜公主](https://www.yuedu788.com/book/1on4kha/)
 - [他要和我谈恋爱](https://www.yuedu788.com/book/1on4c7c/)
-- [漫画路人绑定系统后](https://www.yuedu788.com/book/1on46hb/)
-- [战死的阿爹回来了[年代]](https://www.yuedu788.com/book/1on4502/)
-- [多梦你一会儿](https://www.yuedu788.com/book/1on44bq/)
-- [[足球]能不能好好模拟游戏](https://www.yuedu788.com/book/1on42qe/)
+- [[封神]圣人生欲](https://www.yuedu788.com/book/1on44b3/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.yuedu788.com/book/1on446i/)
+- [某柯学的正义伙伴](https://www.yuedu788.com/book/1on3tsf/)
 - [[足球]罗蜜第一志愿](https://www.yuedu788.com/book/1on3tnn/)
-- [一枝枝怨](https://www.yuedu788.com/book/1on3p44/)
+- [青空来信](https://www.yuedu788.com/book/1on3t0m/)
 - [井闼山经理每天都被挖墙脚](https://www.yuedu788.com/book/1on3opm/)
 - [[足球]小小鸟堂堂来袭](https://www.yuedu788.com/book/1on3fmp/)
+- [侯府打工人](https://www.yuedu788.com/book/1on3a63/)
 - [法外狂猫](https://www.yuedu788.com/book/1on3a4t/)
 - [好兄弟暴富后非要跟我结婚](https://www.yuedu788.com/book/1on39ph/)
+- [契约情人](https://www.yuedu788.com/book/1on38a6/)
 - [关于我虚构了一个男友这件事](https://www.yuedu788.com/book/1on36l1/)
 - [和室友他爸恋爱后](https://www.yuedu788.com/book/1on2vhn/)
 - [拯救世界从扮演反派开始](https://www.yuedu788.com/book/1on1q8j/)
 - [纯爱宇智波基本恋爱法](https://www.yuedu788.com/book/1on1ojk/)
+- [直男咒术师的限制级游戏](https://www.yuedu788.com/book/1on1no0/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1371/index.md)

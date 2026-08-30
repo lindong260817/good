@@ -1,13 +1,14 @@
 
 # 笔看阁-最热门的免费小说网 | 玄幻、网游、言情、穿越、都市全本小说在线阅读
 
-更新时间：2026-08-30 03:21:58
+更新时间：2026-08-31 03:23:09
 
 笔看阁是最热门的免费小说网站之一，专注于提供包括玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读服务。本站承诺不设任何弹窗广告，页面简洁易用，为读者创造一个纯净舒适的阅读环境。
 
 - [笔看阁](https://www.dasenluan.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.dasenluan.com/book/3jmhki5/)
 - [发家致富小夫郎](https://www.dasenluan.com/book/3jmhki4/)
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.dasenluan.com/book/3jmhjou/)
 - [被怪物女友始乱终弃后[gb]](https://www.dasenluan.com/book/3jmhjot/)
@@ -63,6 +64,7 @@
 - [异种新婚报告](https://www.dasenluan.com/book/3jmhjk9/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.dasenluan.com/book/3jmhede/)
 - [我真的只会Ctrl啊！！！](https://www.dasenluan.com/book/3jmhai0/)
+- [养父](https://www.dasenluan.com/book/3jmhadt/)
 - [人妻O救赎指南](https://www.dasenluan.com/book/3jmha61/)
 - [星际团宠小人鱼](https://www.dasenluan.com/book/3jmh3e1/)
 - [灭世龙崽有什么错](https://www.dasenluan.com/book/3jmgv7u/)
@@ -70,6 +72,7 @@
 - [神豪文男主是我爸](https://www.dasenluan.com/book/3jmgpkp/)
 - [在虫族世界逃命升级](https://www.dasenluan.com/book/3jmgo88/)
 - [趁她之危](https://www.dasenluan.com/book/3jmgm6k/)
+- [从维多利亚时代开始](https://www.dasenluan.com/book/3jmgej6/)
 - [我有特殊的升官技巧](https://www.dasenluan.com/book/3jmgbnm/)
 - [反派人生，易如反掌[快穿]](https://www.dasenluan.com/book/3jmg8kf/)
 - [假少爷不想活了](https://www.dasenluan.com/book/3jmg85e/)
@@ -84,7 +87,6 @@
 - [绿叶](https://www.dasenluan.com/book/3jmf5lc/)
 - [科学主义魔法学院](https://www.dasenluan.com/book/3jmf5iu/)
 - [始皇闺女躺平失败的日子](https://www.dasenluan.com/book/3jmf56u/)
-- [万人嫌女配过分漂亮](https://www.dasenluan.com/book/3jmf4gd/)
 - [九零首富的替嫁小媳妇](https://www.dasenluan.com/book/3jmf26v/)
 - [我写小说纯粹为了赚钱](https://www.dasenluan.com/book/3jmf24n/)
 - [枕边热吻](https://www.dasenluan.com/book/3jmf1hf/)
@@ -119,7 +121,6 @@
 - [当恶女捡回高岭之花](https://www.dasenluan.com/book/3jmdusq/)
 - [豪门前妻O总想诱我](https://www.dasenluan.com/book/3jmdumt/)
 - [漫画配角的不平凡日常](https://www.dasenluan.com/book/3jmdtf0/)
-- [兽世种田撸狼首领](https://www.dasenluan.com/book/3jmdstd/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.dasenluan.com/book/3jmds85/)
 - [魔尊和仙帝共坠爱河之后](https://www.dasenluan.com/book/3jmdr3l/)
 - [漫漫仙途](https://www.dasenluan.com/book/3jmdqo1/)
@@ -149,6 +150,7 @@
 - [绿茶病秧子骗他说喜欢](https://www.dasenluan.com/book/3jmd2gk/)
 - [徐娘子的美食发家日常](https://www.dasenluan.com/book/3jmd19l/)
 - [把清冷权臣调成荡夫后](https://www.dasenluan.com/book/3jmcvln/)
+- [在医院旧楼捡到个外科鼻祖](https://www.dasenluan.com/book/3jmcudo/)
 - [[群穿]我在御兽番抢人气](https://www.dasenluan.com/book/3jmcr32/)
 - [六零之成了卷王的妹妹](https://www.dasenluan.com/book/3jmc3ic/)
 - [穿成炮灰后我封神了［快穿］](https://www.dasenluan.com/book/3jmc3cu/)

@@ -1,13 +1,14 @@
 
-# 自由屋 - 好看的言情小说推荐,热门小说在线阅读
+# 紫玉海小说 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-08-30 03:43:04
+更新时间：2026-08-31 03:44:11
 
-自由屋文学网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
+紫玉海小说网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
-- [自由屋](https://www.ziyuhai.com/)
+- [紫玉海小说](https://www.ziyuhai.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.ziyuhai.com/book/84rn586/)
 - [发家致富小夫郎](https://www.ziyuhai.com/book/84rn585/)
 - [欢迎来到纳萨力克丧葬公司](https://www.ziyuhai.com/book/84rn57v/)
 - [猫猫也要被魅魔魅惑吗？](https://www.ziyuhai.com/book/84rn57u/)
@@ -68,6 +69,7 @@
 - [被怪物女友始乱终弃后[gb]](https://www.ziyuhai.com/book/84rn535/)
 - [和光太郎谈恋爱](https://www.ziyuhai.com/book/84rn534/)
 - [影帝今天分手了吗[娱乐圈]](https://www.ziyuhai.com/book/84rn532/)
+- [养父](https://www.ziyuhai.com/book/84rn530/)
 - [星际团宠小人鱼](https://www.ziyuhai.com/book/84rn52t/)
 - [十九世纪贵族厨房（美食）](https://www.ziyuhai.com/book/84rn527/)
 - [九零首富的替嫁小媳妇](https://www.ziyuhai.com/book/84rn515/)
@@ -83,6 +85,7 @@
 - [九零重组小家庭](https://www.ziyuhai.com/book/84rlbnt/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ziyuhai.com/book/84rlah0/)
 - [灭世龙崽有什么错](https://www.ziyuhai.com/book/84rl70h/)
+- [从维多利亚时代开始](https://www.ziyuhai.com/book/84rkr5m/)
 - [我有特殊的升官技巧](https://www.ziyuhai.com/book/84rkobl/)
 - [御兽师，我打工养你啊](https://www.ziyuhai.com/book/84rkm4c/)
 - [反派人生，易如反掌[快穿]](https://www.ziyuhai.com/book/84rkkkm/)
@@ -101,7 +104,6 @@
 - [摄政王家的咸鱼夫郎](https://www.ziyuhai.com/book/84rjiap/)
 - [始皇闺女躺平失败的日子](https://www.ziyuhai.com/book/84rjgsr/)
 - [寄人篱下](https://www.ziyuhai.com/book/84rjg4a/)
-- [万人嫌女配过分漂亮](https://www.ziyuhai.com/book/84rjena/)
 - [当我穿为龙傲天的情敌](https://www.ziyuhai.com/book/84rjdkg/)
 - [全球进化，而我保持不变](https://www.ziyuhai.com/book/q2r2lo/)
 - [不当救世主就要当人类恶了吗](https://www.ziyuhai.com/book/q2qu48/)
@@ -134,7 +136,6 @@
 - [恋爱脑毁灭世界](https://www.ziyuhai.com/book/q2plc8/)
 - [你是我的根目录](https://www.ziyuhai.com/book/q2pkgp/)
 - [魔尊和仙帝共坠爱河之后](https://www.ziyuhai.com/book/q2pk93/)
-- [兽世种田撸狼首领](https://www.ziyuhai.com/book/q2pjae/)
 - [[综港影]野生情人出没地](https://www.ziyuhai.com/book/q2pfhk/)
 - [直男误入攻略天龙人游戏](https://www.ziyuhai.com/book/q2pevg/)
 - [八零恶毒后妈杀疯了](https://www.ziyuhai.com/book/q2pbsc/)
@@ -156,6 +157,7 @@
 - [我真的没想在选秀炒CP](https://www.ziyuhai.com/book/q2p2kt/)
 - [徐娘子的美食发家日常](https://www.ziyuhai.com/book/q2p2kd/)
 - [把清冷权臣调成荡夫后](https://www.ziyuhai.com/book/q2p0mp/)
+- [在医院旧楼捡到个外科鼻祖](https://www.ziyuhai.com/book/q2othd/)
 - [替嫁后咸鱼继母佛系日常](https://www.ziyuhai.com/book/2jf9c5/)
 - [卧底后被港岛大小姐缠上了](https://www.ziyuhai.com/book/2jf9a0/)
 - [五十年代港城日常](https://www.ziyuhai.com/book/2jf94e/)

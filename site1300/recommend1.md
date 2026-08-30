@@ -1,13 +1,14 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-08-30 03:28:56
+更新时间：2026-08-31 03:30:02
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。
 
 - [棉花糖小说网](https://www.littlemissribbon.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.littlemissribbon.com/book/5asij27/)
 - [发家致富小夫郎](https://www.littlemissribbon.com/book/5asij26/)
 - [乖乖小宝被豪门长兄娇养了](https://www.littlemissribbon.com/book/5asij21/)
 - [败类游戏](https://www.littlemissribbon.com/book/5asij1u/)
@@ -68,6 +69,7 @@
 - [氪金游戏，从养成林太郎开始](https://www.littlemissribbon.com/book/5asiit8/)
 - [被怪物女友始乱终弃后[gb]](https://www.littlemissribbon.com/book/5asiit7/)
 - [凤凰男就该窝里下蛋](https://www.littlemissribbon.com/book/5asiit4/)
+- [养父](https://www.littlemissribbon.com/book/5asiit1/)
 - [十九世纪贵族厨房（美食）](https://www.littlemissribbon.com/book/5asiisb/)
 - [星际团宠小人鱼](https://www.littlemissribbon.com/book/5asiire/)
 - [九零首富的替嫁小媳妇](https://www.littlemissribbon.com/book/5asiiqv/)
@@ -83,6 +85,7 @@
 - [灭世龙崽有什么错](https://www.littlemissribbon.com/book/5ash09v/)
 - [九零重组小家庭](https://www.littlemissribbon.com/book/5asgvoq/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.littlemissribbon.com/book/5asgq6f/)
+- [从维多利亚时代开始](https://www.littlemissribbon.com/book/5asg8jb/)
 - [我有特殊的升官技巧](https://www.littlemissribbon.com/book/5asg5pi/)
 - [御兽师，我打工养你啊](https://www.littlemissribbon.com/book/5asg3p9/)
 - [反派人生，易如反掌[快穿]](https://www.littlemissribbon.com/book/5asg2bc/)
@@ -100,7 +103,6 @@
 - [第一游侠[全息]](https://www.littlemissribbon.com/book/5asf47h/)
 - [始皇闺女躺平失败的日子](https://www.littlemissribbon.com/book/5asf0p2/)
 - [摄政王家的咸鱼夫郎](https://www.littlemissribbon.com/book/5asf0eb/)
-- [万人嫌女配过分漂亮](https://www.littlemissribbon.com/book/5aseuo9/)
 - [寄人篱下](https://www.littlemissribbon.com/book/5asetqu/)
 - [全球进化，而我保持不变](https://www.littlemissribbon.com/book/h2totf/)
 - [当我穿为龙傲天的情敌](https://www.littlemissribbon.com/book/h2to11/)
@@ -134,7 +136,6 @@
 - [你是我的根目录](https://www.littlemissribbon.com/book/h2sc27/)
 - [魔尊和仙帝共坠爱河之后](https://www.littlemissribbon.com/book/h2sbo6/)
 - [恋爱脑毁灭世界](https://www.littlemissribbon.com/book/h2sbdg/)
-- [兽世种田撸狼首领](https://www.littlemissribbon.com/book/h2sa2g/)
 - [直男误入攻略天龙人游戏](https://www.littlemissribbon.com/book/h2s7av/)
 - [[综港影]野生情人出没地](https://www.littlemissribbon.com/book/h2s743/)
 - [穿越废星，我靠种田求生](https://www.littlemissribbon.com/book/h2s48n/)
@@ -155,6 +156,7 @@
 - [今天在伟大航路抽到SSR了吗](https://www.littlemissribbon.com/book/h2rr0c/)
 - [我真的没想在选秀炒CP](https://www.littlemissribbon.com/book/h2rqu4/)
 - [搭档，一起来玩求生游戏吧！](https://www.littlemissribbon.com/book/h2rqm2/)
+- [在医院旧楼捡到个外科鼻祖](https://www.littlemissribbon.com/book/h2rnr2/)
 - [把清冷权臣调成荡夫后](https://www.littlemissribbon.com/book/h2rmko/)
 - [95美国贵族高中模拟](https://www.littlemissribbon.com/book/1mluv6/)
 - [替嫁后咸鱼继母佛系日常](https://www.littlemissribbon.com/book/1mluof/)

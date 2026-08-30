@@ -1,15 +1,17 @@
 
 # 宁波慈绿农垦小说-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-08-30 03:30:00
+更新时间：2026-08-31 03:31:07
 
 宁波慈绿农垦小说提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
 - [宁波慈绿农垦小说](https://www.nbcxnk.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.nbcxnk.com/book/2ss0gpd/)
 - [九零重组小家庭](https://www.nbcxnk.com/book/2ss0bd1/)
 - [发家致富小夫郎](https://www.nbcxnk.com/book/2ss06fm/)
+- [从维多利亚时代开始](https://www.nbcxnk.com/book/2srvvqv/)
 - [宫陷](https://www.nbcxnk.com/book/2srvvmb/)
 - [在虫族世界逃命升级](https://www.nbcxnk.com/book/2srvvma/)
 - [下潜一万米，海渊求生](https://www.nbcxnk.com/book/2srvvm2/)
@@ -73,7 +75,6 @@
 - [枕边热吻](https://www.nbcxnk.com/book/2srv4e0/)
 - [科学主义魔法学院](https://www.nbcxnk.com/book/2srv3k1/)
 - [全球进化，而我保持不变](https://www.nbcxnk.com/book/2srv02o/)
-- [万人嫌女配过分漂亮](https://www.nbcxnk.com/book/2srutr9/)
 - [第一游侠[全息]](https://www.nbcxnk.com/book/2srusol/)
 - [我写小说纯粹为了赚钱](https://www.nbcxnk.com/book/2srusba/)
 - [寄人篱下](https://www.nbcxnk.com/book/2srusam/)
@@ -106,7 +107,6 @@
 - [青空来信](https://www.nbcxnk.com/book/2srtnv7/)
 - [豪门前妻O总想诱我](https://www.nbcxnk.com/book/2srtlvv/)
 - [青城玩家明明超强却过分谨慎](https://www.nbcxnk.com/book/2srtkhr/)
-- [兽世种田撸狼首领](https://www.nbcxnk.com/book/2srtjfc/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.nbcxnk.com/book/2srtj0u/)
 - [恋爱脑毁灭世界](https://www.nbcxnk.com/book/2srtirl/)
 - [漫画配角的不平凡日常](https://www.nbcxnk.com/book/2srtgrj/)
@@ -139,7 +139,9 @@
 - [把清冷权臣调成荡夫后](https://www.nbcxnk.com/book/2srslgj/)
 - [我真的没想在选秀炒CP](https://www.nbcxnk.com/book/2srskbq/)
 - [欢迎来到纳萨力克丧葬公司](https://www.nbcxnk.com/book/2srsh89/)
+- [在医院旧楼捡到个外科鼻祖](https://www.nbcxnk.com/book/2srsg7r/)
 - [[群穿]我在御兽番抢人气](https://www.nbcxnk.com/book/2srsfgr/)
+- [养父](https://www.nbcxnk.com/book/2srsf57/)
 - [人妻O救赎指南](https://www.nbcxnk.com/book/2srsedf/)
 - [日化人生[科研]](https://www.nbcxnk.com/book/2srrkvi/)
 - [在民俗惊悚片被诸神庇护](https://www.nbcxnk.com/book/2srrkt8/)

@@ -1,13 +1,15 @@
 
 # 都来读小说网 - 免费电子书阅读平台
 
-更新时间：2026-08-30 03:35:29
+更新时间：2026-08-31 03:36:36
 
 都来读小说网提供快速更新的海量免费小说资源，主要以TXT格式为主，致力于为读者带来优质的阅读体验。
 
 - [都来读小说网](https://www.swazs.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.swazs.com/book/1u7jv8r/)
+- [从维多利亚时代开始](https://www.swazs.com/book/1u7jtiv/)
 - [九零重组小家庭](https://www.swazs.com/book/1u7jodm/)
 - [发家致富小夫郎](https://www.swazs.com/book/1u7jhie/)
 - [无限回档，我把自己刷成了女帝](https://www.swazs.com/book/1u7j7o0/)
@@ -71,7 +73,6 @@
 - [科学主义魔法学院](https://www.swazs.com/book/1u7j1tb/)
 - [全球进化，而我保持不变](https://www.swazs.com/book/1u7ivqk/)
 - [我写小说纯粹为了赚钱](https://www.swazs.com/book/1u7ittr/)
-- [万人嫌女配过分漂亮](https://www.swazs.com/book/1u7irbh/)
 - [寄人篱下](https://www.swazs.com/book/1u7ipd9/)
 - [第一游侠[全息]](https://www.swazs.com/book/1u7ipc5/)
 - [高嫁之后](https://www.swazs.com/book/1u7il5t/)
@@ -105,7 +106,6 @@
 - [豪门前妻O总想诱我](https://www.swazs.com/book/1u7hjij/)
 - [恋爱脑毁灭世界](https://www.swazs.com/book/1u7hifr/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.swazs.com/book/1u7hib8/)
-- [兽世种田撸狼首领](https://www.swazs.com/book/1u7hhc4/)
 - [漫画配角的不平凡日常](https://www.swazs.com/book/1u7hf5t/)
 - [重临巅峰[花滑]](https://www.swazs.com/book/1u7he08/)
 - [当我cos了漫画if线主角](https://www.swazs.com/book/1u7hcgl/)
@@ -139,6 +139,8 @@
 - [把清冷权臣调成荡夫后](https://www.swazs.com/book/1u7gke4/)
 - [我真的没想在选秀炒CP](https://www.swazs.com/book/1u7ggvb/)
 - [欢迎来到纳萨力克丧葬公司](https://www.swazs.com/book/1u7gerd/)
+- [养父](https://www.swazs.com/book/1u7gegs/)
+- [在医院旧楼捡到个外科鼻祖](https://www.swazs.com/book/1u7ge8f/)
 - [[群穿]我在御兽番抢人气](https://www.swazs.com/book/1u7gd9t/)
 - [我有一座安全城](https://www.swazs.com/book/1u7filg/)
 - [猫猫也要养家糊口](https://www.swazs.com/book/1u7fige/)

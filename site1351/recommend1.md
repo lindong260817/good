@@ -1,13 +1,14 @@
 
 # 泡泡中文小说-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-08-30 03:39:56
+更新时间：2026-08-31 03:41:03
 
 泡泡中文小说是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
 - [泡泡中文小说](https://www.xiaoshuo288.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.xiaoshuo288.com/book/dm3q43/)
 - [发家致富小夫郎](https://www.xiaoshuo288.com/book/dm3lgs/)
 - [败类游戏](https://www.xiaoshuo288.com/book/dm3j7l/)
 - [游戏角色想和玩家谈恋爱](https://www.xiaoshuo288.com/book/dm3j7k/)
@@ -65,9 +66,11 @@
 - [我真的只会Ctrl啊！！！](https://www.xiaoshuo288.com/book/dm3gnp/)
 - [灭世龙崽有什么错](https://www.xiaoshuo288.com/book/dm39hf/)
 - [九零重组小家庭](https://www.xiaoshuo288.com/book/dm37lf/)
+- [养父](https://www.xiaoshuo288.com/book/dm373l/)
 - [人妻O救赎指南](https://www.xiaoshuo288.com/book/dm372a/)
 - [在虫族世界逃命升级](https://www.xiaoshuo288.com/book/dm333m/)
 - [神豪文男主是我爸](https://www.xiaoshuo288.com/book/dm323i/)
+- [从维多利亚时代开始](https://www.xiaoshuo288.com/book/dm2p9s/)
 - [我有特殊的升官技巧](https://www.xiaoshuo288.com/book/dm2mch/)
 - [十九世纪贵族厨房（美食）](https://www.xiaoshuo288.com/book/dm2ken/)
 - [星际团宠小人鱼](https://www.xiaoshuo288.com/book/dm2k9m/)
@@ -78,7 +81,6 @@
 - [第一游侠[全息]](https://www.xiaoshuo288.com/book/dm1lkv/)
 - [绿叶](https://www.xiaoshuo288.com/book/dm1l62/)
 - [九零首富的替嫁小媳妇](https://www.xiaoshuo288.com/book/dm1k5t/)
-- [万人嫌女配过分漂亮](https://www.xiaoshuo288.com/book/dm1jpd/)
 - [我写小说纯粹为了赚钱](https://www.xiaoshuo288.com/book/dm1jfo/)
 - [始皇闺女躺平失败的日子](https://www.xiaoshuo288.com/book/dm1j12/)
 - [枕边热吻](https://www.xiaoshuo288.com/book/dm1ii0/)
@@ -114,7 +116,6 @@
 - [豪门前妻O总想诱我](https://www.xiaoshuo288.com/book/dm0c6p/)
 - [人在虫族，写文爆红](https://www.xiaoshuo288.com/book/dm0bvn/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.xiaoshuo288.com/book/dm0bbg/)
-- [兽世种田撸狼首领](https://www.xiaoshuo288.com/book/dm0av8/)
 - [恋爱脑毁灭世界](https://www.xiaoshuo288.com/book/dm09f9/)
 - [漫漫仙途](https://www.xiaoshuo288.com/book/dm08ih/)
 - [魔尊和仙帝共坠爱河之后](https://www.xiaoshuo288.com/book/dm06pg/)
@@ -145,6 +146,7 @@
 - [我不是御兽大师](https://www.xiaoshuo288.com/book/dlvenp/)
 - [徐娘子的美食发家日常](https://www.xiaoshuo288.com/book/dlvcne/)
 - [我真的没想在选秀炒CP](https://www.xiaoshuo288.com/book/dlvc3r/)
+- [在医院旧楼捡到个外科鼻祖](https://www.xiaoshuo288.com/book/dlvb23/)
 - [把清冷权臣调成荡夫后](https://www.xiaoshuo288.com/book/dlvale/)
 - [[群穿]我在御兽番抢人气](https://www.xiaoshuo288.com/book/dlvaf1/)
 - [成为养成系练习生后](https://www.xiaoshuo288.com/book/dlue8s/)

@@ -1,13 +1,15 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-08-30 03:36:30
+更新时间：2026-08-31 03:37:36
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。
 
 - [顶点中文小说](https://www.wangrn.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.wangrn.com/book/4bbnev1/)
+- [从维多利亚时代开始](https://www.wangrn.com/book/4bbnd6a/)
 - [九零重组小家庭](https://www.wangrn.com/book/4bbn84l/)
 - [发家致富小夫郎](https://www.wangrn.com/book/4bbn1do/)
 - [猫猫也要被魅魔魅惑吗？](https://www.wangrn.com/book/4bbmnnj/)
@@ -71,7 +73,6 @@
 - [科学主义魔法学院](https://www.wangrn.com/book/4bbmh28/)
 - [全球进化，而我保持不变](https://www.wangrn.com/book/4bbmf0v/)
 - [我写小说纯粹为了赚钱](https://www.wangrn.com/book/4bbmd3m/)
-- [万人嫌女配过分漂亮](https://www.wangrn.com/book/4bbmbs8/)
 - [第一游侠[全息]](https://www.wangrn.com/book/4bbmb8c/)
 - [寄人篱下](https://www.wangrn.com/book/4bbmaj3/)
 - [[全职高手]霸图老板是叶修](https://www.wangrn.com/book/4bbm5rs/)
@@ -103,7 +104,6 @@
 - [青城玩家明明超强却过分谨慎](https://www.wangrn.com/book/4bbl5r3/)
 - [暴君偏头痛](https://www.wangrn.com/book/4bbl42d/)
 - [豪门前妻O总想诱我](https://www.wangrn.com/book/4bbl41k/)
-- [兽世种田撸狼首领](https://www.wangrn.com/book/4bbl2o0/)
 - [恋爱脑毁灭世界](https://www.wangrn.com/book/4bbl25h/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.wangrn.com/book/4bbl1ms/)
 - [重临巅峰[花滑]](https://www.wangrn.com/book/4bbkv39/)
@@ -139,7 +139,9 @@
 - [绿茶病秧子骗他说喜欢](https://www.wangrn.com/book/4bbk2vd/)
 - [我真的没想在选秀炒CP](https://www.wangrn.com/book/4bbk1mt/)
 - [[群穿]我在御兽番抢人气](https://www.wangrn.com/book/4bbjv0s/)
+- [在医院旧楼捡到个外科鼻祖](https://www.wangrn.com/book/4bbjuiu/)
 - [欢迎来到纳萨力克丧葬公司](https://www.wangrn.com/book/4bbjuf5/)
+- [养父](https://www.wangrn.com/book/4bbjt66/)
 - [穿成炮灰后我封神了［快穿］](https://www.wangrn.com/book/4bbj2gb/)
 - [清澈女大的六零年代](https://www.wangrn.com/book/4bbj2ga/)
 - [如何扮演源氏重宝](https://www.wangrn.com/book/4bbj2eu/)

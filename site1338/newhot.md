@@ -1,34 +1,37 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-08-30 03:23:00
+更新时间：2026-08-31 03:24:11
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。
 
 - [笔下文学](https://www.fshxjd.com/)
 
 ## 最新小说
-- [我的烧烤摊超美味[美食]](https://www.fshxjd.com/book/74i3ltr/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.fshxjd.com/book/74i3ltp/)
+- [阿竹与野桃](https://www.fshxjd.com/book/74i3lrb/)
 - [我有嘉宾](https://www.fshxjd.com/book/74i3ap1/)
 - [你，后室管理员](https://www.fshxjd.com/book/74i35l8/)
 - [星际团宠小人鱼](https://www.fshxjd.com/book/74i35i1/)
 - [分手后与诱系妻子再度热恋](https://www.fshxjd.com/book/74i35h8/)
+- [男朋友买一送一](https://www.fshxjd.com/book/74i1r02/)
 - [高调装神，猥琐发育](https://www.fshxjd.com/book/74i1qt1/)
+- [直男咒术师的限制级游戏](https://www.fshxjd.com/book/74i1j0m/)
+- [失而复得的白月光[快穿]](https://www.fshxjd.com/book/74i1bmh/)
 - [如何正确哄睡暴君](https://www.fshxjd.com/book/74i19fl/)
-- [漫画路人绑定系统后](https://www.fshxjd.com/book/74i0hsp/)
+- [寻真](https://www.fshxjd.com/book/74i18hk/)
+- [我不可能舔一个漂亮捞子](https://www.fshxjd.com/book/74i0vcb/)
+- [沈助理又在隐藏他的超能力](https://www.fshxjd.com/book/74i0uov/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.fshxjd.com/book/74i0hg4/)
 - [微臣怜惜公主](https://www.fshxjd.com/book/74i0eqj/)
 - [被鬼怪宠爱的漂亮书生](https://www.fshxjd.com/book/74i0eec/)
 - [他要和我谈恋爱](https://www.fshxjd.com/book/74i0cqp/)
-- [多梦你一会儿](https://www.fshxjd.com/book/74i0cip/)
 - [拯救世界从扮演反派开始](https://www.fshxjd.com/book/74i0a7t/)
-- [[足球]能不能好好模拟游戏](https://www.fshxjd.com/book/74i0a1t/)
-- [老公是松散生命体](https://www.fshxjd.com/book/74i0229/)
-- [一枝枝怨](https://www.fshxjd.com/book/74i01j5/)
+- [青空来信](https://www.fshxjd.com/book/74i054j/)
+- [[封神]圣人生欲](https://www.fshxjd.com/book/74i053h/)
+- [某柯学的正义伙伴](https://www.fshxjd.com/book/74i04tr/)
 - [纯爱宇智波基本恋爱法](https://www.fshxjd.com/book/74i01di/)
 - [[足球]罗蜜第一志愿](https://www.fshxjd.com/book/74hvu9j/)
 - [井闼山经理每天都被挖墙脚](https://www.fshxjd.com/book/74hvsfi/)
-- [战死的阿爹回来了[年代]](https://www.fshxjd.com/book/74hvqcp/)
 - [好兄弟暴富后非要跟我结婚](https://www.fshxjd.com/book/74hvhfr/)
 - [关于我虚构了一个男友这件事](https://www.fshxjd.com/book/74hvhbl/)
 ## 相关内容

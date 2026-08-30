@@ -1,13 +1,14 @@
 
 # 精英文学 - 书友最值得收藏的小说免费阅读网
 
-更新时间：2026-08-30 03:39:13
+更新时间：2026-08-31 03:40:19
 
 精英文学为您提供一个干净舒适的阅读环境，作为书友最值得收藏的小说免费阅读网之一，我们致力于打造无广告干扰的最佳在线阅读体验。
 
 - [精英文学](https://www.xcposji.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.xcposji.com/book/jnmie5/)
 - [发家致富小夫郎](https://www.xcposji.com/book/jnmckv/)
 - [九零重组小家庭](https://www.xcposji.com/book/jnm8cn/)
 - [下潜一万米，海渊求生](https://www.xcposji.com/book/jnm809/)
@@ -66,9 +67,11 @@
 - [在虫族世界逃命升级](https://www.xcposji.com/book/jnm50q/)
 - [神豪文男主是我爸](https://www.xcposji.com/book/jnm3on/)
 - [我真的只会Ctrl啊！！！](https://www.xcposji.com/book/jnm208/)
+- [从维多利亚时代开始](https://www.xcposji.com/book/jnlror/)
 - [我有特殊的升官技巧](https://www.xcposji.com/book/jnloqc/)
 - [反派人生，易如反掌[快穿]](https://www.xcposji.com/book/jnll9d/)
 - [人妻O救赎指南](https://www.xcposji.com/book/jnldf9/)
+- [养父](https://www.xcposji.com/book/jnldem/)
 - [摄政王家的咸鱼夫郎](https://www.xcposji.com/book/jnl15r/)
 - [绿叶](https://www.xcposji.com/book/jnktnj/)
 - [枕边热吻](https://www.xcposji.com/book/jnktmo/)
@@ -78,7 +81,6 @@
 - [第一游侠[全息]](https://www.xcposji.com/book/jnkosg/)
 - [科学主义魔法学院](https://www.xcposji.com/book/jnkoms/)
 - [始皇闺女躺平失败的日子](https://www.xcposji.com/book/jnkmnn/)
-- [万人嫌女配过分漂亮](https://www.xcposji.com/book/jnkm9l/)
 - [误标记隔壁阿姨O之后](https://www.xcposji.com/book/jnkhgm/)
 - [当菟丝花要分手后](https://www.xcposji.com/book/jnkgl5/)
 - [不当救世主就要当人类恶了吗](https://www.xcposji.com/book/jnkgbk/)
@@ -107,7 +109,6 @@
 - [龙傲天他解锁宠妻系统](https://www.xcposji.com/book/jnji74/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.xcposji.com/book/jnjfb6/)
 - [恋爱脑毁灭世界](https://www.xcposji.com/book/jnjdq8/)
-- [兽世种田撸狼首领](https://www.xcposji.com/book/jnjccb/)
 - [青城玩家明明超强却过分谨慎](https://www.xcposji.com/book/jnjbgn/)
 - [漫画配角的不平凡日常](https://www.xcposji.com/book/jnjbdg/)
 - [当我cos了漫画if线主角](https://www.xcposji.com/book/jnj9v0/)
@@ -139,6 +140,7 @@
 - [把清冷权臣调成荡夫后](https://www.xcposji.com/book/jnigm6/)
 - [我真的没想在选秀炒CP](https://www.xcposji.com/book/jniee8/)
 - [[群穿]我在御兽番抢人气](https://www.xcposji.com/book/jnidl2/)
+- [在医院旧楼捡到个外科鼻祖](https://www.xcposji.com/book/jnid9q/)
 - [欢迎来到纳萨力克丧葬公司](https://www.xcposji.com/book/jnibdh/)
 - [我，恶女，在线搞事](https://www.xcposji.com/book/jni8i3/)
 - [高门小婢](https://www.xcposji.com/book/jnhggt/)

@@ -1,13 +1,14 @@
 
 # 奇幻凤影台小说-都市玄幻言情仙侠免费小说在线阅读
 
-更新时间：2026-08-30 03:31:25
+更新时间：2026-08-31 03:32:33
 
 奇幻凤影台小说提供都市玄幻、言情仙侠等类型的小说在线免费阅读服务。让您的通勤路上不再无聊，无论是日常出行还是夜晚静谧时刻，总有一本好书陪伴您度过美好时光。
 
 - [奇幻凤影台小说](https://www.qihuan868.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.qihuan868.com/book/42ido6s/)
 - [发家致富小夫郎](https://www.qihuan868.com/book/42idjjh/)
 - [[原神+崩铁]在提瓦特隐居也未尝不可](https://www.qihuan868.com/book/42idhb5/)
 - [撕碎[刑侦]](https://www.qihuan868.com/book/42idhb3/)
@@ -65,9 +66,11 @@
 - [我真的只会Ctrl啊！！！](https://www.qihuan868.com/book/42ideri/)
 - [灭世龙崽有什么错](https://www.qihuan868.com/book/42id7j4/)
 - [九零重组小家庭](https://www.qihuan868.com/book/42id5si/)
+- [养父](https://www.qihuan868.com/book/42id5br/)
 - [人妻O救赎指南](https://www.qihuan868.com/book/42id583/)
 - [在虫族世界逃命升级](https://www.qihuan868.com/book/42id15d/)
 - [神豪文男主是我爸](https://www.qihuan868.com/book/42id092/)
+- [从维多利亚时代开始](https://www.qihuan868.com/book/42icngl/)
 - [我有特殊的升官技巧](https://www.qihuan868.com/book/42icko4/)
 - [十九世纪贵族厨房（美食）](https://www.qihuan868.com/book/42icijr/)
 - [星际团宠小人鱼](https://www.qihuan868.com/book/42icifb/)
@@ -80,7 +83,6 @@
 - [枕边热吻](https://www.qihuan868.com/book/42ibikp/)
 - [我写小说纯粹为了赚钱](https://www.qihuan868.com/book/42ibigl/)
 - [寄人篱下](https://www.qihuan868.com/book/42ibht7/)
-- [万人嫌女配过分漂亮](https://www.qihuan868.com/book/42ibhk1/)
 - [始皇闺女躺平失败的日子](https://www.qihuan868.com/book/42ibhhk/)
 - [九零首富的替嫁小媳妇](https://www.qihuan868.com/book/42ibh25/)
 - [为诡异打工，但反封建迷信](https://www.qihuan868.com/book/42ibbsn/)
@@ -114,7 +116,6 @@
 - [豪门前妻O总想诱我](https://www.qihuan868.com/book/42iacgs/)
 - [人在虫族，写文爆红](https://www.qihuan868.com/book/42iacc2/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.qihuan868.com/book/42ia920/)
-- [兽世种田撸狼首领](https://www.qihuan868.com/book/42ia85a/)
 - [恋爱脑毁灭世界](https://www.qihuan868.com/book/42ia7c6/)
 - [漫画配角的不平凡日常](https://www.qihuan868.com/book/42ia6pl/)
 - [漫漫仙途](https://www.qihuan868.com/book/42ia6bu/)
@@ -146,6 +147,7 @@
 - [徐娘子的美食发家日常](https://www.qihuan868.com/book/42i9civ/)
 - [我真的没想在选秀炒CP](https://www.qihuan868.com/book/42i9anm/)
 - [[群穿]我在御兽番抢人气](https://www.qihuan868.com/book/42i98pc/)
+- [在医院旧楼捡到个外科鼻祖](https://www.qihuan868.com/book/42i986c/)
 - [把清冷权臣调成荡夫后](https://www.qihuan868.com/book/42i97sd/)
 - [大瑛弟国](https://www.qihuan868.com/book/42i8cd9/)
 - [古代种田养娃日常](https://www.qihuan868.com/book/42i8c6r/)

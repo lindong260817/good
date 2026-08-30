@@ -1,13 +1,14 @@
 
 # 文学小说网手机版_好看的文学小说TXT下载,无弹窗手机小说网
 
-更新时间：2026-08-30 03:37:09
+更新时间：2026-08-31 03:38:16
 
 文学小说网收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者最值得收藏的网络小说阅读网,精彩小说尽在文学小说网(无弹窗小说网)。
 
 - [文学小说网](https://www.wenxue521.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.wenxue521.com/book/93olsi4/)
 - [发家致富小夫郎](https://www.wenxue521.com/book/93olsi3/)
 - [无限回档，我把自己刷成了女帝](https://www.wenxue521.com/book/93olsi1/)
 - [折禅（强取豪夺）](https://www.wenxue521.com/book/93olsi0/)
@@ -68,6 +69,7 @@
 - [[娱乐圈]穿进同人文里哦多尅](https://www.wenxue521.com/book/93olsda/)
 - [我们生活玩家是这样的](https://www.wenxue521.com/book/93olsd6/)
 - [游戏角色想和玩家谈恋爱](https://www.wenxue521.com/book/93olsd2/)
+- [养父](https://www.wenxue521.com/book/93olscu/)
 - [星际团宠小人鱼](https://www.wenxue521.com/book/93olsc5/)
 - [十九世纪贵族厨房（美食）](https://www.wenxue521.com/book/93olsc4/)
 - [九零首富的替嫁小媳妇](https://www.wenxue521.com/book/93olsbj/)
@@ -83,6 +85,7 @@
 - [灭世龙崽有什么错](https://www.wenxue521.com/book/93ok76b/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.wenxue521.com/book/93ok66f/)
 - [九零重组小家庭](https://www.wenxue521.com/book/93ok5l1/)
+- [从维多利亚时代开始](https://www.wenxue521.com/book/93ojidq/)
 - [我有特殊的升官技巧](https://www.wenxue521.com/book/93ojft5/)
 - [御兽师，我打工养你啊](https://www.wenxue521.com/book/93ojdfs/)
 - [反派人生，易如反掌[快穿]](https://www.wenxue521.com/book/93ojca0/)
@@ -100,7 +103,6 @@
 - [第一游侠[全息]](https://www.wenxue521.com/book/93oie90/)
 - [始皇闺女躺平失败的日子](https://www.wenxue521.com/book/93oi9ud/)
 - [摄政王家的咸鱼夫郎](https://www.wenxue521.com/book/93oi8no/)
-- [万人嫌女配过分漂亮](https://www.wenxue521.com/book/93oi7pl/)
 - [寄人篱下](https://www.wenxue521.com/book/93oi5qu/)
 - [全球进化，而我保持不变](https://www.wenxue521.com/book/93oi4jc/)
 - [当我穿为龙傲天的情敌](https://www.wenxue521.com/book/t5nmru/)
@@ -134,7 +136,6 @@
 - [你是我的根目录](https://www.wenxue521.com/book/t5mcdt/)
 - [恋爱脑毁灭世界](https://www.wenxue521.com/book/t5mc15/)
 - [魔尊和仙帝共坠爱河之后](https://www.wenxue521.com/book/t5mbd1/)
-- [兽世种田撸狼首领](https://www.wenxue521.com/book/t5m8a8/)
 - [直男误入攻略天龙人游戏](https://www.wenxue521.com/book/t5m5hr/)
 - [穿越废星，我靠种田求生](https://www.wenxue521.com/book/t5m36a/)
 - [[综港影]野生情人出没地](https://www.wenxue521.com/book/t5m2nv/)
@@ -156,6 +157,7 @@
 - [绿茶病秧子骗他说喜欢](https://www.wenxue521.com/book/t5lnc7/)
 - [搭档，一起来玩求生游戏吧！](https://www.wenxue521.com/book/t5lmi1/)
 - [把清冷权臣调成荡夫后](https://www.wenxue521.com/book/t5ll8e/)
+- [在医院旧楼捡到个外科鼻祖](https://www.wenxue521.com/book/t5ljpl/)
 - [海岛求生：生活玩家种田囤货](https://www.wenxue521.com/book/2tbom7/)
 - [高门小婢](https://www.wenxue521.com/book/2tboku/)
 - [我有一座安全城](https://www.wenxue521.com/book/2tbok3/)
