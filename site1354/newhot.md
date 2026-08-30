@@ -1,7 +1,7 @@
 
 # 阅读大文学 - 弘扬华夏文化的综合小说阅读平台
 
-更新时间：2026-08-30 03:41:26
+更新时间：2026-08-31 03:42:34
 
 阅读大文学致力于弘扬华夏文化，提供丰富的小说资源供免费阅读，涵盖但不限于古典文学、现代文学、当代文学及各类流行小说如言情、都市、玄幻等。
 
@@ -16,25 +16,31 @@
 - [星际团宠小人鱼](https://www.yuedu188.com/book/1egq7tn/)
 - [分手后与诱系妻子再度热恋](https://www.yuedu188.com/book/1egq7ri/)
 - [高调装神，猥琐发育](https://www.yuedu188.com/book/1egq124/)
+- [男朋友买一送一](https://www.yuedu188.com/book/1egpm0h/)
+- [失而复得的白月光[快穿]](https://www.yuedu188.com/book/1egpduf/)
 - [如何正确哄睡暴君](https://www.yuedu188.com/book/1egpcjo/)
+- [寻真](https://www.yuedu188.com/book/1egp3pi/)
+- [我不可能舔一个漂亮捞子](https://www.yuedu188.com/book/1egp39u/)
 - [被鬼怪宠爱的漂亮书生](https://www.yuedu188.com/book/4kupr0/)
-- [老公是松散生命体](https://www.yuedu188.com/book/4kup6g/)
+- [沈助理又在隐藏他的超能力](https://www.yuedu188.com/book/4kuo0v/)
 - [微臣怜惜公主](https://www.yuedu188.com/book/4kunau/)
 - [他要和我谈恋爱](https://www.yuedu188.com/book/4kuc10/)
-- [多梦你一会儿](https://www.yuedu188.com/book/4ku7mq/)
-- [漫画路人绑定系统后](https://www.yuedu188.com/book/4ku6pv/)
-- [战死的阿爹回来了[年代]](https://www.yuedu188.com/book/4ku68t/)
-- [[足球]能不能好好模拟游戏](https://www.yuedu188.com/book/4ku378/)
+- [[封神]圣人生欲](https://www.yuedu188.com/book/4ku7a2/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.yuedu188.com/book/4ku6er/)
+- [青空来信](https://www.yuedu188.com/book/4ktvge/)
 - [[足球]罗蜜第一志愿](https://www.yuedu188.com/book/4ktush/)
-- [一枝枝怨](https://www.yuedu188.com/book/4kts1c/)
+- [某柯学的正义伙伴](https://www.yuedu188.com/book/4kttkk/)
 - [井闼山经理每天都被挖墙脚](https://www.yuedu188.com/book/4ktqpd/)
 - [[足球]小小鸟堂堂来袭](https://www.yuedu188.com/book/4kth6v/)
+- [侯府打工人](https://www.yuedu188.com/book/4ktckp/)
 - [好兄弟暴富后非要跟我结婚](https://www.yuedu188.com/book/4ktbta/)
 - [法外狂猫](https://www.yuedu188.com/book/4kt8nt/)
 - [关于我虚构了一个男友这件事](https://www.yuedu188.com/book/4kt7iv/)
+- [契约情人](https://www.yuedu188.com/book/4kt736/)
 - [和室友他爸恋爱后](https://www.yuedu188.com/book/4kt0bl/)
 - [拯救世界从扮演反派开始](https://www.yuedu188.com/book/esf7u/)
 - [纯爱宇智波基本恋爱法](https://www.yuedu188.com/book/eseba/)
+- [直男咒术师的限制级游戏](https://www.yuedu188.com/book/ese05/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1354/index.md)

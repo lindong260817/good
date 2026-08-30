@@ -1,13 +1,14 @@
 
 # 情感小说-精彩小说推荐网,涵盖言情都市历史科幻等多种类型
 
-更新时间：2026-08-30 03:31:55
+更新时间：2026-08-31 03:33:02
 
 情感小说致力于为广大书友推荐各种类型好看的小说，包括但不限于言情、都市、历史、科幻、灵异、军事、悬疑、玄幻、武侠、末世等。看小说，找小说就上书格格小说推荐网！
 
 - [情感小说](https://www.qinggan1687.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.qinggan1687.com/book/3qc5d93/)
 - [发家致富小夫郎](https://www.qinggan1687.com/book/3qc58m3/)
 - [始乱终弃高岭之花以后](https://www.qinggan1687.com/book/3qc56cu/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.qinggan1687.com/book/3qc56ct/)
@@ -66,8 +67,10 @@
 - [灭世龙崽有什么错](https://www.qinggan1687.com/book/3qc4ss5/)
 - [九零重组小家庭](https://www.qinggan1687.com/book/3qc4r5n/)
 - [人妻O救赎指南](https://www.qinggan1687.com/book/3qc4q3k/)
+- [养父](https://www.qinggan1687.com/book/3qc4q1m/)
 - [在虫族世界逃命升级](https://www.qinggan1687.com/book/3qc4me6/)
 - [神豪文男主是我爸](https://www.qinggan1687.com/book/3qc4li5/)
+- [从维多利亚时代开始](https://www.qinggan1687.com/book/3qc4cp5/)
 - [我有特殊的升官技巧](https://www.qinggan1687.com/book/3qc4a0l/)
 - [十九世纪贵族厨房（美食）](https://www.qinggan1687.com/book/3qc4752/)
 - [星际团宠小人鱼](https://www.qinggan1687.com/book/3qc474b/)
@@ -77,7 +80,6 @@
 - [全球进化，而我保持不变](https://www.qinggan1687.com/book/3qc3br2/)
 - [第一游侠[全息]](https://www.qinggan1687.com/book/3qc3ava/)
 - [绿叶](https://www.qinggan1687.com/book/3qc39ks/)
-- [万人嫌女配过分漂亮](https://www.qinggan1687.com/book/3qc37l4/)
 - [九零首富的替嫁小媳妇](https://www.qinggan1687.com/book/3qc36so/)
 - [始皇闺女躺平失败的日子](https://www.qinggan1687.com/book/3qc3680/)
 - [我写小说纯粹为了赚钱](https://www.qinggan1687.com/book/3qc35fv/)
@@ -114,7 +116,6 @@
 - [豪门前妻O总想诱我](https://www.qinggan1687.com/book/3qc1vok/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.qinggan1687.com/book/3qc1vcq/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.qinggan1687.com/book/3qc1v5e/)
-- [兽世种田撸狼首领](https://www.qinggan1687.com/book/3qc1ub3/)
 - [恋爱脑毁灭世界](https://www.qinggan1687.com/book/3qc1sm9/)
 - [漫漫仙途](https://www.qinggan1687.com/book/3qc1ros/)
 - [漫画配角的不平凡日常](https://www.qinggan1687.com/book/3qc1r3i/)
@@ -146,6 +147,7 @@
 - [徐娘子的美食发家日常](https://www.qinggan1687.com/book/3qc11ap/)
 - [我真的没想在选秀炒CP](https://www.qinggan1687.com/book/3qc10sn/)
 - [把清冷权臣调成荡夫后](https://www.qinggan1687.com/book/3qc0ui1/)
+- [在医院旧楼捡到个外科鼻祖](https://www.qinggan1687.com/book/3qc0tg1/)
 - [[群穿]我在御兽番抢人气](https://www.qinggan1687.com/book/3qc0t0l/)
 - [假少爷不想活了](https://www.qinggan1687.com/book/3qc01n7/)
 - [清澈女大的六零年代](https://www.qinggan1687.com/book/3qc01g1/)

@@ -1,13 +1,14 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-30 03:36:11
+更新时间：2026-08-31 03:37:18
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
 - [读读窝小说网](https://www.tiananfoundry.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.tiananfoundry.com/book/1ol4n03/)
 - [发家致富小夫郎](https://www.tiananfoundry.com/book/1ol4n02/)
 - [被怪物女友始乱终弃后[gb]](https://www.tiananfoundry.com/book/1ol4mvu/)
 - [[足球]顶级名帅](https://www.tiananfoundry.com/book/1ol4mvt/)
@@ -68,6 +69,7 @@
 - [无限回档，我把自己刷成了女帝](https://www.tiananfoundry.com/book/1ol4mr2/)
 - [[综英美]让我统治哥谭！！！](https://www.tiananfoundry.com/book/1ol4mr1/)
 - [我的NPC队友全是火影天花板](https://www.tiananfoundry.com/book/1ol4mr0/)
+- [养父](https://www.tiananfoundry.com/book/1ol4mqt/)
 - [九零首富的替嫁小媳妇](https://www.tiananfoundry.com/book/1ol4mq9/)
 - [十九世纪贵族厨房（美食）](https://www.tiananfoundry.com/book/1ol4mpo/)
 - [星际团宠小人鱼](https://www.tiananfoundry.com/book/1ol4mol/)
@@ -83,6 +85,7 @@
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.tiananfoundry.com/book/1ol303i/)
 - [灭世龙崽有什么错](https://www.tiananfoundry.com/book/1ol2q8l/)
 - [九零重组小家庭](https://www.tiananfoundry.com/book/1ol2kj1/)
+- [从维多利亚时代开始](https://www.tiananfoundry.com/book/1ol2au7/)
 - [我有特殊的升官技巧](https://www.tiananfoundry.com/book/1ol28eg/)
 - [御兽师，我打工养你啊](https://www.tiananfoundry.com/book/1ol26b8/)
 - [反派人生，易如反掌[快穿]](https://www.tiananfoundry.com/book/1ol24ub/)
@@ -99,7 +102,6 @@
 - [人妻O救赎指南](https://www.tiananfoundry.com/book/1ol1870/)
 - [第一游侠[全息]](https://www.tiananfoundry.com/book/1ol1823/)
 - [摄政王家的咸鱼夫郎](https://www.tiananfoundry.com/book/1ol13u2/)
-- [万人嫌女配过分漂亮](https://www.tiananfoundry.com/book/1ol122f/)
 - [寄人篱下](https://www.tiananfoundry.com/book/1ol11lr/)
 - [始皇闺女躺平失败的日子](https://www.tiananfoundry.com/book/1ol11if/)
 - [全球进化，而我保持不变](https://www.tiananfoundry.com/book/1ol10ce/)
@@ -133,7 +135,6 @@
 - [重临巅峰[花滑]](https://www.tiananfoundry.com/book/5lb3ag/)
 - [你是我的根目录](https://www.tiananfoundry.com/book/5lb1t5/)
 - [恋爱脑毁灭世界](https://www.tiananfoundry.com/book/5lb1j3/)
-- [兽世种田撸狼首领](https://www.tiananfoundry.com/book/5lb0ek/)
 - [魔尊和仙帝共坠爱河之后](https://www.tiananfoundry.com/book/5lavrt/)
 - [直男误入攻略天龙人游戏](https://www.tiananfoundry.com/book/5lat2e/)
 - [穿越废星，我靠种田求生](https://www.tiananfoundry.com/book/5laqcn/)
@@ -156,6 +157,7 @@
 - [绿茶病秧子骗他说喜欢](https://www.tiananfoundry.com/book/5ladud/)
 - [搭档，一起来玩求生游戏吧！](https://www.tiananfoundry.com/book/5ladpt/)
 - [徐娘子的美食发家日常](https://www.tiananfoundry.com/book/5lad1l/)
+- [在医院旧楼捡到个外科鼻祖](https://www.tiananfoundry.com/book/5laav7/)
 - [科学主义魔法学院](https://www.tiananfoundry.com/book/i47fl/)
 - [猫猫也要养家糊口](https://www.tiananfoundry.com/book/i47b4/)
 - [高门小婢](https://www.tiananfoundry.com/book/i476h/)

@@ -1,13 +1,14 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-08-30 03:42:13
+更新时间：2026-08-31 03:43:21
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
 - [酷匠小说网](https://www.yumin66.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.yumin66.com/book/5q5nc6/)
 - [发家致富小夫郎](https://www.yumin66.com/book/5q5nc5/)
 - [被怪物女友始乱终弃后[gb]](https://www.yumin66.com/book/5q5nc4/)
 - [乖乖小宝被豪门长兄娇养了](https://www.yumin66.com/book/5q5nc3/)
@@ -68,6 +69,7 @@
 - [[娱乐圈]穿进同人文里哦多尅](https://www.yumin66.com/book/5q5n7b/)
 - [游戏boss们抢着要当我的猫[全息]](https://www.yumin66.com/book/5q5n7a/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yumin66.com/book/5q5n74/)
+- [养父](https://www.yumin66.com/book/5q5n70/)
 - [星际团宠小人鱼](https://www.yumin66.com/book/5q5n58/)
 - [十九世纪贵族厨房（美食）](https://www.yumin66.com/book/5q5n54/)
 - [九零首富的替嫁小媳妇](https://www.yumin66.com/book/5q5n4l/)
@@ -83,6 +85,7 @@
 - [九零重组小家庭](https://www.yumin66.com/book/5q45vl/)
 - [灭世龙崽有什么错](https://www.yumin66.com/book/5q3vgq/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.yumin66.com/book/5q3msv/)
+- [从维多利亚时代开始](https://www.yumin66.com/book/5q3dip/)
 - [我有特殊的升官技巧](https://www.yumin66.com/book/5q3avk/)
 - [御兽师，我打工养你啊](https://www.yumin66.com/book/5q38m5/)
 - [反派人生，易如反掌[快穿]](https://www.yumin66.com/book/5q378i/)
@@ -101,7 +104,6 @@
 - [始皇闺女躺平失败的日子](https://www.yumin66.com/book/5q25ic/)
 - [摄政王家的咸鱼夫郎](https://www.yumin66.com/book/5q243a/)
 - [寄人篱下](https://www.yumin66.com/book/5q21ah/)
-- [万人嫌女配过分漂亮](https://www.yumin66.com/book/5q20t0/)
 - [全球进化，而我保持不变](https://www.yumin66.com/book/5q1vh0/)
 - [当我穿为龙傲天的情敌](https://www.yumin66.com/book/im3oe/)
 - [不当救世主就要当人类恶了吗](https://www.yumin66.com/book/im19a/)
@@ -134,7 +136,6 @@
 - [魔尊和仙帝共坠爱河之后](https://www.yumin66.com/book/ikofi/)
 - [你是我的根目录](https://www.yumin66.com/book/iko3k/)
 - [恋爱脑毁灭世界](https://www.yumin66.com/book/ikng2/)
-- [兽世种田撸狼首领](https://www.yumin66.com/book/ikkgn/)
 - [直男误入攻略天龙人游戏](https://www.yumin66.com/book/ikhsd/)
 - [[综港影]野生情人出没地](https://www.yumin66.com/book/ikfue/)
 - [穿越废星，我靠种田求生](https://www.yumin66.com/book/ikec6/)
@@ -156,6 +157,7 @@
 - [搭档，一起来玩求生游戏吧！](https://www.yumin66.com/book/ik3du/)
 - [绿茶病秧子骗他说喜欢](https://www.yumin66.com/book/ik2m7/)
 - [把清冷权臣调成荡夫后](https://www.yumin66.com/book/ik1pc/)
+- [在医院旧楼捡到个外科鼻祖](https://www.yumin66.com/book/ik0ot/)
 - [科学主义魔法学院](https://www.yumin66.com/book/1rjcc/)
 - [95美国贵族高中模拟](https://www.yumin66.com/book/1rja6/)
 - [替嫁后咸鱼继母佛系日常](https://www.yumin66.com/book/1rj99/)

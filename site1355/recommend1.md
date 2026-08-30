@@ -1,13 +1,14 @@
 
 # 梦翔橙子小说网-全本小说最值得收藏的在线阅读平台
 
-更新时间：2026-08-30 03:29:46
+更新时间：2026-08-31 03:30:53
 
 梦翔橙子小说网为您提供最新、最热门的小说资源，拥有全网最全面的小说库。无论是全本还是连载中，都能在这里找到。是解决书荒问题的理想选择，让您的阅读体验更加流畅愉快。
 
 - [梦翔橙子小说网](https://www.mengxiang668.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.mengxiang668.com/book/2nrq1tt/)
 - [发家致富小夫郎](https://www.mengxiang668.com/book/2nrpt9f/)
 - [[原神+崩铁]在提瓦特隐居也未尝不可](https://www.mengxiang668.com/book/2nrpr0l/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.mengxiang668.com/book/2nrpr0h/)
@@ -65,9 +66,11 @@
 - [我真的只会Ctrl啊！！！](https://www.mengxiang668.com/book/2nrpoji/)
 - [灭世龙崽有什么错](https://www.mengxiang668.com/book/2nrphke/)
 - [九零重组小家庭](https://www.mengxiang668.com/book/2nrpfof/)
+- [养父](https://www.mengxiang668.com/book/2nrpeke/)
 - [人妻O救赎指南](https://www.mengxiang668.com/book/2nrpejl/)
 - [在虫族世界逃命升级](https://www.mengxiang668.com/book/2nrpb3t/)
 - [神豪文男主是我爸](https://www.mengxiang668.com/book/2nrpacv/)
+- [从维多利亚时代开始](https://www.mengxiang668.com/book/2nrp1jp/)
 - [我有特殊的升官技巧](https://www.mengxiang668.com/book/2nroumt/)
 - [星际团宠小人鱼](https://www.mengxiang668.com/book/2nrorla/)
 - [十九世纪贵族厨房（美食）](https://www.mengxiang668.com/book/2nroriu/)
@@ -82,7 +85,6 @@
 - [寄人篱下](https://www.mengxiang668.com/book/2nrnr26/)
 - [始皇闺女躺平失败的日子](https://www.mengxiang668.com/book/2nrnqst/)
 - [枕边热吻](https://www.mengxiang668.com/book/2nrnq4g/)
-- [万人嫌女配过分漂亮](https://www.mengxiang668.com/book/2nrnq40/)
 - [误标记隔壁阿姨O之后](https://www.mengxiang668.com/book/2nrnm09/)
 - [为诡异打工，但反封建迷信](https://www.mengxiang668.com/book/2nrnlrj/)
 - [不当救世主就要当人类恶了吗](https://www.mengxiang668.com/book/2nrnj1q/)
@@ -113,7 +115,6 @@
 - [井闼山经理每天都被挖墙脚](https://www.mengxiang668.com/book/2nrmmbt/)
 - [豪门前妻O总想诱我](https://www.mengxiang668.com/book/2nrmm6k/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.mengxiang668.com/book/2nrmko7/)
-- [兽世种田撸狼首领](https://www.mengxiang668.com/book/2nrmjov/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.mengxiang668.com/book/2nrmjgu/)
 - [恋爱脑毁灭世界](https://www.mengxiang668.com/book/2nrmhb0/)
 - [漫画配角的不平凡日常](https://www.mengxiang668.com/book/2nrmg4b/)
@@ -146,6 +147,7 @@
 - [徐娘子的美食发家日常](https://www.mengxiang668.com/book/2nrllim/)
 - [我真的没想在选秀炒CP](https://www.mengxiang668.com/book/2nrll46/)
 - [把清冷权臣调成荡夫后](https://www.mengxiang668.com/book/2nrlj6j/)
+- [在医院旧楼捡到个外科鼻祖](https://www.mengxiang668.com/book/2nrlih2/)
 - [[群穿]我在御兽番抢人气](https://www.mengxiang668.com/book/2nrli2g/)
 - [警察，但犯罪大师系统[刑侦]](https://www.mengxiang668.com/book/2nrkmb2/)
 - [科学主义魔法学院](https://www.mengxiang668.com/book/2nrkm44/)

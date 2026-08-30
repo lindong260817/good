@@ -1,13 +1,15 @@
 
 # 小顽童寻书网-最热门的免费小说阅读平台|全本玄幻言情网游穿越都市小说在线阅读
 
-更新时间：2026-08-30 03:40:29
+更新时间：2026-08-31 03:41:36
 
 小顽童寻书网提供一个无广告、无弹窗干扰的环境，让您享受纯净的小说阅读体验。涵盖玄幻、网游、言情、穿越、都市等多种类型的小说资源，在这里可以找到最新的章节更新以及完整的书籍内容。
 
 - [小顽童寻书网](https://www.xwt999.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.xwt999.com/book/1u5mu2o/)
+- [从维多利亚时代开始](https://www.xwt999.com/book/1u5msad/)
 - [九零重组小家庭](https://www.xwt999.com/book/1u5mn22/)
 - [发家致富小夫郎](https://www.xwt999.com/book/1u5mgaj/)
 - [灭世龙崽有什么错](https://www.xwt999.com/book/1u5m6cv/)
@@ -71,7 +73,6 @@
 - [全球进化，而我保持不变](https://www.xwt999.com/book/1u5lule/)
 - [科学主义魔法学院](https://www.xwt999.com/book/1u5lueg/)
 - [我写小说纯粹为了赚钱](https://www.xwt999.com/book/1u5lt36/)
-- [万人嫌女配过分漂亮](https://www.xwt999.com/book/1u5lqro/)
 - [第一游侠[全息]](https://www.xwt999.com/book/1u5lpeh/)
 - [寄人篱下](https://www.xwt999.com/book/1u5lp29/)
 - [[全职高手]霸图老板是叶修](https://www.xwt999.com/book/1u5lksq/)
@@ -105,7 +106,6 @@
 - [青城玩家明明超强却过分谨慎](https://www.xwt999.com/book/1u5kimp/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.xwt999.com/book/1u5kh3c/)
 - [恋爱脑毁灭世界](https://www.xwt999.com/book/1u5kgu7/)
-- [兽世种田撸狼首领](https://www.xwt999.com/book/1u5kgfu/)
 - [漫画配角的不平凡日常](https://www.xwt999.com/book/1u5kepk/)
 - [重临巅峰[花滑]](https://www.xwt999.com/book/1u5kd24/)
 - [魔尊和仙帝共坠爱河之后](https://www.xwt999.com/book/1u5kbas/)
@@ -138,8 +138,10 @@
 - [把清冷权臣调成荡夫后](https://www.xwt999.com/book/1u5jiig/)
 - [绿茶病秧子骗他说喜欢](https://www.xwt999.com/book/1u5jhu5/)
 - [我真的没想在选秀炒CP](https://www.xwt999.com/book/1u5jg1j/)
+- [养父](https://www.xwt999.com/book/1u5jee4/)
 - [欢迎来到纳萨力克丧葬公司](https://www.xwt999.com/book/1u5jed2/)
 - [[群穿]我在御兽番抢人气](https://www.xwt999.com/book/1u5jdlh/)
+- [在医院旧楼捡到个外科鼻祖](https://www.xwt999.com/book/1u5jddj/)
 - [全民求生:从小木屋到魔法农场](https://www.xwt999.com/book/1u5ihme/)
 - [为诡异打工，但反封建迷信](https://www.xwt999.com/book/1u5ihh6/)
 - [巨物致富：回乡开钓场](https://www.xwt999.com/book/1u5ihfn/)

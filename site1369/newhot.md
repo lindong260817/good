@@ -1,7 +1,7 @@
 
 # 武侠文学网 - 值得收藏的小说阅读平台
 
-更新时间：2026-08-30 03:38:58
+更新时间：2026-08-31 03:40:04
 
 武侠文学网为您提供丰富多样的小说资源，在这里您可以找到最新最热门的小说作品。无论是经典文学还是现代流行小说，都是您值得收藏的阅读选择。
 
@@ -9,31 +9,38 @@
 
 ## 最新小说
 - [我的烧烤摊超美味[美食]](https://www.wuxia988.com/book/1ms2s89/)
+- [阿竹与野桃](https://www.wuxia988.com/book/1ms2s73/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wuxia988.com/book/1ms2s5j/)
 - [我有嘉宾](https://www.wuxia988.com/book/1ms2njr/)
 - [分手后与诱系妻子再度热恋](https://www.wuxia988.com/book/1ms1t0n/)
 - [你，后室管理员](https://www.wuxia988.com/book/1ms1stu/)
 - [星际团宠小人鱼](https://www.wuxia988.com/book/1ms1sq3/)
 - [高调装神，猥琐发育](https://www.wuxia988.com/book/1ms1lnv/)
+- [男朋友买一送一](https://www.wuxia988.com/book/1ms1bc2/)
+- [失而复得的白月光[快穿]](https://www.wuxia988.com/book/1ms15tq/)
 - [如何正确哄睡暴君](https://www.wuxia988.com/book/1ms122q/)
+- [我不可能舔一个漂亮捞子](https://www.wuxia988.com/book/1ms0qj3/)
+- [寻真](https://www.wuxia988.com/book/1ms0p9v/)
 - [被鬼怪宠爱的漂亮书生](https://www.wuxia988.com/book/1ms0l8m/)
-- [老公是松散生命体](https://www.wuxia988.com/book/1ms0itq/)
+- [沈助理又在隐藏他的超能力](https://www.wuxia988.com/book/1ms0khm/)
 - [微臣怜惜公主](https://www.wuxia988.com/book/1ms0fnr/)
 - [他要和我谈恋爱](https://www.wuxia988.com/book/1ms09ao/)
-- [战死的阿爹回来了[年代]](https://www.wuxia988.com/book/1ms03m4/)
-- [多梦你一会儿](https://www.wuxia988.com/book/1ms03f6/)
-- [漫画路人绑定系统后](https://www.wuxia988.com/book/1ms01s0/)
-- [[足球]能不能好好模拟游戏](https://www.wuxia988.com/book/1ms00cf/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.wuxia988.com/book/1ms0387/)
+- [[封神]圣人生欲](https://www.wuxia988.com/book/1ms020t/)
 - [[足球]罗蜜第一志愿](https://www.wuxia988.com/book/1mrvqg0/)
-- [一枝枝怨](https://www.wuxia988.com/book/1mrvo1o/)
+- [青空来信](https://www.wuxia988.com/book/1mrvq7j/)
+- [某柯学的正义伙伴](https://www.wuxia988.com/book/1mrvpkj/)
 - [井闼山经理每天都被挖墙脚](https://www.wuxia988.com/book/1mrvn6h/)
 - [[足球]小小鸟堂堂来袭](https://www.wuxia988.com/book/1mrvec2/)
 - [法外狂猫](https://www.wuxia988.com/book/1mrv92r/)
 - [好兄弟暴富后非要跟我结婚](https://www.wuxia988.com/book/1mrv8pb/)
+- [侯府打工人](https://www.wuxia988.com/book/1mrv89e/)
 - [关于我虚构了一个男友这件事](https://www.wuxia988.com/book/1mrv5h9/)
+- [契约情人](https://www.wuxia988.com/book/1mrv4qq/)
 - [和室友他爸恋爱后](https://www.wuxia988.com/book/1mrus0m/)
 - [纯爱宇智波基本恋爱法](https://www.wuxia988.com/book/1mrtmlq/)
 - [拯救世界从扮演反派开始](https://www.wuxia988.com/book/1mrtmi5/)
+- [直男咒术师的限制级游戏](https://www.wuxia988.com/book/1mrtltr/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1369/index.md)

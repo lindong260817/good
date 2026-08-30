@@ -1,13 +1,14 @@
 
 # 文学小说668 - 全球最新最热的小说阅读平台
 
-更新时间：2026-08-30 03:37:27
+更新时间：2026-08-31 03:38:34
 
 文学小说668是全球最新、最热的小说阅读网站之一，汇集了包括言情小说、玄幻小说、穿越小说在内的各类优质小说资源，让读者能够尽情享受阅读的乐趣。
 
 - [文学小说668](https://www.wenxue668.com/)
 
 ## 最新小说
+- [阿竹与野桃](https://www.wenxue668.com/book/44felaj/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wenxue668.com/book/44fel8m/)
 - [我的烧烤摊超美味[美食]](https://www.wenxue668.com/book/44fel8l/)
 - [我有嘉宾](https://www.wenxue668.com/book/44fegao/)
@@ -15,23 +16,29 @@
 - [星际团宠小人鱼](https://www.wenxue668.com/book/44fdmn7/)
 - [你，后室管理员](https://www.wenxue668.com/book/44fdmc9/)
 - [高调装神，猥琐发育](https://www.wenxue668.com/book/44fdfj3/)
+- [男朋友买一送一](https://www.wenxue668.com/book/44fd5l5/)
+- [失而复得的白月光[快穿]](https://www.wenxue668.com/book/44fcta2/)
 - [如何正确哄睡暴君](https://www.wenxue668.com/book/44fcreu/)
-- [老公是松散生命体](https://www.wenxue668.com/book/44fcdd8/)
+- [寻真](https://www.wenxue668.com/book/44fcjk8/)
+- [我不可能舔一个漂亮捞子](https://www.wenxue668.com/book/44fciha/)
 - [被鬼怪宠爱的漂亮书生](https://www.wenxue668.com/book/44fcce2/)
+- [沈助理又在隐藏他的超能力](https://www.wenxue668.com/book/44fcbnr/)
 - [微臣怜惜公主](https://www.wenxue668.com/book/44fcaic/)
 - [他要和我谈恋爱](https://www.wenxue668.com/book/44fc0o4/)
-- [战死的阿爹回来了[年代]](https://www.wenxue668.com/book/44fbs7a/)
-- [漫画路人绑定系统后](https://www.wenxue668.com/book/44fbrpe/)
-- [多梦你一会儿](https://www.wenxue668.com/book/44fbr4b/)
-- [[足球]能不能好好模拟游戏](https://www.wenxue668.com/book/44fbphg/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.wenxue668.com/book/44fbsk0/)
+- [[封神]圣人生欲](https://www.wenxue668.com/book/44fbqro/)
+- [某柯学的正义伙伴](https://www.wenxue668.com/book/44fbj4d/)
 - [[足球]罗蜜第一志愿](https://www.wenxue668.com/book/44fbj4a/)
+- [青空来信](https://www.wenxue668.com/book/44fbj39/)
 - [井闼山经理每天都被挖墙脚](https://www.wenxue668.com/book/44fbfur/)
-- [一枝枝怨](https://www.wenxue668.com/book/44fbebc/)
 - [[足球]小小鸟堂堂来袭](https://www.wenxue668.com/book/44fb7i3/)
 - [好兄弟暴富后非要跟我结婚](https://www.wenxue668.com/book/44fb0h6/)
+- [侯府打工人](https://www.wenxue668.com/book/44favch/)
 - [法外狂猫](https://www.wenxue668.com/book/44fat7s/)
+- [契约情人](https://www.wenxue668.com/book/44fari3/)
 - [关于我虚构了一个男友这件事](https://www.wenxue668.com/book/44faplf/)
 - [和室友他爸恋爱后](https://www.wenxue668.com/book/44fam6s/)
+- [直男咒术师的限制级游戏](https://www.wenxue668.com/book/44f9fgm/)
 - [纯爱宇智波基本恋爱法](https://www.wenxue668.com/book/44f9el8/)
 - [拯救世界从扮演反派开始](https://www.wenxue668.com/book/44f9efi/)
 ## 相关内容
