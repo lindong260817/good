@@ -1,13 +1,14 @@
 
 # 哲理书客吧-全本小说免费阅读及txt下载,最新章节无弹窗
 
-更新时间：2026-08-30 03:42:50
+更新时间：2026-08-31 03:43:56
 
 哲理书客吧提供最快更新的热门网络小说最新章节，支持全本小说在线免费阅读与txt电子书打包下载服务。收录多本经典好看的小说，并承诺无广告弹窗清爽阅读体验，是小说爱好者的理想选择。
 
 - [哲理书客吧](https://www.zheli518.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.zheli518.com/book/4taqh2t/)
 - [发家致富小夫郎](https://www.zheli518.com/book/4taqchd/)
 - [无限回档，我把自己刷成了女帝](https://www.zheli518.com/book/4taqa6u/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.zheli518.com/book/4taqa6t/)
@@ -66,8 +67,10 @@
 - [灭世龙崽有什么错](https://www.zheli518.com/book/4taq0mn/)
 - [九零重组小家庭](https://www.zheli518.com/book/4tapuui/)
 - [人妻O救赎指南](https://www.zheli518.com/book/4taptu0/)
+- [养父](https://www.zheli518.com/book/4taptrs/)
 - [在虫族世界逃命升级](https://www.zheli518.com/book/4tapqda/)
 - [神豪文男主是我爸](https://www.zheli518.com/book/4tappkp/)
+- [从维多利亚时代开始](https://www.zheli518.com/book/4tapgq3/)
 - [我有特殊的升官技巧](https://www.zheli518.com/book/4tapdse/)
 - [十九世纪贵族厨房（美食）](https://www.zheli518.com/book/4tapaur/)
 - [星际团宠小人鱼](https://www.zheli518.com/book/4tapaki/)
@@ -79,7 +82,6 @@
 - [第一游侠[全息]](https://www.zheli518.com/book/4taocpr/)
 - [九零首富的替嫁小媳妇](https://www.zheli518.com/book/4taoc4n/)
 - [枕边热吻](https://www.zheli518.com/book/4taobmh/)
-- [万人嫌女配过分漂亮](https://www.zheli518.com/book/4taoaii/)
 - [始皇闺女躺平失败的日子](https://www.zheli518.com/book/4taoabr/)
 - [寄人篱下](https://www.zheli518.com/book/4tao9qn/)
 - [我写小说纯粹为了赚钱](https://www.zheli518.com/book/4tao9dr/)
@@ -115,7 +117,6 @@
 - [万人迷今天也在风靡全世界[快穿]](https://www.zheli518.com/book/4tan4m9/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.zheli518.com/book/4tan2kf/)
 - [恋爱脑毁灭世界](https://www.zheli518.com/book/4tan2aq/)
-- [兽世种田撸狼首领](https://www.zheli518.com/book/4tan0vh/)
 - [漫漫仙途](https://www.zheli518.com/book/4tamv8f/)
 - [漫画配角的不平凡日常](https://www.zheli518.com/book/4tamv4u/)
 - [魔尊和仙帝共坠爱河之后](https://www.zheli518.com/book/4tamuc5/)
@@ -147,6 +148,7 @@
 - [徐娘子的美食发家日常](https://www.zheli518.com/book/4tam3vu/)
 - [把清冷权臣调成荡夫后](https://www.zheli518.com/book/4tam24l/)
 - [[群穿]我在御兽番抢人气](https://www.zheli518.com/book/4tam23t/)
+- [在医院旧楼捡到个外科鼻祖](https://www.zheli518.com/book/4tam1n5/)
 - [大瑛弟国](https://www.zheli518.com/book/4tal5hb/)
 - [六零之成了卷王的妹妹](https://www.zheli518.com/book/4tal5ff/)
 - [假少爷不想活了](https://www.zheli518.com/book/4tal5ci/)

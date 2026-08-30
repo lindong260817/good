@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-08-30 03:20:35
+更新时间：2026-08-31 03:21:49
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
@@ -134,7 +134,6 @@
 - [魔尊和仙帝共坠爱河之后](https://www.ccccenergy.com/book/nka1jf/)
 - [你是我的根目录](https://www.ccccenergy.com/book/nka10p/)
 - [恋爱脑毁灭世界](https://www.ccccenergy.com/book/nka0d9/)
-- [兽世种田撸狼首领](https://www.ccccenergy.com/book/nk9vkp/)
 - [直男误入攻略天龙人游戏](https://www.ccccenergy.com/book/nk9vel/)
 - [[综港影]野生情人出没地](https://www.ccccenergy.com/book/nk9rl3/)
 - [穿越废星，我靠种田求生](https://www.ccccenergy.com/book/nk9q0q/)

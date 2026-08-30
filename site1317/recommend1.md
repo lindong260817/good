@@ -1,13 +1,14 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-08-30 03:43:40
+更新时间：2026-08-31 03:44:46
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。
 
 - [作品思路客](https://www.zuopin666.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.zuopin666.com/book/8befhi5/)
 - [发家致富小夫郎](https://www.zuopin666.com/book/8befhi4/)
 - [欢迎来到纳萨力克丧葬公司](https://www.zuopin666.com/book/8befhi3/)
 - [私恋旧星](https://www.zuopin666.com/book/8befhi2/)
@@ -68,6 +69,7 @@
 - [我要当厨修啊[美食]](https://www.zuopin666.com/book/8befhd5/)
 - [青城玩家明明超强却过分谨慎](https://www.zuopin666.com/book/8befhd4/)
 - [[群穿]我在御兽番抢人气](https://www.zuopin666.com/book/8befhd2/)
+- [养父](https://www.zuopin666.com/book/8befhcv/)
 - [星际团宠小人鱼](https://www.zuopin666.com/book/8befhcl/)
 - [九零首富的替嫁小媳妇](https://www.zuopin666.com/book/8befhc6/)
 - [十九世纪贵族厨房（美食）](https://www.zuopin666.com/book/8befhbj/)
@@ -83,6 +85,7 @@
 - [灭世龙崽有什么错](https://www.zuopin666.com/book/8bee08o/)
 - [九零重组小家庭](https://www.zuopin666.com/book/8bedltd/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.zuopin666.com/book/8bedh39/)
+- [从维多利亚时代开始](https://www.zuopin666.com/book/8bed7jq/)
 - [我有特殊的升官技巧](https://www.zuopin666.com/book/8bed4ng/)
 - [御兽师，我打工养你啊](https://www.zuopin666.com/book/8bed2nq/)
 - [反派人生，易如反掌[快穿]](https://www.zuopin666.com/book/8bed1ak/)
@@ -101,7 +104,6 @@
 - [始皇闺女躺平失败的日子](https://www.zuopin666.com/book/8bebvm6/)
 - [摄政王家的咸鱼夫郎](https://www.zuopin666.com/book/8bebuk8/)
 - [寄人篱下](https://www.zuopin666.com/book/8bebroj/)
-- [万人嫌女配过分漂亮](https://www.zuopin666.com/book/8bebqsf/)
 - [当我穿为龙傲天的情敌](https://www.zuopin666.com/book/8bebq2b/)
 - [全球进化，而我保持不变](https://www.zuopin666.com/book/qntg5s/)
 - [不当救世主就要当人类恶了吗](https://www.zuopin666.com/book/qntdib/)
@@ -134,7 +136,6 @@
 - [魔尊和仙帝共坠爱河之后](https://www.zuopin666.com/book/qns4bu/)
 - [恋爱脑毁灭世界](https://www.zuopin666.com/book/qns3dv/)
 - [你是我的根目录](https://www.zuopin666.com/book/qns2th/)
-- [兽世种田撸狼首领](https://www.zuopin666.com/book/qns0f1/)
 - [直男误入攻略天龙人游戏](https://www.zuopin666.com/book/qnrt3j/)
 - [八零恶毒后妈杀疯了](https://www.zuopin666.com/book/qnrr1i/)
 - [[综港影]野生情人出没地](https://www.zuopin666.com/book/qnrqol/)
@@ -156,6 +157,7 @@
 - [搭档，一起来玩求生游戏吧！](https://www.zuopin666.com/book/qnrgnu/)
 - [绿茶病秧子骗他说喜欢](https://www.zuopin666.com/book/qnrfq2/)
 - [把清冷权臣调成荡夫后](https://www.zuopin666.com/book/qnregc/)
+- [在医院旧楼捡到个外科鼻祖](https://www.zuopin666.com/book/qnrbfn/)
 - [我是唯一地上神国](https://www.zuopin666.com/book/2linf9/)
 - [全民求生:从小木屋到魔法农场](https://www.zuopin666.com/book/2linbg/)
 - [高门小婢](https://www.zuopin666.com/book/2lin5d/)

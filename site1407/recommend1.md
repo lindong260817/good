@@ -1,13 +1,15 @@
 
 # 苏秦家小说网 - 免费在线阅读无弹窗小说
 
-更新时间：2026-08-30 03:35:17
+更新时间：2026-08-31 03:36:23
 
 苏秦家小说网为您提供一个干净、舒适的阅读环境，专注于提供免费且无任何弹窗干扰的小说在线阅读服务。
 
 - [苏秦家小说网](https://www.suqinjia.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.suqinjia.com/book/3av2rl6/)
+- [从维多利亚时代开始](https://www.suqinjia.com/book/3av2q13/)
 - [九零重组小家庭](https://www.suqinjia.com/book/3av2kmc/)
 - [发家致富小夫郎](https://www.suqinjia.com/book/3av2duv/)
 - [[三国]清澈，但千古一帝](https://www.suqinjia.com/book/3av23up/)
@@ -72,7 +74,6 @@
 - [科学主义魔法学院](https://www.suqinjia.com/book/3av1rqp/)
 - [我写小说纯粹为了赚钱](https://www.suqinjia.com/book/3av1pin/)
 - [第一游侠[全息]](https://www.suqinjia.com/book/3av1nuj/)
-- [万人嫌女配过分漂亮](https://www.suqinjia.com/book/3av1n1i/)
 - [寄人篱下](https://www.suqinjia.com/book/3av1mi2/)
 - [误标记隔壁阿姨O之后](https://www.suqinjia.com/book/3av1h7p/)
 - [高嫁之后](https://www.suqinjia.com/book/3av1h6g/)
@@ -103,7 +104,6 @@
 - [暴君偏头痛](https://www.suqinjia.com/book/3av0i8i/)
 - [豪门前妻O总想诱我](https://www.suqinjia.com/book/3av0h50/)
 - [青城玩家明明超强却过分谨慎](https://www.suqinjia.com/book/3av0g1r/)
-- [兽世种田撸狼首领](https://www.suqinjia.com/book/3av0ejb/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.suqinjia.com/book/3av0e31/)
 - [恋爱脑毁灭世界](https://www.suqinjia.com/book/3av0dtt/)
 - [重临巅峰[花滑]](https://www.suqinjia.com/book/3av0b26/)
@@ -138,7 +138,9 @@
 - [绿茶病秧子骗他说喜欢](https://www.suqinjia.com/book/3auvhte/)
 - [把清冷权臣调成荡夫后](https://www.suqinjia.com/book/3auvgm2/)
 - [我真的没想在选秀炒CP](https://www.suqinjia.com/book/3auveij/)
+- [在医院旧楼捡到个外科鼻祖](https://www.suqinjia.com/book/3auvccu/)
 - [欢迎来到纳萨力克丧葬公司](https://www.suqinjia.com/book/3auvae3/)
+- [养父](https://www.suqinjia.com/book/3auva0j/)
 - [[群穿]我在御兽番抢人气](https://www.suqinjia.com/book/3auv9s9/)
 - [警察，但犯罪大师系统[刑侦]](https://www.suqinjia.com/book/3auuf42/)
 - [趁她之危](https://www.suqinjia.com/book/3auuev8/)

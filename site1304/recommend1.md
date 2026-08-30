@@ -1,13 +1,14 @@
 
 # 唯我小说网-最新小说在线阅读,好看小说全文阅读
 
-更新时间：2026-08-30 03:24:48
+更新时间：2026-08-31 03:25:57
 
 唯我小说网提供最新最热门的小说在线阅读服务，包括但不限于各类好看的小说全文内容，满足广大读者的需求。
 
 - [唯我小说网](https://www.hkffbw.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.hkffbw.com/book/4nr5rk3/)
 - [发家致富小夫郎](https://www.hkffbw.com/book/4nr5rk2/)
 - [水管工[GB]](https://www.hkffbw.com/book/4nr5rk0/)
 - [我的NPC队友全是火影天花板](https://www.hkffbw.com/book/4nr5rjv/)
@@ -68,6 +69,7 @@
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.hkffbw.com/book/4nr5rf8/)
 - [与亡夫春风一度后](https://www.hkffbw.com/book/4nr5rf3/)
 - [我写小说纯粹为了赚钱](https://www.hkffbw.com/book/4nr5rf2/)
+- [养父](https://www.hkffbw.com/book/4nr5ret/)
 - [星际团宠小人鱼](https://www.hkffbw.com/book/4nr5re4/)
 - [九零首富的替嫁小媳妇](https://www.hkffbw.com/book/4nr5rdd/)
 - [十九世纪贵族厨房（美食）](https://www.hkffbw.com/book/4nr5rcu/)
@@ -83,6 +85,7 @@
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.hkffbw.com/book/4nr3sft/)
 - [灭世龙崽有什么错](https://www.hkffbw.com/book/4nr3pr8/)
 - [九零重组小家庭](https://www.hkffbw.com/book/4nr3ouv/)
+- [从维多利亚时代开始](https://www.hkffbw.com/book/4nr3fgu/)
 - [我有特殊的升官技巧](https://www.hkffbw.com/book/4nr3crh/)
 - [御兽师，我打工养你啊](https://www.hkffbw.com/book/4nr3aop/)
 - [反派人生，易如反掌[快穿]](https://www.hkffbw.com/book/4nr39hh/)
@@ -100,7 +103,6 @@
 - [第一游侠[全息]](https://www.hkffbw.com/book/4nr2bh5/)
 - [摄政王家的咸鱼夫郎](https://www.hkffbw.com/book/4nr2a3b/)
 - [始皇闺女躺平失败的日子](https://www.hkffbw.com/book/4nr25j0/)
-- [万人嫌女配过分漂亮](https://www.hkffbw.com/book/4nr25i6/)
 - [寄人篱下](https://www.hkffbw.com/book/4nr256o/)
 - [全球进化，而我保持不变](https://www.hkffbw.com/book/f5vnj0/)
 - [不当救世主就要当人类恶了吗](https://www.hkffbw.com/book/f5vmn1/)
@@ -134,7 +136,6 @@
 - [恋爱脑毁灭世界](https://www.hkffbw.com/book/f5ucan/)
 - [你是我的根目录](https://www.hkffbw.com/book/f5uc3i/)
 - [魔尊和仙帝共坠爱河之后](https://www.hkffbw.com/book/f5uakh/)
-- [兽世种田撸狼首领](https://www.hkffbw.com/book/f5u8pf/)
 - [直男误入攻略天龙人游戏](https://www.hkffbw.com/book/f5u5rj/)
 - [穿越废星，我靠种田求生](https://www.hkffbw.com/book/f5u4gn/)
 - [[综港影]野生情人出没地](https://www.hkffbw.com/book/f5u29o/)
@@ -156,6 +157,7 @@
 - [我真的没想在选秀炒CP](https://www.hkffbw.com/book/f5tolm/)
 - [徐娘子的美食发家日常](https://www.hkffbw.com/book/f5tmpi/)
 - [把清冷权臣调成荡夫后](https://www.hkffbw.com/book/f5tlqb/)
+- [在医院旧楼捡到个外科鼻祖](https://www.hkffbw.com/book/f5tlcj/)
 - [如何扮演源氏重宝](https://www.hkffbw.com/book/1giv2d/)
 - [我是唯一地上神国](https://www.hkffbw.com/book/1giv1n/)
 - [[娱乐圈]过分美丽的她](https://www.hkffbw.com/book/1giuv3/)

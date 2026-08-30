@@ -1,7 +1,7 @@
 
 # 生活文学小说-质感小说文学网站|高质量文学作品与创作交流平台
 
-更新时间：2026-08-30 03:33:03
+更新时间：2026-08-31 03:34:10
 
 生活文学小说是一个专注于提供质感小说文学的网站，致力于为文学爱好者打造一个高质量的文学作品和创作交流平台，在这里可以享受到独特的夜间文学之美。
 
@@ -10,30 +10,37 @@
 ## 最新小说
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shenghuo988.com/book/86gar8d/)
 - [我的烧烤摊超美味[美食]](https://www.shenghuo988.com/book/86gar85/)
+- [阿竹与野桃](https://www.shenghuo988.com/book/86gar6e/)
 - [我有嘉宾](https://www.shenghuo988.com/book/86gamiq/)
 - [分手后与诱系妻子再度热恋](https://www.shenghuo988.com/book/86g9s1p/)
 - [你，后室管理员](https://www.shenghuo988.com/book/86g9rs6/)
 - [星际团宠小人鱼](https://www.shenghuo988.com/book/86g9ro3/)
 - [高调装神，猥琐发育](https://www.shenghuo988.com/book/86g9kll/)
+- [男朋友买一送一](https://www.shenghuo988.com/book/86g9b33/)
+- [失而复得的白月光[快穿]](https://www.shenghuo988.com/book/86g93rb/)
 - [如何正确哄睡暴君](https://www.shenghuo988.com/book/86g91bo/)
+- [寻真](https://www.shenghuo988.com/book/86g8q7n/)
+- [我不可能舔一个漂亮捞子](https://www.shenghuo988.com/book/86g8oco/)
+- [沈助理又在隐藏他的超能力](https://www.shenghuo988.com/book/86g8j10/)
 - [被鬼怪宠爱的漂亮书生](https://www.shenghuo988.com/book/86g8i6p/)
-- [老公是松散生命体](https://www.shenghuo988.com/book/86g8huu/)
 - [微臣怜惜公主](https://www.shenghuo988.com/book/86g8gl5/)
 - [他要和我谈恋爱](https://www.shenghuo988.com/book/86g86fq/)
-- [漫画路人绑定系统后](https://www.shenghuo988.com/book/86g822p/)
-- [多梦你一会儿](https://www.shenghuo988.com/book/86g81rk/)
-- [战死的阿爹回来了[年代]](https://www.shenghuo988.com/book/86g81m5/)
-- [[足球]能不能好好模拟游戏](https://www.shenghuo988.com/book/86g7tkl/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.shenghuo988.com/book/86g82h3/)
+- [[封神]圣人生欲](https://www.shenghuo988.com/book/86g82aq/)
+- [青空来信](https://www.shenghuo988.com/book/86g7q15/)
+- [某柯学的正义伙伴](https://www.shenghuo988.com/book/86g7pt6/)
 - [[足球]罗蜜第一志愿](https://www.shenghuo988.com/book/86g7n9p/)
-- [一枝枝怨](https://www.shenghuo988.com/book/86g7mkm/)
 - [井闼山经理每天都被挖墙脚](https://www.shenghuo988.com/book/86g7kh7/)
 - [[足球]小小鸟堂堂来袭](https://www.shenghuo988.com/book/86g7cdu/)
+- [侯府打工人](https://www.shenghuo988.com/book/86g78cd/)
 - [好兄弟暴富后非要跟我结婚](https://www.shenghuo988.com/book/86g77bd/)
 - [法外狂猫](https://www.shenghuo988.com/book/86g76ef/)
 - [关于我虚构了一个男友这件事](https://www.shenghuo988.com/book/86g73ul/)
+- [契约情人](https://www.shenghuo988.com/book/86g73qi/)
 - [和室友他爸恋爱后](https://www.shenghuo988.com/book/86g6q62/)
 - [拯救世界从扮演反派开始](https://www.shenghuo988.com/book/86g5lv3/)
 - [纯爱宇智波基本恋爱法](https://www.shenghuo988.com/book/86g5lcf/)
+- [直男咒术师的限制级游戏](https://www.shenghuo988.com/book/86g5l2b/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1360/index.md)

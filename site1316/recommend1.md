@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-08-30 03:20:53
+更新时间：2026-08-31 03:22:06
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -134,7 +134,6 @@
 - [你是我的根目录](https://www.chuangyi1687.com/book/4vvcj7/)
 - [恋爱脑毁灭世界](https://www.chuangyi1687.com/book/4vvchv/)
 - [魔尊和仙帝共坠爱河之后](https://www.chuangyi1687.com/book/4vvbut/)
-- [兽世种田撸狼首领](https://www.chuangyi1687.com/book/4vvbbn/)
 - [直男误入攻略天龙人游戏](https://www.chuangyi1687.com/book/4vvb1h/)
 - [[综港影]野生情人出没地](https://www.chuangyi1687.com/book/4vv6bb/)
 - [穿越废星，我靠种田求生](https://www.chuangyi1687.com/book/4vv53l/)

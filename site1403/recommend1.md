@@ -1,13 +1,15 @@
 
 # 微雨数据小说,新笔趣小说阅读网,顶点小说网备份-热门小说大全
 
-更新时间：2026-08-30 03:36:42
+更新时间：2026-08-31 03:37:49
 
 微雨数据小说网作为广大书友喜爱的平台之一，同时也是顶点小说阅读网的官方备份网站，汇集了当前最受欢迎和最火热的小说资源。当遇到顶点小说网无法访问时，请访问笔趣看小说网继续享受精彩内容！
 
 - [微雨数据小说](https://www.weiyushuju.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.weiyushuju.com/book/6rf6n5f/)
+- [从维多利亚时代开始](https://www.weiyushuju.com/book/6rf6lb0/)
 - [九零重组小家庭](https://www.weiyushuju.com/book/6rf6g0r/)
 - [发家致富小夫郎](https://www.weiyushuju.com/book/6rf696a/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.weiyushuju.com/book/6rf5vmv/)
@@ -73,7 +75,6 @@
 - [我写小说纯粹为了赚钱](https://www.weiyushuju.com/book/6rf5muu/)
 - [第一游侠[全息]](https://www.weiyushuju.com/book/6rf5j02/)
 - [寄人篱下](https://www.weiyushuju.com/book/6rf5imt/)
-- [万人嫌女配过分漂亮](https://www.weiyushuju.com/book/6rf5igm/)
 - [高嫁之后](https://www.weiyushuju.com/book/6rf5d48/)
 - [误标记隔壁阿姨O之后](https://www.weiyushuju.com/book/6rf5d2d/)
 - [[全职高手]霸图老板是叶修](https://www.weiyushuju.com/book/6rf5c7p/)
@@ -104,7 +105,6 @@
 - [暴君偏头痛](https://www.weiyushuju.com/book/6rf4cf7/)
 - [青城玩家明明超强却过分谨慎](https://www.weiyushuju.com/book/6rf4blg/)
 - [恋爱脑毁灭世界](https://www.weiyushuju.com/book/6rf49eo/)
-- [兽世种田撸狼首领](https://www.weiyushuju.com/book/6rf48jb/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.weiyushuju.com/book/6rf483v/)
 - [重临巅峰[花滑]](https://www.weiyushuju.com/book/6rf47f5/)
 - [漫画配角的不平凡日常](https://www.weiyushuju.com/book/6rf46c3/)
@@ -138,8 +138,10 @@
 - [把清冷权臣调成荡夫后](https://www.weiyushuju.com/book/6rf3cur/)
 - [绿茶病秧子骗他说喜欢](https://www.weiyushuju.com/book/6rf3b0k/)
 - [我真的没想在选秀炒CP](https://www.weiyushuju.com/book/6rf38op/)
+- [养父](https://www.weiyushuju.com/book/6rf36j6/)
 - [欢迎来到纳萨力克丧葬公司](https://www.weiyushuju.com/book/6rf36it/)
 - [[群穿]我在御兽番抢人气](https://www.weiyushuju.com/book/6rf35r2/)
+- [在医院旧楼捡到个外科鼻祖](https://www.weiyushuju.com/book/6rf354u/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.weiyushuju.com/book/6rf2agr/)
 - [我有一座安全城](https://www.weiyushuju.com/book/6rf2af9/)
 - [如何扮演源氏重宝](https://www.weiyushuju.com/book/6rf2acf/)

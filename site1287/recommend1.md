@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-30 03:25:07
+更新时间：2026-08-31 03:26:15
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -134,7 +134,6 @@
 - [魔尊和仙帝共坠爱河之后](https://www.hzciic.com/book/620vaj/)
 - [你是我的根目录](https://www.hzciic.com/book/620u2c/)
 - [恋爱脑毁灭世界](https://www.hzciic.com/book/620sgn/)
-- [兽世种田撸狼首领](https://www.hzciic.com/book/620pv7/)
 - [直男误入攻略天龙人游戏](https://www.hzciic.com/book/620nbf/)
 - [[综港影]野生情人出没地](https://www.hzciic.com/book/620mbu/)
 - [穿越废星，我靠种田求生](https://www.hzciic.com/book/620kr4/)

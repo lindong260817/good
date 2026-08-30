@@ -1,13 +1,14 @@
 
 # 云南野人山野小说网 - 创意小说与文学作品分享平台
 
-更新时间：2026-08-30 03:41:12
+更新时间：2026-08-31 03:42:20
 
 欢迎来到云南野人山野小说网 - 专注于创意小说和文学作品分享的在线平台。探索精选的小说系列及文学佳作，加入我们，与众多才华横溢的作者交流心得，共同创造美好的阅读旅程。
 
 - [云南野人山野小说网](https://www.ynyrsy.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.ynyrsy.com/book/dfds9u/)
 - [发家致富小夫郎](https://www.ynyrsy.com/book/dfdmgf/)
 - [九零重组小家庭](https://www.ynyrsy.com/book/dfdi8l/)
 - [和光太郎谈恋爱](https://www.ynyrsy.com/book/dfdhs4/)
@@ -66,9 +67,11 @@
 - [在虫族世界逃命升级](https://www.ynyrsy.com/book/dfdetg/)
 - [神豪文男主是我爸](https://www.ynyrsy.com/book/dfddpj/)
 - [我真的只会Ctrl啊！！！](https://www.ynyrsy.com/book/dfdbvs/)
+- [从维多利亚时代开始](https://www.ynyrsy.com/book/dfd5jv/)
 - [我有特殊的升官技巧](https://www.ynyrsy.com/book/dfd2jr/)
 - [反派人生，易如反掌[快穿]](https://www.ynyrsy.com/book/dfcv8d/)
 - [人妻O救赎指南](https://www.ynyrsy.com/book/dfcna3/)
+- [养父](https://www.ynyrsy.com/book/dfcn9t/)
 - [摄政王家的咸鱼夫郎](https://www.ynyrsy.com/book/dfc9vp/)
 - [绿叶](https://www.ynyrsy.com/book/dfc92d/)
 - [枕边热吻](https://www.ynyrsy.com/book/dfc8va/)
@@ -77,7 +80,6 @@
 - [科学主义魔法学院](https://www.ynyrsy.com/book/dfc3ag/)
 - [第一游侠[全息]](https://www.ynyrsy.com/book/dfc2v8/)
 - [我写小说纯粹为了赚钱](https://www.ynyrsy.com/book/dfc2ld/)
-- [万人嫌女配过分漂亮](https://www.ynyrsy.com/book/dfbvu7/)
 - [始皇闺女躺平失败的日子](https://www.ynyrsy.com/book/dfbvsk/)
 - [误标记隔壁阿姨O之后](https://www.ynyrsy.com/book/dfbtk0/)
 - [十福晋吃瓜日常(清穿)](https://www.ynyrsy.com/book/dfbqb8/)
@@ -108,7 +110,6 @@
 - [万人迷今天也在风靡全世界[快穿]](https://www.ynyrsy.com/book/dfap34/)
 - [恋爱脑毁灭世界](https://www.ynyrsy.com/book/dfan8e/)
 - [青城玩家明明超强却过分谨慎](https://www.ynyrsy.com/book/dfamij/)
-- [兽世种田撸狼首领](https://www.ynyrsy.com/book/dfam6j/)
 - [漫画配角的不平凡日常](https://www.ynyrsy.com/book/dfalhj/)
 - [魔尊和仙帝共坠爱河之后](https://www.ynyrsy.com/book/dfaki9/)
 - [重临巅峰[花滑]](https://www.ynyrsy.com/book/dfajrg/)
@@ -140,6 +141,7 @@
 - [把清冷权臣调成荡夫后](https://www.ynyrsy.com/book/df9pe6/)
 - [[群穿]我在御兽番抢人气](https://www.ynyrsy.com/book/df9ng1/)
 - [欢迎来到纳萨力克丧葬公司](https://www.ynyrsy.com/book/df9m6s/)
+- [在医院旧楼捡到个外科鼻祖](https://www.ynyrsy.com/book/df9l4u/)
 - [我，恶女，在线搞事](https://www.ynyrsy.com/book/df9j9p/)
 - [卧底后被港岛大小姐缠上了](https://www.ynyrsy.com/book/df8qh4/)
 - [高门小婢](https://www.ynyrsy.com/book/df8qds/)
