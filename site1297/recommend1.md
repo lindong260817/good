@@ -1,7 +1,7 @@
 
 # 笔趣阁_书友最值得收藏的网络小说阅读网_新笔趣阁5200
 
-更新时间：2026-08-30 03:26:12
+更新时间：2026-08-31 03:27:19
 
 笔趣阁是广大书友最值得收藏的网络小说阅读网，新笔趣阁网站收录了当前最火热的网络小说，笔趣阁5200免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -134,7 +134,6 @@
 - [魔尊和仙帝共坠爱河之后](https://www.kangrunwangye.com/book/5k6e5m/)
 - [你是我的根目录](https://www.kangrunwangye.com/book/5k6c1u/)
 - [恋爱脑毁灭世界](https://www.kangrunwangye.com/book/5k6bmc/)
-- [兽世种田撸狼首领](https://www.kangrunwangye.com/book/5k6a83/)
 - [[综港影]野生情人出没地](https://www.kangrunwangye.com/book/5k67s4/)
 - [直男误入攻略天龙人游戏](https://www.kangrunwangye.com/book/5k67oi/)
 - [穿越废星，我靠种田求生](https://www.kangrunwangye.com/book/5k64g4/)

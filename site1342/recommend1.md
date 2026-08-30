@@ -1,7 +1,7 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-08-30 03:19:23
+更新时间：2026-08-31 03:20:38
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。
 
@@ -118,7 +118,6 @@
 - [当恶女捡回高岭之花](https://www.ashedao.com/book/99cvls7/)
 - [豪门前妻O总想诱我](https://www.ashedao.com/book/99cvkuu/)
 - [恋爱脑毁灭世界](https://www.ashedao.com/book/99cvk07/)
-- [兽世种田撸狼首领](https://www.ashedao.com/book/99cvjbg/)
 - [漫画配角的不平凡日常](https://www.ashedao.com/book/99cvisr/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.ashedao.com/book/99cvh25/)
 - [井闼山经理每天都被挖墙脚](https://www.ashedao.com/book/99cvgp0/)

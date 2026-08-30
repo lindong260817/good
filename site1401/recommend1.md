@@ -1,7 +1,7 @@
 
 # 曹操SPA小说 - 小说的海洋，文学的殿堂 | 在线阅读与下载原创小说
 
-更新时间：2026-08-30 03:20:22
+更新时间：2026-08-31 03:21:36
 
 曹操SPA小说是一个专注于优质小说和文学创作的网站，这里是书迷们的天堂，提供丰富的原创网络小说、经典文学作品在线阅读与下载，致力于打造一个充满灵感与创意的文学世界。
 
@@ -105,7 +105,6 @@
 - [暴君偏头痛](https://www.caocaospa.com/book/8q1r8fl/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.caocaospa.com/book/8q1r6ot/)
 - [恋爱脑毁灭世界](https://www.caocaospa.com/book/8q1r6mg/)
-- [兽世种田撸狼首领](https://www.caocaospa.com/book/8q1r5l7/)
 - [重临巅峰[花滑]](https://www.caocaospa.com/book/8q1r40a/)
 - [漫画配角的不平凡日常](https://www.caocaospa.com/book/8q1r2v1/)
 - [魔尊和仙帝共坠爱河之后](https://www.caocaospa.com/book/8q1r20t/)

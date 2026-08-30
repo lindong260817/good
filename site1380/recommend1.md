@@ -1,13 +1,14 @@
 
 # 电子洗砂机小说网-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-08-30 03:22:46
+更新时间：2026-08-31 03:23:57
 
 电子洗砂机小说网提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
 
 - [电子洗砂机小说网](https://www.dzxishaji.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.dzxishaji.com/book/70umjpv/)
 - [发家致富小夫郎](https://www.dzxishaji.com/book/70ume0n/)
 - [九零重组小家庭](https://www.dzxishaji.com/book/70um9mu/)
 - [败类游戏](https://www.dzxishaji.com/book/70um9c3/)
@@ -66,9 +67,11 @@
 - [在虫族世界逃命升级](https://www.dzxishaji.com/book/70um6gd/)
 - [神豪文男主是我爸](https://www.dzxishaji.com/book/70um56d/)
 - [我真的只会Ctrl啊！！！](https://www.dzxishaji.com/book/70um3cm/)
+- [从维多利亚时代开始](https://www.dzxishaji.com/book/70ult2l/)
 - [我有特殊的升官技巧](https://www.dzxishaji.com/book/70ulq5i/)
 - [反派人生，易如反掌[快穿]](https://www.dzxishaji.com/book/70ulmft/)
 - [人妻O救赎指南](https://www.dzxishaji.com/book/70uler9/)
+- [养父](https://www.dzxishaji.com/book/70uleni/)
 - [摄政王家的咸鱼夫郎](https://www.dzxishaji.com/book/70ul1i7/)
 - [绿叶](https://www.dzxishaji.com/book/70ul0r9/)
 - [枕边热吻](https://www.dzxishaji.com/book/70ukvq3/)
@@ -77,7 +80,6 @@
 - [科学主义魔法学院](https://www.dzxishaji.com/book/70ukr8s/)
 - [寄人篱下](https://www.dzxishaji.com/book/70ukp35/)
 - [我写小说纯粹为了赚钱](https://www.dzxishaji.com/book/70ukosp/)
-- [万人嫌女配过分漂亮](https://www.dzxishaji.com/book/70ukob5/)
 - [始皇闺女躺平失败的日子](https://www.dzxishaji.com/book/70uknnk/)
 - [误标记隔壁阿姨O之后](https://www.dzxishaji.com/book/70ukkmu/)
 - [十福晋吃瓜日常(清穿)](https://www.dzxishaji.com/book/70ukiif/)
@@ -106,7 +108,6 @@
 - [青空来信](https://www.dzxishaji.com/book/70ujkit/)
 - [豪门前妻O总想诱我](https://www.dzxishaji.com/book/70ujjmn/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.dzxishaji.com/book/70uji2n/)
-- [兽世种田撸狼首领](https://www.dzxishaji.com/book/70ujf77/)
 - [漫画配角的不平凡日常](https://www.dzxishaji.com/book/70ujejf/)
 - [青城玩家明明超强却过分谨慎](https://www.dzxishaji.com/book/70ujder/)
 - [恋爱脑毁灭世界](https://www.dzxishaji.com/book/70ujcnc/)
@@ -138,6 +139,7 @@
 - [暴君偏头痛](https://www.dzxishaji.com/book/70uiif5/)
 - [我真的没想在选秀炒CP](https://www.dzxishaji.com/book/70uigs0/)
 - [把清冷权臣调成荡夫后](https://www.dzxishaji.com/book/70uifti/)
+- [在医院旧楼捡到个外科鼻祖](https://www.dzxishaji.com/book/70uieve/)
 - [[群穿]我在御兽番抢人气](https://www.dzxishaji.com/book/70uidnk/)
 - [欢迎来到纳萨力克丧葬公司](https://www.dzxishaji.com/book/70uidm7/)
 - [我，恶女，在线搞事](https://www.dzxishaji.com/book/70uiak1/)

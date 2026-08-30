@@ -1,13 +1,14 @@
 
 # 科幻188文学网-最新章节全文小说免费阅读
 
-更新时间：2026-08-30 03:27:18
+更新时间：2026-08-31 03:28:23
 
 科幻188文学网给广大网友提供最好的小说阅读服务，全站小说均可免费阅读且无任何弹窗干扰。这里是你寻找最新最全小说内容的理想之地。
 
 - [科幻188文学网](https://www.kehuan188.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.kehuan188.com/book/56q33uv/)
 - [发家致富小夫郎](https://www.kehuan188.com/book/56q2vbd/)
 - [女先生](https://www.kehuan188.com/book/56q2t2p/)
 - [九十年代从军记](https://www.kehuan188.com/book/56q2t2l/)
@@ -65,9 +66,11 @@
 - [我真的只会Ctrl啊！！！](https://www.kehuan188.com/book/56q2qkb/)
 - [灭世龙崽有什么错](https://www.kehuan188.com/book/56q2jko/)
 - [九零重组小家庭](https://www.kehuan188.com/book/56q2hsu/)
+- [养父](https://www.kehuan188.com/book/56q2gph/)
 - [人妻O救赎指南](https://www.kehuan188.com/book/56q2gmj/)
 - [在虫族世界逃命升级](https://www.kehuan188.com/book/56q2d6r/)
 - [神豪文男主是我爸](https://www.kehuan188.com/book/56q2cav/)
+- [从维多利亚时代开始](https://www.kehuan188.com/book/56q23mu/)
 - [我有特殊的升官技巧](https://www.kehuan188.com/book/56q20og/)
 - [星际团宠小人鱼](https://www.kehuan188.com/book/56q1tri/)
 - [十九世纪贵族厨房（美食）](https://www.kehuan188.com/book/56q1tlu/)
@@ -77,7 +80,6 @@
 - [全球进化，而我保持不变](https://www.kehuan188.com/book/56q13f7/)
 - [绿叶](https://www.kehuan188.com/book/56q11mt/)
 - [第一游侠[全息]](https://www.kehuan188.com/book/56q10sp/)
-- [万人嫌女配过分漂亮](https://www.kehuan188.com/book/56q0uvr/)
 - [始皇闺女躺平失败的日子](https://www.kehuan188.com/book/56q0urb/)
 - [九零首富的替嫁小媳妇](https://www.kehuan188.com/book/56q0u8u/)
 - [我写小说纯粹为了赚钱](https://www.kehuan188.com/book/56q0tue/)
@@ -113,7 +115,6 @@
 - [井闼山经理每天都被挖墙脚](https://www.kehuan188.com/book/56pvoqq/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.kehuan188.com/book/56pvnro/)
 - [人在虫族，写文爆红](https://www.kehuan188.com/book/56pvm20/)
-- [兽世种田撸狼首领](https://www.kehuan188.com/book/56pvldn/)
 - [恋爱脑毁灭世界](https://www.kehuan188.com/book/56pvk2a/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.kehuan188.com/book/56pvjiv/)
 - [漫漫仙途](https://www.kehuan188.com/book/56pvhol/)
@@ -146,6 +147,7 @@
 - [徐娘子的美食发家日常](https://www.kehuan188.com/book/56pum5b/)
 - [我真的没想在选秀炒CP](https://www.kehuan188.com/book/56pulst/)
 - [把清冷权臣调成荡夫后](https://www.kehuan188.com/book/56pujid/)
+- [在医院旧楼捡到个外科鼻祖](https://www.kehuan188.com/book/56puivv/)
 - [[群穿]我在御兽番抢人气](https://www.kehuan188.com/book/56puis8/)
 - [清澈女大的六零年代](https://www.kehuan188.com/book/56pto5i/)
 - [高嫁之后](https://www.kehuan188.com/book/56ptnt6/)

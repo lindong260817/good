@@ -1,7 +1,7 @@
 
 # 精英文学 - 书友最值得收藏的小说免费阅读网
 
-更新时间：2026-08-30 03:39:13
+更新时间：2026-08-31 03:40:19
 
 精英文学为您提供一个干净舒适的阅读环境，作为书友最值得收藏的小说免费阅读网之一，我们致力于打造无广告干扰的最佳在线阅读体验。
 
@@ -9,31 +9,37 @@
 
 ## 最新小说
 - [我有嘉宾](https://www.xcposji.com/book/jnmeoo/)
+- [阿竹与野桃](https://www.xcposji.com/book/jnm803/)
 - [我的烧烤摊超美味[美食]](https://www.xcposji.com/book/jnm7v8/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xcposji.com/book/jnm7v4/)
+- [失而复得的白月光[快穿]](https://www.xcposji.com/book/jnl4jb/)
+- [男朋友买一送一](https://www.xcposji.com/book/jnl4eh/)
 - [被鬼怪宠爱的漂亮书生](https://www.xcposji.com/book/jnks95/)
 - [如何正确哄睡暴君](https://www.xcposji.com/book/jnkro5/)
-- [老公是松散生命体](https://www.xcposji.com/book/jnkhg9/)
+- [我不可能舔一个漂亮捞子](https://www.xcposji.com/book/jnkmrk/)
+- [寻真](https://www.xcposji.com/book/jnkjqv/)
 - [微臣怜惜公主](https://www.xcposji.com/book/jnkflv/)
-- [战死的阿爹回来了[年代]](https://www.xcposji.com/book/jnk45c/)
-- [多梦你一会儿](https://www.xcposji.com/book/jnjve1/)
+- [沈助理又在隐藏他的超能力](https://www.xcposji.com/book/jnkcq6/)
+- [直男咒术师的限制级游戏](https://www.xcposji.com/book/jnk3jo/)
 - [穿为清冷影后的污点A](https://www.xcposji.com/book/jnjtai/)
-- [漫画路人绑定系统后](https://www.xcposji.com/book/jnjsoc/)
-- [[足球]能不能好好模拟游戏](https://www.xcposji.com/book/jnjsm7/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.xcposji.com/book/jnjs9s/)
 - [拯救世界从扮演反派开始](https://www.xcposji.com/book/jnjoc0/)
 - [井闼山经理每天都被挖墙脚](https://www.xcposji.com/book/jnjns1/)
 - [[足球]罗蜜第一志愿](https://www.xcposji.com/book/jnjmvn/)
-- [一枝枝怨](https://www.xcposji.com/book/jnjir3/)
+- [在女仆咖啡店兼职被校草缠上后](https://www.xcposji.com/book/jnjjbs/)
+- [某柯学的正义伙伴](https://www.xcposji.com/book/jnjj7m/)
+- [青空来信](https://www.xcposji.com/book/jnjinn/)
+- [侯府打工人](https://www.xcposji.com/book/jnjilc/)
 - [[足球]小小鸟堂堂来袭](https://www.xcposji.com/book/jnjdmg/)
-- [撕毁女配剧本的我被神之子读心了](https://www.xcposji.com/book/jnjcll/)
+- [契约情人](https://www.xcposji.com/book/jnjbv9/)
 - [法外狂猫](https://www.xcposji.com/book/jnjab4/)
 - [好兄弟暴富后非要跟我结婚](https://www.xcposji.com/book/jnj6ob/)
 - [和室友他爸恋爱后](https://www.xcposji.com/book/jnj4j9/)
 - [关于我虚构了一个男友这件事](https://www.xcposji.com/book/jnj3k6/)
-- [人偶游戏](https://www.xcposji.com/book/jnj1d9/)
 - [分手后与诱系妻子再度热恋](https://www.xcposji.com/book/jnhgk6/)
 - [星际团宠小人鱼](https://www.xcposji.com/book/jnhgbu/)
 - [纯爱宇智波基本恋爱法](https://www.xcposji.com/book/jnhg4f/)
+- [[封神]圣人生欲](https://www.xcposji.com/book/jnhf96/)
 - [他要和我谈恋爱](https://www.xcposji.com/book/jnhefd/)
 - [高调装神，猥琐发育](https://www.xcposji.com/book/jnheam/)
 - [你，后室管理员](https://www.xcposji.com/book/jnheaf/)

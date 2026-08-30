@@ -1,13 +1,14 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-08-30 03:32:10
+更新时间：2026-08-31 03:33:17
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
 - [笔趣阁啦](https://www.qingyuchun.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.qingyuchun.com/book/10578k5/)
 - [发家致富小夫郎](https://www.qingyuchun.com/book/10578k4/)
 - [我要当厨修啊[美食]](https://www.qingyuchun.com/book/10578jv/)
 - [猫猫也要被魅魔魅惑吗？](https://www.qingyuchun.com/book/10578jt/)
@@ -68,6 +69,7 @@
 - [宫陷](https://www.qingyuchun.com/book/10578f9/)
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.qingyuchun.com/book/10578f3/)
 - [折禅（强取豪夺）](https://www.qingyuchun.com/book/10578f2/)
+- [养父](https://www.qingyuchun.com/book/10578ev/)
 - [九零首富的替嫁小媳妇](https://www.qingyuchun.com/book/10578ea/)
 - [星际团宠小人鱼](https://www.qingyuchun.com/book/10578e2/)
 - [十九世纪贵族厨房（美食）](https://www.qingyuchun.com/book/10578ci/)
@@ -83,6 +85,7 @@
 - [灭世龙崽有什么错](https://www.qingyuchun.com/book/1055n2a/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.qingyuchun.com/book/1055h0e/)
 - [九零重组小家庭](https://www.qingyuchun.com/book/10557s8/)
+- [从维多利亚时代开始](https://www.qingyuchun.com/book/1054u6p/)
 - [我有特殊的升官技巧](https://www.qingyuchun.com/book/1054rj0/)
 - [御兽师，我打工养你啊](https://www.qingyuchun.com/book/1054pd4/)
 - [反派人生，易如反掌[快穿]](https://www.qingyuchun.com/book/1054o0v/)
@@ -98,7 +101,6 @@
 - [趁她之危](https://www.qingyuchun.com/book/1053roj/)
 - [第一游侠[全息]](https://www.qingyuchun.com/book/1053r3e/)
 - [人妻O救赎指南](https://www.qingyuchun.com/book/1053qap/)
-- [万人嫌女配过分漂亮](https://www.qingyuchun.com/book/1053ksg/)
 - [始皇闺女躺平失败的日子](https://www.qingyuchun.com/book/1053kr1/)
 - [摄政王家的咸鱼夫郎](https://www.qingyuchun.com/book/1053koh/)
 - [寄人篱下](https://www.qingyuchun.com/book/1053iob/)
@@ -134,7 +136,6 @@
 - [恋爱脑毁灭世界](https://www.qingyuchun.com/book/36uekh/)
 - [魔尊和仙帝共坠爱河之后](https://www.qingyuchun.com/book/36ue88/)
 - [你是我的根目录](https://www.qingyuchun.com/book/36ue7q/)
-- [兽世种田撸狼首领](https://www.qingyuchun.com/book/36uap0/)
 - [直男误入攻略天龙人游戏](https://www.qingyuchun.com/book/36u80l/)
 - [[综港影]野生情人出没地](https://www.qingyuchun.com/book/36u7op/)
 - [穿越废星，我靠种田求生](https://www.qingyuchun.com/book/36u587/)
@@ -155,6 +156,7 @@
 - [徐娘子的美食发家日常](https://www.qingyuchun.com/book/36tt6u/)
 - [萩原警官的咒术大冒险](https://www.qingyuchun.com/book/36tt2l/)
 - [绿茶病秧子骗他说喜欢](https://www.qingyuchun.com/book/36tsjc/)
+- [在医院旧楼捡到个外科鼻祖](https://www.qingyuchun.com/book/36tqrh/)
 - [把清冷权臣调成荡夫后](https://www.qingyuchun.com/book/36tp5j/)
 - [我有一座安全城](https://www.qingyuchun.com/book/a9c9l/)
 - [替嫁后咸鱼继母佛系日常](https://www.qingyuchun.com/book/a9c3q/)

@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-08-30 03:28:38
+更新时间：2026-08-31 03:29:44
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
@@ -134,7 +134,6 @@
 - [你是我的根目录](https://www.lianzai007.com/book/kq02vh/)
 - [魔尊和仙帝共坠爱河之后](https://www.lianzai007.com/book/kq02ff/)
 - [恋爱脑毁灭世界](https://www.lianzai007.com/book/kq00vl/)
-- [兽世种田撸狼首领](https://www.lianzai007.com/book/kpvtse/)
 - [直男误入攻略天龙人游戏](https://www.lianzai007.com/book/kpvrgr/)
 - [[综港影]野生情人出没地](https://www.lianzai007.com/book/kpvqog/)
 - [穿越废星，我靠种田求生](https://www.lianzai007.com/book/kpvpqm/)

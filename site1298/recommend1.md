@@ -1,13 +1,14 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-08-30 03:28:02
+更新时间：2026-08-31 03:29:08
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
 - [笔趣屋](https://www.kmjike.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.kmjike.com/book/4mlvlm3/)
 - [发家致富小夫郎](https://www.kmjike.com/book/4mlvlm2/)
 - [[足球]顶级名帅](https://www.kmjike.com/book/4mlvlm1/)
 - [[希腊神话]诸神都是我学生](https://www.kmjike.com/book/4mlvllt/)
@@ -68,6 +69,7 @@
 - [始乱终弃高岭之花以后](https://www.kmjike.com/book/4mlvlh1/)
 - [被怪物女友始乱终弃后[gb]](https://www.kmjike.com/book/4mlvlh0/)
 - [欢迎来到纳萨力克丧葬公司](https://www.kmjike.com/book/4mlvlgv/)
+- [养父](https://www.kmjike.com/book/4mlvlgt/)
 - [星际团宠小人鱼](https://www.kmjike.com/book/4mlvlgg/)
 - [九零首富的替嫁小媳妇](https://www.kmjike.com/book/4mlvlg5/)
 - [十九世纪贵族厨房（美食）](https://www.kmjike.com/book/4mlvlg0/)
@@ -83,6 +85,7 @@
 - [九零重组小家庭](https://www.kmjike.com/book/4mltvq8/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kmjike.com/book/4mltn76/)
 - [灭世龙崽有什么错](https://www.kmjike.com/book/4mltkq8/)
+- [从维多利亚时代开始](https://www.kmjike.com/book/4mltavg/)
 - [我有特殊的升官技巧](https://www.kmjike.com/book/4mlt8a5/)
 - [御兽师，我打工养你啊](https://www.kmjike.com/book/4mlt670/)
 - [反派人生，易如反掌[快穿]](https://www.kmjike.com/book/4mlt4il/)
@@ -99,7 +102,6 @@
 - [人妻O救赎指南](https://www.kmjike.com/book/4mls8n3/)
 - [第一游侠[全息]](https://www.kmjike.com/book/4mls7q9/)
 - [始皇闺女躺平失败的日子](https://www.kmjike.com/book/4mls2c0/)
-- [万人嫌女配过分漂亮](https://www.kmjike.com/book/4mls1ld/)
 - [摄政王家的咸鱼夫郎](https://www.kmjike.com/book/4mls0n2/)
 - [寄人篱下](https://www.kmjike.com/book/4mlruc2/)
 - [当我穿为龙傲天的情敌](https://www.kmjike.com/book/f28l4d/)
@@ -134,7 +136,6 @@
 - [魔尊和仙帝共坠爱河之后](https://www.kmjike.com/book/f27ar4/)
 - [恋爱脑毁灭世界](https://www.kmjike.com/book/f279q0/)
 - [你是我的根目录](https://www.kmjike.com/book/f279f4/)
-- [兽世种田撸狼首领](https://www.kmjike.com/book/f2779k/)
 - [直男误入攻略天龙人游戏](https://www.kmjike.com/book/f275f5/)
 - [[综港影]野生情人出没地](https://www.kmjike.com/book/f274se/)
 - [穿越废星，我靠种田求生](https://www.kmjike.com/book/f272fu/)
@@ -156,6 +157,7 @@
 - [绿茶病秧子骗他说喜欢](https://www.kmjike.com/book/f26n3c/)
 - [搭档，一起来玩求生游戏吧！](https://www.kmjike.com/book/f26ms7/)
 - [把清冷权臣调成荡夫后](https://www.kmjike.com/book/f26lrc/)
+- [在医院旧楼捡到个外科鼻祖](https://www.kmjike.com/book/f26k8r/)
 - [警察，但犯罪大师系统[刑侦]](https://www.kmjike.com/book/1g724o/)
 - [我有一座安全城](https://www.kmjike.com/book/1g71ib/)
 - [科学主义魔法学院](https://www.kmjike.com/book/1g71b5/)

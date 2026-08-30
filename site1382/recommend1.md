@@ -1,13 +1,14 @@
 
 # 完本小说网_全本完结小说排行榜免费在线阅读txt下载无弹窗
 
-更新时间：2026-08-30 03:31:12
+更新时间：2026-08-31 03:32:19
 
 完本小说网提供热门完本小说排行榜免费在线阅读无弹窗、免费小说txt下载全集，好看的完本小说推荐排行。
 
 - [完本小说网](https://www.pysonm.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.pysonm.com/book/25nuvhg/)
 - [九零重组小家庭](https://www.pysonm.com/book/25nuni4/)
 - [发家致富小夫郎](https://www.pysonm.com/book/25numv1/)
 - [[三国]清澈，但千古一帝](https://www.pysonm.com/book/25nuh1i/)
@@ -65,6 +66,7 @@
 - [[原神+崩铁]在提瓦特隐居也未尝不可](https://www.pysonm.com/book/25nugng/)
 - [我的烧烤摊超美味[美食]](https://www.pysonm.com/book/25nugn5/)
 - [败类游戏](https://www.pysonm.com/book/25nugmj/)
+- [从维多利亚时代开始](https://www.pysonm.com/book/25nub9v/)
 - [我真的只会Ctrl啊！！！](https://www.pysonm.com/book/25nu9rs/)
 - [我有特殊的升官技巧](https://www.pysonm.com/book/25nu8m0/)
 - [反派人生，易如反掌[快穿]](https://www.pysonm.com/book/25nu51n/)
@@ -75,7 +77,6 @@
 - [全球进化，而我保持不变](https://www.pysonm.com/book/25ntcn9/)
 - [我写小说纯粹为了赚钱](https://www.pysonm.com/book/25nt936/)
 - [第一游侠[全息]](https://www.pysonm.com/book/25nt8et/)
-- [万人嫌女配过分漂亮](https://www.pysonm.com/book/25nt7tf/)
 - [寄人篱下](https://www.pysonm.com/book/25nt7pe/)
 - [始皇闺女躺平失败的日子](https://www.pysonm.com/book/25nt6fm/)
 - [误标记隔壁阿姨O之后](https://www.pysonm.com/book/25nt272/)
@@ -90,6 +91,7 @@
 - [[综英美]让我统治哥谭！！！](https://www.pysonm.com/book/25nspkl/)
 - [养成游戏，但破解版](https://www.pysonm.com/book/25nsn50/)
 - [人妻O救赎指南](https://www.pysonm.com/book/25nskb6/)
+- [养父](https://www.pysonm.com/book/25nsj9u/)
 - [霓虹夏日](https://www.pysonm.com/book/25nsj4t/)
 - [我司艺人永不塌房](https://www.pysonm.com/book/25nseu7/)
 - [啊？我是万人迷？［虫族］](https://www.pysonm.com/book/25nsbl3/)
@@ -107,7 +109,6 @@
 - [豪门前妻O总想诱我](https://www.pysonm.com/book/25ns2bm/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.pysonm.com/book/25ns100/)
 - [恋爱脑毁灭世界](https://www.pysonm.com/book/25nrvc9/)
-- [兽世种田撸狼首领](https://www.pysonm.com/book/25nrudf/)
 - [漫画配角的不平凡日常](https://www.pysonm.com/book/25nrtav/)
 - [青城玩家明明超强却过分谨慎](https://www.pysonm.com/book/25nrscn/)
 - [重临巅峰[花滑]](https://www.pysonm.com/book/25nrr3k/)
@@ -138,6 +139,7 @@
 - [把清冷权臣调成荡夫后](https://www.pysonm.com/book/25nr2l9/)
 - [绿茶病秧子骗他说喜欢](https://www.pysonm.com/book/25nr18i/)
 - [我真的没想在选秀炒CP](https://www.pysonm.com/book/25nqv82/)
+- [在医院旧楼捡到个外科鼻祖](https://www.pysonm.com/book/25nqt8q/)
 - [[群穿]我在御兽番抢人气](https://www.pysonm.com/book/25nqsg8/)
 - [欢迎来到纳萨力克丧葬公司](https://www.pysonm.com/book/25nqqul/)
 - [替嫁后咸鱼继母佛系日常](https://www.pysonm.com/book/25nq0e0/)
