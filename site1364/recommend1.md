@@ -1,13 +1,14 @@
 
 # 科幻读书-免费小说阅读|言情小说|小说排行榜|全本完本小说下载
 
-更新时间：2026-08-30 03:27:32
+更新时间：2026-08-31 03:28:38
 
 科幻读书提供海量完结全本小说在线阅读服务，涵盖言情、都市、耽美、穿越等多种类型，并定期更新连载章节及发布最新小说排行榜单。支持有声小说推荐与下载。
 
 - [科幻读书](https://www.kehuan918.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.kehuan918.com/book/1d56bpq/)
 - [发家致富小夫郎](https://www.kehuan918.com/book/1d56799/)
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.kehuan918.com/book/1d564un/)
 - [[原神+崩铁]在提瓦特隐居也未尝不可](https://www.kehuan918.com/book/1d564uk/)
@@ -65,9 +66,11 @@
 - [我真的只会Ctrl啊！！！](https://www.kehuan918.com/book/1d562g2/)
 - [灭世龙崽有什么错](https://www.kehuan918.com/book/1d55rdp/)
 - [九零重组小家庭](https://www.kehuan918.com/book/1d55pm3/)
+- [养父](https://www.kehuan918.com/book/1d55olj/)
 - [人妻O救赎指南](https://www.kehuan918.com/book/1d55ohq/)
 - [在虫族世界逃命升级](https://www.kehuan918.com/book/1d55l4l/)
 - [神豪文男主是我爸](https://www.kehuan918.com/book/1d55k3k/)
+- [从维多利亚时代开始](https://www.kehuan918.com/book/1d55bbg/)
 - [我有特殊的升官技巧](https://www.kehuan918.com/book/1d558hk/)
 - [星际团宠小人鱼](https://www.kehuan918.com/book/1d555km/)
 - [十九世纪贵族厨房（美食）](https://www.kehuan918.com/book/1d555kj/)
@@ -82,7 +85,6 @@
 - [我写小说纯粹为了赚钱](https://www.kehuan918.com/book/1d546co/)
 - [枕边热吻](https://www.kehuan918.com/book/1d545ij/)
 - [寄人篱下](https://www.kehuan918.com/book/1d5443g/)
-- [万人嫌女配过分漂亮](https://www.kehuan918.com/book/1d5442b/)
 - [误标记隔壁阿姨O之后](https://www.kehuan918.com/book/1d540oh/)
 - [为诡异打工，但反封建迷信](https://www.kehuan918.com/book/1d540ft/)
 - [不当救世主就要当人类恶了吗](https://www.kehuan918.com/book/1d53tmt/)
@@ -114,7 +116,6 @@
 - [豪门前妻O总想诱我](https://www.kehuan918.com/book/1d52uhe/)
 - [井闼山经理每天都被挖墙脚](https://www.kehuan918.com/book/1d52ub8/)
 - [恋爱脑毁灭世界](https://www.kehuan918.com/book/1d52sjb/)
-- [兽世种田撸狼首领](https://www.kehuan918.com/book/1d52ru4/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.kehuan918.com/book/1d52rn0/)
 - [漫漫仙途](https://www.kehuan918.com/book/1d52qm5/)
 - [魔尊和仙帝共坠爱河之后](https://www.kehuan918.com/book/1d52pbs/)
@@ -145,6 +146,7 @@
 - [我不是御兽大师](https://www.kehuan918.com/book/1d521sg/)
 - [徐娘子的美食发家日常](https://www.kehuan918.com/book/1d520bk/)
 - [我真的没想在选秀炒CP](https://www.kehuan918.com/book/1d51ub0/)
+- [在医院旧楼捡到个外科鼻祖](https://www.kehuan918.com/book/1d51t39/)
 - [把清冷权臣调成荡夫后](https://www.kehuan918.com/book/1d51rvc/)
 - [[群穿]我在御兽番抢人气](https://www.kehuan918.com/book/1d51qs5/)
 - [高嫁之后](https://www.kehuan918.com/book/1d510ak/)

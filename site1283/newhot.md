@@ -1,28 +1,32 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-08-30 03:21:11
+更新时间：2026-08-31 03:22:23
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
 - [书包网](https://www.cialisgs.com/)
 
 ## 最新小说
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.cialisgs.com/book/89ru3o1/)
+- [阿竹与野桃](https://www.cialisgs.com/book/89ru3ng/)
 - [井闼山经理每天都被挖墙脚](https://www.cialisgs.com/book/89ru3nb/)
-- [我的烧烤摊超美味[美食]](https://www.cialisgs.com/book/89ru3j4/)
+- [失而复得的白月光[快穿]](https://www.cialisgs.com/book/89ru3mg/)
 - [星际团宠小人鱼](https://www.cialisgs.com/book/89ru3is/)
 - [你，后室管理员](https://www.cialisgs.com/book/89ru3hl/)
+- [[封神]圣人生欲](https://www.cialisgs.com/book/89ru3h9/)
 - [分手后与诱系妻子再度热恋](https://www.cialisgs.com/book/89ru3h5/)
 - [他要和我谈恋爱](https://www.cialisgs.com/book/89ru3h2/)
 - [高调装神，猥琐发育](https://www.cialisgs.com/book/89ru3ed/)
+- [直男咒术师的限制级游戏](https://www.cialisgs.com/book/89ru3bn/)
 - [纯爱宇智波基本恋爱法](https://www.cialisgs.com/book/89ru3bi/)
+- [某柯学的正义伙伴](https://www.cialisgs.com/book/89rr9va/)
+- [男朋友买一送一](https://www.cialisgs.com/book/89rqtil/)
 - [我有嘉宾](https://www.cialisgs.com/book/89rqrmr/)
-- [漫画路人绑定系统后](https://www.cialisgs.com/book/qir5gv/)
-- [老公是松散生命体](https://www.cialisgs.com/book/qiqkpk/)
-- [一枝枝怨](https://www.cialisgs.com/book/qiqjop/)
+- [寻真](https://www.cialisgs.com/book/89rqc17/)
+- [沈助理又在隐藏他的超能力](https://www.cialisgs.com/book/qirhaa/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.cialisgs.com/book/qir63o/)
+- [青空来信](https://www.cialisgs.com/book/qiqkoa/)
 - [[足球]罗蜜第一志愿](https://www.cialisgs.com/book/qiq7jp/)
-- [多梦你一会儿](https://www.cialisgs.com/book/qiq6i6/)
 - [拯救世界从扮演反派开始](https://www.cialisgs.com/book/qiq44v/)
 ## 相关内容
 - [README](/README.md)

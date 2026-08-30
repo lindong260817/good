@@ -1,7 +1,7 @@
 
 # 家家福顶点书包 - 免费TXT小说下载, 手机电子书资源
 
-更新时间：2026-08-30 03:25:39
+更新时间：2026-08-31 03:26:46
 
 家家福顶点书包为您提供最新最全的小说资源，包括但不限于txt电子书、手机txt小说下载等服务，所有内容均支持全本免费下载，是小说爱好者的理想选择。
 
@@ -134,7 +134,6 @@
 - [你是我的根目录](https://www.jjfbaijia.com/book/rbdomt/)
 - [恋爱脑毁灭世界](https://www.jjfbaijia.com/book/rbdnpn/)
 - [魔尊和仙帝共坠爱河之后](https://www.jjfbaijia.com/book/rbdmk9/)
-- [兽世种田撸狼首领](https://www.jjfbaijia.com/book/rbdm0b/)
 - [直男误入攻略天龙人游戏](https://www.jjfbaijia.com/book/rbdi8d/)
 - [穿越废星，我靠种田求生](https://www.jjfbaijia.com/book/rbdfai/)
 - [八零恶毒后妈杀疯了](https://www.jjfbaijia.com/book/rbdec6/)

@@ -1,7 +1,7 @@
 
 # 探秘书院-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-08-30 03:35:57
+更新时间：2026-08-31 03:37:04
 
 探秘书院提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
@@ -9,31 +9,38 @@
 
 ## 最新小说
 - [我的烧烤摊超美味[美食]](https://www.tanmi918.com/book/80r4gc6/)
+- [阿竹与野桃](https://www.tanmi918.com/book/80r4gc5/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.tanmi918.com/book/80r4g9o/)
 - [我有嘉宾](https://www.tanmi918.com/book/80r4bo0/)
 - [星际团宠小人鱼](https://www.tanmi918.com/book/80r3h49/)
 - [你，后室管理员](https://www.tanmi918.com/book/80r3gsm/)
 - [分手后与诱系妻子再度热恋](https://www.tanmi918.com/book/80r3gqd/)
 - [高调装神，猥琐发育](https://www.tanmi918.com/book/80r3a1i/)
+- [男朋友买一送一](https://www.tanmi918.com/book/80r2viq/)
+- [失而复得的白月光[快穿]](https://www.tanmi918.com/book/80r2q39/)
 - [如何正确哄睡暴君](https://www.tanmi918.com/book/80r2n9v/)
+- [寻真](https://www.tanmi918.com/book/80r2ek2/)
+- [我不可能舔一个漂亮捞子](https://www.tanmi918.com/book/80r2e47/)
+- [沈助理又在隐藏他的超能力](https://www.tanmi918.com/book/80r28co/)
 - [被鬼怪宠爱的漂亮书生](https://www.tanmi918.com/book/80r28be/)
-- [老公是松散生命体](https://www.tanmi918.com/book/80r27r9/)
 - [微臣怜惜公主](https://www.tanmi918.com/book/80r26hk/)
 - [他要和我谈恋爱](https://www.tanmi918.com/book/80r1tqk/)
-- [战死的阿爹回来了[年代]](https://www.tanmi918.com/book/80r1n9c/)
-- [漫画路人绑定系统后](https://www.tanmi918.com/book/80r1mol/)
-- [多梦你一会儿](https://www.tanmi918.com/book/80r1lm6/)
-- [[足球]能不能好好模拟游戏](https://www.tanmi918.com/book/80r1jt4/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.tanmi918.com/book/80r1lev/)
+- [[封神]圣人生欲](https://www.tanmi918.com/book/80r1l4q/)
 - [[足球]罗蜜第一志愿](https://www.tanmi918.com/book/80r1f5n/)
+- [青空来信](https://www.tanmi918.com/book/80r1ecv/)
+- [某柯学的正义伙伴](https://www.tanmi918.com/book/80r1ccn/)
 - [井闼山经理每天都被挖墙脚](https://www.tanmi918.com/book/80r1ao6/)
-- [一枝枝怨](https://www.tanmi918.com/book/80r1a6t/)
 - [[足球]小小鸟堂堂来袭](https://www.tanmi918.com/book/80r114k/)
 - [法外狂猫](https://www.tanmi918.com/book/80r0sdq/)
 - [好兄弟暴富后非要跟我结婚](https://www.tanmi918.com/book/80r0rdj/)
+- [侯府打工人](https://www.tanmi918.com/book/80r0quu/)
 - [关于我虚构了一个男友这件事](https://www.tanmi918.com/book/80r0pll/)
+- [契约情人](https://www.tanmi918.com/book/80r0olq/)
 - [和室友他爸恋爱后](https://www.tanmi918.com/book/80r0g7g/)
 - [纯爱宇智波基本恋爱法](https://www.tanmi918.com/book/80qv954/)
 - [拯救世界从扮演反派开始](https://www.tanmi918.com/book/80qv915/)
+- [直男咒术师的限制级游戏](https://www.tanmi918.com/book/80qv8ut/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1368/index.md)

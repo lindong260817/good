@@ -1,13 +1,14 @@
 
 # 文学小说668 - 全球最新最热的小说阅读平台
 
-更新时间：2026-08-30 03:37:27
+更新时间：2026-08-31 03:38:34
 
 文学小说668是全球最新、最热的小说阅读网站之一，汇集了包括言情小说、玄幻小说、穿越小说在内的各类优质小说资源，让读者能够尽情享受阅读的乐趣。
 
 - [文学小说668](https://www.wenxue668.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.wenxue668.com/book/44fes72/)
 - [发家致富小夫郎](https://www.wenxue668.com/book/44fenl4/)
 - [私恋旧星](https://www.wenxue668.com/book/44felbs/)
 - [除病弱万人嫌外全员重生](https://www.wenxue668.com/book/44felbm/)
@@ -65,9 +66,11 @@
 - [我真的只会Ctrl啊！！！](https://www.wenxue668.com/book/44feis8/)
 - [灭世龙崽有什么错](https://www.wenxue668.com/book/44febit/)
 - [九零重组小家庭](https://www.wenxue668.com/book/44fe9tb/)
+- [养父](https://www.wenxue668.com/book/44fe98b/)
 - [人妻O救赎指南](https://www.wenxue668.com/book/44fe981/)
 - [在虫族世界逃命升级](https://www.wenxue668.com/book/44fe53t/)
 - [神豪文男主是我爸](https://www.wenxue668.com/book/44fe4c7/)
+- [从维多利亚时代开始](https://www.wenxue668.com/book/44fdrid/)
 - [我有特殊的升官技巧](https://www.wenxue668.com/book/44fdogr/)
 - [星际团宠小人鱼](https://www.wenxue668.com/book/44fdmn7/)
 - [十九世纪贵族厨房（美食）](https://www.wenxue668.com/book/44fdmfg/)
@@ -81,7 +84,6 @@
 - [我写小说纯粹为了赚钱](https://www.wenxue668.com/book/44fcm5j/)
 - [始皇闺女躺平失败的日子](https://www.wenxue668.com/book/44fclqs/)
 - [九零首富的替嫁小媳妇](https://www.wenxue668.com/book/44fcloa/)
-- [万人嫌女配过分漂亮](https://www.wenxue668.com/book/44fclc2/)
 - [枕边热吻](https://www.wenxue668.com/book/44fckr2/)
 - [为诡异打工，但反封建迷信](https://www.wenxue668.com/book/44fcg3j/)
 - [误标记隔壁阿姨O之后](https://www.wenxue668.com/book/44fcfl2/)
@@ -115,7 +117,6 @@
 - [豪门前妻O总想诱我](https://www.wenxue668.com/book/44fbe6h/)
 - [恋爱脑毁灭世界](https://www.wenxue668.com/book/44fbdb9/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.wenxue668.com/book/44fbd4u/)
-- [兽世种田撸狼首领](https://www.wenxue668.com/book/44fbc50/)
 - [魔尊和仙帝共坠爱河之后](https://www.wenxue668.com/book/44fban2/)
 - [漫漫仙途](https://www.wenxue668.com/book/44fbam6/)
 - [漫画配角的不平凡日常](https://www.wenxue668.com/book/44fb8nd/)
@@ -145,6 +146,7 @@
 - [我不是御兽大师](https://www.wenxue668.com/book/44fagt1/)
 - [我真的没想在选秀炒CP](https://www.wenxue668.com/book/44faev3/)
 - [徐娘子的美食发家日常](https://www.wenxue668.com/book/44faeop/)
+- [在医院旧楼捡到个外科鼻祖](https://www.wenxue668.com/book/44fadd2/)
 - [把清冷权臣调成荡夫后](https://www.wenxue668.com/book/44facij/)
 - [[群穿]我在御兽番抢人气](https://www.wenxue668.com/book/44fab8h/)
 - [95美国贵族高中模拟](https://www.wenxue668.com/book/44f9gdd/)
