@@ -1,13 +1,14 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-08-30 03:25:57
+更新时间：2026-08-31 03:27:03
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。
 
 - [奇书网](https://www.jxbfsz.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.jxbfsz.com/book/29i1p5o/)
 - [发家致富小夫郎](https://www.jxbfsz.com/book/29i1p5n/)
 - [渡鬼](https://www.jxbfsz.com/book/29i1oci/)
 - [我们生活玩家是这样的](https://www.jxbfsz.com/book/29i1oce/)
@@ -63,6 +64,7 @@
 - [我的NPC队友全是火影天花板](https://www.jxbfsz.com/book/29i1o80/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.jxbfsz.com/book/29i1j11/)
 - [我真的只会Ctrl啊！！！](https://www.jxbfsz.com/book/29i1f58/)
+- [养父](https://www.jxbfsz.com/book/29i1eut/)
 - [人妻O救赎指南](https://www.jxbfsz.com/book/29i1ero/)
 - [星际团宠小人鱼](https://www.jxbfsz.com/book/29i17vc/)
 - [灭世龙崽有什么错](https://www.jxbfsz.com/book/29i140s/)
@@ -70,6 +72,7 @@
 - [神豪文男主是我爸](https://www.jxbfsz.com/book/29i0ubo/)
 - [在虫族世界逃命升级](https://www.jxbfsz.com/book/29i0t0f/)
 - [趁她之危](https://www.jxbfsz.com/book/29i0qqn/)
+- [从维多利亚时代开始](https://www.jxbfsz.com/book/29i0j9d/)
 - [我有特殊的升官技巧](https://www.jxbfsz.com/book/29i0ga0/)
 - [反派人生，易如反掌[快穿]](https://www.jxbfsz.com/book/29i0d03/)
 - [假少爷不想活了](https://www.jxbfsz.com/book/29i0cq6/)
@@ -81,7 +84,6 @@
 - [第一游侠[全息]](https://www.jxbfsz.com/book/29hvh9d/)
 - [全球进化，而我保持不变](https://www.jxbfsz.com/book/29hvfc7/)
 - [寄人篱下](https://www.jxbfsz.com/book/29hvedm/)
-- [万人嫌女配过分漂亮](https://www.jxbfsz.com/book/29hvahd/)
 - [绿叶](https://www.jxbfsz.com/book/29hvag7/)
 - [科学主义魔法学院](https://www.jxbfsz.com/book/29hv9ng/)
 - [始皇闺女躺平失败的日子](https://www.jxbfsz.com/book/29hv9gm/)
@@ -119,7 +121,6 @@
 - [人在虫族，写文爆红](https://www.jxbfsz.com/book/29hu4mk/)
 - [恋爱脑毁灭世界](https://www.jxbfsz.com/book/29hu3k9/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.jxbfsz.com/book/29hu0gj/)
-- [兽世种田撸狼首领](https://www.jxbfsz.com/book/29hu01o/)
 - [漫画配角的不平凡日常](https://www.jxbfsz.com/book/29htvtn/)
 - [重临巅峰[花滑]](https://www.jxbfsz.com/book/29htvpb/)
 - [井闼山经理每天都被挖墙脚](https://www.jxbfsz.com/book/29htu83/)
@@ -149,6 +150,7 @@
 - [徐娘子的美食发家日常](https://www.jxbfsz.com/book/29ht5mb/)
 - [我真的没想在选秀炒CP](https://www.jxbfsz.com/book/29ht5j0/)
 - [把清冷权臣调成荡夫后](https://www.jxbfsz.com/book/29ht4mc/)
+- [在医院旧楼捡到个外科鼻祖](https://www.jxbfsz.com/book/29ht302/)
 - [[群穿]我在御兽番抢人气](https://www.jxbfsz.com/book/29hsvnv/)
 - [高门小婢](https://www.jxbfsz.com/book/29hs864/)
 - [卧底后被港岛大小姐缠上了](https://www.jxbfsz.com/book/29hs84i/)

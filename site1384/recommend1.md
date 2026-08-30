@@ -1,7 +1,7 @@
 
 # 积家健康小说 - 无弹窗无广告小说在线阅读
 
-更新时间：2026-08-30 03:25:25
+更新时间：2026-08-31 03:26:32
 
 积家健康小说提供一个干净简洁的平台让您享受无弹窗无广告的小说在线阅读体验。无论是在线阅读还是下载小说，都是完全免费的。
 
@@ -105,7 +105,6 @@
 - [人在虫族，写文爆红](https://www.jijiajk.com/book/3aavniq/)
 - [豪门前妻O总想诱我](https://www.jijiajk.com/book/3aavm72/)
 - [青空来信](https://www.jijiajk.com/book/3aavloq/)
-- [兽世种田撸狼首领](https://www.jijiajk.com/book/3aavith/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.jijiajk.com/book/3aaviar/)
 - [青城玩家明明超强却过分谨慎](https://www.jijiajk.com/book/3aavheq/)
 - [恋爱脑毁灭世界](https://www.jijiajk.com/book/3aavh03/)

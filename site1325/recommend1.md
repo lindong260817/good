@@ -1,13 +1,14 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-08-30 03:40:11
+更新时间：2026-08-31 03:41:18
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。
 
 - [炫书网](https://www.xqwz8bk.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.xqwz8bk.com/book/1igm349/)
 - [发家致富小夫郎](https://www.xqwz8bk.com/book/1igm348/)
 - [我司艺人永不塌房](https://www.xqwz8bk.com/book/1igm33v/)
 - [[三国]清澈，但千古一帝](https://www.xqwz8bk.com/book/1igm33t/)
@@ -68,6 +69,7 @@
 - [卡尔蜜拉也能成为特利迦白月光？](https://www.xqwz8bk.com/book/1igm2v7/)
 - [师姐她怎么还不来追求我](https://www.xqwz8bk.com/book/1igm2v6/)
 - [昼色清明](https://www.xqwz8bk.com/book/1igm2v5/)
+- [养父](https://www.xqwz8bk.com/book/1igm2v3/)
 - [星际团宠小人鱼](https://www.xqwz8bk.com/book/1igm2ui/)
 - [九零首富的替嫁小媳妇](https://www.xqwz8bk.com/book/1igm2u0/)
 - [十九世纪贵族厨房（美食）](https://www.xqwz8bk.com/book/1igm2sr/)
@@ -83,6 +85,7 @@
 - [九零重组小家庭](https://www.xqwz8bk.com/book/1igkj3u/)
 - [灭世龙崽有什么错](https://www.xqwz8bk.com/book/1igkbi0/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.xqwz8bk.com/book/1igk3t9/)
+- [从维多利亚时代开始](https://www.xqwz8bk.com/book/1igjpdg/)
 - [我有特殊的升官技巧](https://www.xqwz8bk.com/book/1igjmg5/)
 - [御兽师，我打工养你啊](https://www.xqwz8bk.com/book/1igjkj0/)
 - [反派人生，易如反掌[快穿]](https://www.xqwz8bk.com/book/1igjj0j/)
@@ -101,7 +104,6 @@
 - [始皇闺女躺平失败的日子](https://www.xqwz8bk.com/book/1igignt/)
 - [摄政王家的咸鱼夫郎](https://www.xqwz8bk.com/book/1igifdv/)
 - [寄人篱下](https://www.xqwz8bk.com/book/1igidm8/)
-- [万人嫌女配过分漂亮](https://www.xqwz8bk.com/book/1igid5m/)
 - [当我穿为龙傲天的情敌](https://www.xqwz8bk.com/book/51no8r/)
 - [全球进化，而我保持不变](https://www.xqwz8bk.com/book/51nng7/)
 - [不当救世主就要当人类恶了吗](https://www.xqwz8bk.com/book/51nl88/)
@@ -134,7 +136,6 @@
 - [恋爱脑毁灭世界](https://www.xqwz8bk.com/book/51md30/)
 - [魔尊和仙帝共坠爱河之后](https://www.xqwz8bk.com/book/51mcis/)
 - [你是我的根目录](https://www.xqwz8bk.com/book/51mb53/)
-- [兽世种田撸狼首领](https://www.xqwz8bk.com/book/51ma6l/)
 - [直男误入攻略天龙人游戏](https://www.xqwz8bk.com/book/51m5ur/)
 - [八零恶毒后妈杀疯了](https://www.xqwz8bk.com/book/51m476/)
 - [[综港影]野生情人出没地](https://www.xqwz8bk.com/book/51m40o/)
@@ -156,6 +157,7 @@
 - [把清冷权臣调成荡夫后](https://www.xqwz8bk.com/book/51loa0/)
 - [搭档，一起来玩求生游戏吧！](https://www.xqwz8bk.com/book/51ln11/)
 - [绿茶病秧子骗他说喜欢](https://www.xqwz8bk.com/book/51lm4c/)
+- [在医院旧楼捡到个外科鼻祖](https://www.xqwz8bk.com/book/51lln6/)
 - [卧底后被港岛大小姐缠上了](https://www.xqwz8bk.com/book/g5bpk/)
 - [全民求生:从小木屋到魔法农场](https://www.xqwz8bk.com/book/g5blo/)
 - [科学主义魔法学院](https://www.xqwz8bk.com/book/g5bki/)

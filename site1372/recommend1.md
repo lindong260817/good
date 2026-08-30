@@ -1,13 +1,14 @@
 
 # 落秋文学网 - 免费全本小说阅读,最新章节更新,无弹窗广告
 
-更新时间：2026-08-30 03:37:41
+更新时间：2026-08-31 03:38:48
 
 落秋文学网提供最快最新的网络小说更新服务，推荐最好看的网络小说排行榜。全站支持无弹窗广告阅读体验，全本小说均可免费在线阅读。
 
 - [落秋文学网](https://www.wenxue868.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.wenxue868.com/book/rlchks/)
 - [发家致富小夫郎](https://www.wenxue868.com/book/rlcd2q/)
 - [太子哥哥不想当哥哥](https://www.wenxue868.com/book/rlcaot/)
 - [我们生活玩家是这样的](https://www.wenxue868.com/book/rlcaor/)
@@ -66,8 +67,10 @@
 - [灭世龙崽有什么错](https://www.wenxue868.com/book/rlc1bv/)
 - [九零重组小家庭](https://www.wenxue868.com/book/rlbvj6/)
 - [人妻O救赎指南](https://www.wenxue868.com/book/rlbug4/)
+- [养父](https://www.wenxue868.com/book/rlbuad/)
 - [在虫族世界逃命升级](https://www.wenxue868.com/book/rlbqsc/)
 - [神豪文男主是我爸](https://www.wenxue868.com/book/rlbq3f/)
+- [从维多利亚时代开始](https://www.wenxue868.com/book/rlbh90/)
 - [我有特殊的升官技巧](https://www.wenxue868.com/book/rlbe9m/)
 - [星际团宠小人鱼](https://www.wenxue868.com/book/rlbbgl/)
 - [十九世纪贵族厨房（美食）](https://www.wenxue868.com/book/rlbbeh/)
@@ -77,7 +80,6 @@
 - [全球进化，而我保持不变](https://www.wenxue868.com/book/rlai3t/)
 - [绿叶](https://www.wenxue868.com/book/rladdj/)
 - [第一游侠[全息]](https://www.wenxue868.com/book/rlad18/)
-- [万人嫌女配过分漂亮](https://www.wenxue868.com/book/rlacc0/)
 - [九零首富的替嫁小媳妇](https://www.wenxue868.com/book/rlacav/)
 - [枕边热吻](https://www.wenxue868.com/book/rlaacu/)
 - [始皇闺女躺平失败的日子](https://www.wenxue868.com/book/rlaa4a/)
@@ -113,7 +115,6 @@
 - [人在虫族，写文爆红](https://www.wenxue868.com/book/rl95k0/)
 - [豪门前妻O总想诱我](https://www.wenxue868.com/book/rl9521/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.wenxue868.com/book/rl9459/)
-- [兽世种田撸狼首领](https://www.wenxue868.com/book/rl93bg/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.wenxue868.com/book/rl92up/)
 - [恋爱脑毁灭世界](https://www.wenxue868.com/book/rl91o6/)
 - [漫画配角的不平凡日常](https://www.wenxue868.com/book/rl90cm/)
@@ -146,6 +147,7 @@
 - [徐娘子的美食发家日常](https://www.wenxue868.com/book/rl869o/)
 - [我真的没想在选秀炒CP](https://www.wenxue868.com/book/rl84h0/)
 - [把清冷权臣调成荡夫后](https://www.wenxue868.com/book/rl82sh/)
+- [在医院旧楼捡到个外科鼻祖](https://www.wenxue868.com/book/rl82b6/)
 - [[群穿]我在御兽番抢人气](https://www.wenxue868.com/book/rl8181/)
 - [大瑛弟国](https://www.wenxue868.com/book/rl7650/)
 - [警察，但犯罪大师系统[刑侦]](https://www.wenxue868.com/book/rl760u/)

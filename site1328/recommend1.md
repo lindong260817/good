@@ -1,13 +1,14 @@
 
 # 新乐文小说 - 最热门免费在线阅读平台 | 玄幻、网游、言情、穿越、都市全本小说
 
-更新时间：2026-08-30 03:28:20
+更新时间：2026-08-31 03:29:26
 
 新乐文小说为您提供一个无广告无弹窗的纯净阅读环境，专注于玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读体验。在这里可以找到最新最热的小说章节更新，享受舒适的阅读时光。
 
 - [新乐文小说](https://www.ksqinlida.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.ksqinlida.com/book/1svdoi6/)
 - [发家致富小夫郎](https://www.ksqinlida.com/book/1svdoi5/)
 - [井闼山经理每天都被挖墙脚](https://www.ksqinlida.com/book/1svdoi4/)
 - [师姐她怎么还不来追求我](https://www.ksqinlida.com/book/1svdohu/)
@@ -68,6 +69,7 @@
 - [游戏角色想和玩家谈恋爱](https://www.ksqinlida.com/book/1svdoda/)
 - [宫陷](https://www.ksqinlida.com/book/1svdod4/)
 - [九十年代从军记](https://www.ksqinlida.com/book/1svdod2/)
+- [养父](https://www.ksqinlida.com/book/1svdod0/)
 - [九零首富的替嫁小媳妇](https://www.ksqinlida.com/book/1svdoci/)
 - [十九世纪贵族厨房（美食）](https://www.ksqinlida.com/book/1svdoca/)
 - [星际团宠小人鱼](https://www.ksqinlida.com/book/1svdob0/)
@@ -83,6 +85,7 @@
 - [灭世龙崽有什么错](https://www.ksqinlida.com/book/1svc4sn/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ksqinlida.com/book/1svc2q3/)
 - [九零重组小家庭](https://www.ksqinlida.com/book/1svbv1l/)
+- [从维多利亚时代开始](https://www.ksqinlida.com/book/1svbdne/)
 - [我有特殊的升官技巧](https://www.ksqinlida.com/book/1svbb91/)
 - [御兽师，我打工养你啊](https://www.ksqinlida.com/book/1svb919/)
 - [反派人生，易如反掌[快穿]](https://www.ksqinlida.com/book/1svb7nj/)
@@ -99,7 +102,6 @@
 - [人妻O救赎指南](https://www.ksqinlida.com/book/1svac1h/)
 - [第一游侠[全息]](https://www.ksqinlida.com/book/1svab97/)
 - [摄政王家的咸鱼夫郎](https://www.ksqinlida.com/book/1sva5o3/)
-- [万人嫌女配过分漂亮](https://www.ksqinlida.com/book/1sva5bq/)
 - [始皇闺女躺平失败的日子](https://www.ksqinlida.com/book/1sva56b/)
 - [寄人篱下](https://www.ksqinlida.com/book/1sva2d4/)
 - [全球进化，而我保持不变](https://www.ksqinlida.com/book/636u4n/)
@@ -134,7 +136,6 @@
 - [恋爱脑毁灭世界](https://www.ksqinlida.com/book/635ggj/)
 - [你是我的根目录](https://www.ksqinlida.com/book/635fvv/)
 - [魔尊和仙帝共坠爱河之后](https://www.ksqinlida.com/book/635frl/)
-- [兽世种田撸狼首领](https://www.ksqinlida.com/book/635e2n/)
 - [直男误入攻略天龙人游戏](https://www.ksqinlida.com/book/635aj3/)
 - [[综港影]野生情人出没地](https://www.ksqinlida.com/book/6359vh/)
 - [穿越废星，我靠种田求生](https://www.ksqinlida.com/book/6358pa/)
@@ -156,6 +157,7 @@
 - [今天在伟大航路抽到SSR了吗](https://www.ksqinlida.com/book/634tvq/)
 - [我真的没想在选秀炒CP](https://www.ksqinlida.com/book/634tqa/)
 - [把清冷权臣调成荡夫后](https://www.ksqinlida.com/book/634squ/)
+- [在医院旧楼捡到个外科鼻祖](https://www.ksqinlida.com/book/634qi4/)
 - [95美国贵族高中模拟](https://www.ksqinlida.com/book/jgfgf/)
 - [清澈女大的六零年代](https://www.ksqinlida.com/book/jgf86/)
 - [替嫁后咸鱼继母佛系日常](https://www.ksqinlida.com/book/jgf81/)

@@ -1,13 +1,14 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-08-30 03:37:56
+更新时间：2026-08-31 03:39:03
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。
 
 - [三哥小说网](https://www.wkntmcb.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.wkntmcb.com/book/48j2es6/)
 - [发家致富小夫郎](https://www.wkntmcb.com/book/48j2es5/)
 - [我夫君怎会是龙傲天？](https://www.wkntmcb.com/book/48j2e32/)
 - [我要当厨修啊[美食]](https://www.wkntmcb.com/book/48j2e30/)
@@ -63,6 +64,7 @@
 - [当织田作绑定魅魔系统](https://www.wkntmcb.com/book/48j2dub/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.wkntmcb.com/book/48j28na/)
 - [我真的只会Ctrl啊！！！](https://www.wkntmcb.com/book/48j24t2/)
+- [养父](https://www.wkntmcb.com/book/48j24no/)
 - [人妻O救赎指南](https://www.wkntmcb.com/book/48j24fr/)
 - [星际团宠小人鱼](https://www.wkntmcb.com/book/48j1tq7/)
 - [灭世龙崽有什么错](https://www.wkntmcb.com/book/48j1pja/)
@@ -70,6 +72,7 @@
 - [神豪文男主是我爸](https://www.wkntmcb.com/book/48j1jtl/)
 - [在虫族世界逃命升级](https://www.wkntmcb.com/book/48j1il6/)
 - [趁她之危](https://www.wkntmcb.com/book/48j1gn6/)
+- [从维多利亚时代开始](https://www.wkntmcb.com/book/48j1915/)
 - [我有特殊的升官技巧](https://www.wkntmcb.com/book/48j161l/)
 - [反派人生，易如反掌[快穿]](https://www.wkntmcb.com/book/48j12up/)
 - [假少爷不想活了](https://www.wkntmcb.com/book/48j12li/)
@@ -83,7 +86,6 @@
 - [寄人篱下](https://www.wkntmcb.com/book/48j039t/)
 - [科学主义魔法学院](https://www.wkntmcb.com/book/48j010f/)
 - [始皇闺女躺平失败的日子](https://www.wkntmcb.com/book/48j00b7/)
-- [万人嫌女配过分漂亮](https://www.wkntmcb.com/book/48ivvs2/)
 - [绿叶](https://www.wkntmcb.com/book/48ivv12/)
 - [枕边热吻](https://www.wkntmcb.com/book/48ivu4e/)
 - [九零首富的替嫁小媳妇](https://www.wkntmcb.com/book/48ivth2/)
@@ -120,7 +122,6 @@
 - [人在虫族，写文爆红](https://www.wkntmcb.com/book/48iup0r/)
 - [漫画配角的不平凡日常](https://www.wkntmcb.com/book/48iun77/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.wkntmcb.com/book/48iumk2/)
-- [兽世种田撸狼首领](https://www.wkntmcb.com/book/48iuluf/)
 - [魔尊和仙帝共坠爱河之后](https://www.wkntmcb.com/book/48iukvf/)
 - [当我cos了漫画if线主角](https://www.wkntmcb.com/book/48iukg4/)
 - [井闼山经理每天都被挖墙脚](https://www.wkntmcb.com/book/48iukap/)
@@ -148,6 +149,7 @@
 - [绿茶病秧子骗他说喜欢](https://www.wkntmcb.com/book/48itu10/)
 - [徐娘子的美食发家日常](https://www.wkntmcb.com/book/48itttk/)
 - [我真的没想在选秀炒CP](https://www.wkntmcb.com/book/48itskm/)
+- [在医院旧楼捡到个外科鼻祖](https://www.wkntmcb.com/book/48itqso/)
 - [把清冷权臣调成荡夫后](https://www.wkntmcb.com/book/48itqku/)
 - [[群穿]我在御兽番抢人气](https://www.wkntmcb.com/book/48itljd/)
 - [日化人生[科研]](https://www.wkntmcb.com/book/48istsq/)

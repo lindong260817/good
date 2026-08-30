@@ -1,13 +1,14 @@
 
 # 探秘笔神阁小说-好看小说快速更新,页面清新流畅的免费小说网
 
-更新时间：2026-08-30 03:35:42
+更新时间：2026-08-31 03:36:49
 
 探秘笔神阁小说收录了大量受欢迎的小说作品，以极快的速度进行更新，并且保证用户在阅读时能够享受到清新流畅的页面体验。作为一个完全免费的小说网站，它深受广大网友的喜爱。
 
 - [探秘笔神阁小说](https://www.tanmi818.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.tanmi818.com/book/977fc2m/)
 - [发家致富小夫郎](https://www.tanmi818.com/book/977f7g4/)
 - [春归燕](https://www.tanmi818.com/book/977f55q/)
 - [太子哥哥不想当哥哥](https://www.tanmi818.com/book/977f55p/)
@@ -66,8 +67,10 @@
 - [灭世龙崽有什么错](https://www.tanmi818.com/book/977erc5/)
 - [九零重组小家庭](https://www.tanmi818.com/book/977epkh/)
 - [人妻O救赎指南](https://www.tanmi818.com/book/977ep5r/)
+- [养父](https://www.tanmi818.com/book/977ep4u/)
 - [在虫族世界逃命升级](https://www.tanmi818.com/book/977ekui/)
 - [神豪文男主是我爸](https://www.tanmi818.com/book/977ek3l/)
+- [从维多利亚时代开始](https://www.tanmi818.com/book/977ebc1/)
 - [我有特殊的升官技巧](https://www.tanmi818.com/book/977e8f7/)
 - [十九世纪贵族厨房（美食）](https://www.tanmi818.com/book/977e6d7/)
 - [星际团宠小人鱼](https://www.tanmi818.com/book/977e669/)
@@ -82,7 +85,6 @@
 - [寄人篱下](https://www.tanmi818.com/book/977d5ks/)
 - [始皇闺女躺平失败的日子](https://www.tanmi818.com/book/977d4v4/)
 - [九零首富的替嫁小媳妇](https://www.tanmi818.com/book/977d4ca/)
-- [万人嫌女配过分漂亮](https://www.tanmi818.com/book/977d402/)
 - [为诡异打工，但反封建迷信](https://www.tanmi818.com/book/977cunl/)
 - [误标记隔壁阿姨O之后](https://www.tanmi818.com/book/977cub7/)
 - [十福晋吃瓜日常(清穿)](https://www.tanmi818.com/book/977ctu0/)
@@ -115,7 +117,6 @@
 - [豪门前妻O总想诱我](https://www.tanmi818.com/book/977bu3c/)
 - [恋爱脑毁灭世界](https://www.tanmi818.com/book/977btan/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.tanmi818.com/book/977bsse/)
-- [兽世种田撸狼首领](https://www.tanmi818.com/book/977bsks/)
 - [漫画配角的不平凡日常](https://www.tanmi818.com/book/977bq77/)
 - [魔尊和仙帝共坠爱河之后](https://www.tanmi818.com/book/977bpgt/)
 - [漫漫仙途](https://www.tanmi818.com/book/977bpcj/)
@@ -147,6 +148,7 @@
 - [我真的没想在选秀炒CP](https://www.tanmi818.com/book/977avpg/)
 - [把清冷权臣调成荡夫后](https://www.tanmi818.com/book/977atgq/)
 - [[群穿]我在御兽番抢人气](https://www.tanmi818.com/book/977atc0/)
+- [在医院旧楼捡到个外科鼻祖](https://www.tanmi818.com/book/977arrf/)
 - [我是唯一地上神国](https://www.tanmi818.com/book/977a02d/)
 - [猫猫也要养家糊口](https://www.tanmi818.com/book/9779vuk/)
 - [千禧年，拆迁分了十栋楼！](https://www.tanmi818.com/book/9779vtk/)

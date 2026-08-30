@@ -1,13 +1,15 @@
 
 # 耽美小说 - 最新全本免费手机小说阅读推荐
 
-更新时间：2026-08-30 03:33:33
+更新时间：2026-08-31 03:34:40
 
 耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！
 
 - [耽美小说](https://www.shgifts8.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.shgifts8.com/book/32uhk66/)
+- [从维多利亚时代开始](https://www.shgifts8.com/book/32uhihv/)
 - [九零重组小家庭](https://www.shgifts8.com/book/32uhda6/)
 - [发家致富小夫郎](https://www.shgifts8.com/book/32uh6ju/)
 - [灭世龙崽有什么错](https://www.shgifts8.com/book/32ugsqh/)
@@ -72,7 +74,6 @@
 - [科学主义魔法学院](https://www.shgifts8.com/book/32uglgs/)
 - [我写小说纯粹为了赚钱](https://www.shgifts8.com/book/32ughoi/)
 - [寄人篱下](https://www.shgifts8.com/book/32uggna/)
-- [万人嫌女配过分漂亮](https://www.shgifts8.com/book/32ugfkl/)
 - [第一游侠[全息]](https://www.shgifts8.com/book/32ugfee/)
 - [[全职高手]霸图老板是叶修](https://www.shgifts8.com/book/32uga2g/)
 - [高嫁之后](https://www.shgifts8.com/book/32ug9qi/)
@@ -105,7 +106,6 @@
 - [豪门前妻O总想诱我](https://www.shgifts8.com/book/32ufa9q/)
 - [恋爱脑毁灭世界](https://www.shgifts8.com/book/32uf6ed/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.shgifts8.com/book/32uf609/)
-- [兽世种田撸狼首领](https://www.shgifts8.com/book/32uf5us/)
 - [重临巅峰[花滑]](https://www.shgifts8.com/book/32uf2rf/)
 - [漫画配角的不平凡日常](https://www.shgifts8.com/book/32uf2f5/)
 - [魔尊和仙帝共坠爱河之后](https://www.shgifts8.com/book/32uf1ic/)
@@ -138,8 +138,10 @@
 - [绿茶病秧子骗他说喜欢](https://www.shgifts8.com/book/32ueagv/)
 - [把清冷权臣调成荡夫后](https://www.shgifts8.com/book/32ue8f5/)
 - [我真的没想在选秀炒CP](https://www.shgifts8.com/book/32ue5hn/)
+- [在医院旧楼捡到个外科鼻祖](https://www.shgifts8.com/book/32ue3v9/)
 - [欢迎来到纳萨力克丧葬公司](https://www.shgifts8.com/book/32ue2v8/)
 - [[群穿]我在御兽番抢人气](https://www.shgifts8.com/book/32ue2s7/)
+- [养父](https://www.shgifts8.com/book/32ue2p0/)
 - [御兽师，我打工养你啊](https://www.shgifts8.com/book/32ud7om/)
 - [日化人生[科研]](https://www.shgifts8.com/book/32ud7e3/)
 - [95美国贵族高中模拟](https://www.shgifts8.com/book/32ud7ct/)

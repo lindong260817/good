@@ -1,13 +1,14 @@
 
 # 故事来书吧-免费阅读全网最新最热小说
 
-更新时间：2026-08-30 03:24:34
+更新时间：2026-08-31 03:25:43
 
 故事来书吧提供海量免费无弹窗小说在线阅读服务，涵盖言情、都市、玄幻、武侠等多种类型，让你随时随地享受阅读的乐趣。
 
 - [故事来书吧](https://www.gushi688.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.gushi688.com/book/51217m3/)
 - [发家致富小夫郎](https://www.gushi688.com/book/512134u/)
 - [撕碎[刑侦]](https://www.gushi688.com/book/51210pt/)
 - [我的NPC队友全是火影天花板](https://www.gushi688.com/book/51210pj/)
@@ -65,9 +66,11 @@
 - [我真的只会Ctrl啊！！！](https://www.gushi688.com/book/5120uco/)
 - [灭世龙崽有什么错](https://www.gushi688.com/book/5120n4d/)
 - [九零重组小家庭](https://www.gushi688.com/book/5120l9c/)
+- [养父](https://www.gushi688.com/book/5120kqk/)
 - [人妻O救赎指南](https://www.gushi688.com/book/5120kkp/)
 - [在虫族世界逃命升级](https://www.gushi688.com/book/5120gkk/)
 - [神豪文男主是我爸](https://www.gushi688.com/book/5120fpf/)
+- [从维多利亚时代开始](https://www.gushi688.com/book/5120747/)
 - [我有特殊的升官技巧](https://www.gushi688.com/book/5120454/)
 - [星际团宠小人鱼](https://www.gushi688.com/book/512021u/)
 - [十九世纪贵族厨房（美食）](https://www.gushi688.com/book/51201re/)
@@ -82,7 +85,6 @@
 - [九零首富的替嫁小媳妇](https://www.gushi688.com/book/511v17b/)
 - [寄人篱下](https://www.gushi688.com/book/511v0s2/)
 - [始皇闺女躺平失败的日子](https://www.gushi688.com/book/511v0no/)
-- [万人嫌女配过分漂亮](https://www.gushi688.com/book/511v0j3/)
 - [误标记隔壁阿姨O之后](https://www.gushi688.com/book/511urav/)
 - [为诡异打工，但反封建迷信](https://www.gushi688.com/book/511uqhi/)
 - [当我穿为龙傲天的情敌](https://www.gushi688.com/book/511upea/)
@@ -113,7 +115,6 @@
 - [万人迷今天也在风靡全世界[快穿]](https://www.gushi688.com/book/511tqqk/)
 - [豪门前妻O总想诱我](https://www.gushi688.com/book/511tq7l/)
 - [井闼山经理每天都被挖墙脚](https://www.gushi688.com/book/511tpuo/)
-- [兽世种田撸狼首领](https://www.gushi688.com/book/511to3u/)
 - [恋爱脑毁灭世界](https://www.gushi688.com/book/511to1t/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.gushi688.com/book/511tmor/)
 - [漫漫仙途](https://www.gushi688.com/book/511tlqk/)
@@ -146,6 +147,7 @@
 - [我真的没想在选秀炒CP](https://www.gushi688.com/book/511ss02/)
 - [徐娘子的美食发家日常](https://www.gushi688.com/book/511sqnf/)
 - [把清冷权臣调成荡夫后](https://www.gushi688.com/book/511sno7/)
+- [在医院旧楼捡到个外科鼻祖](https://www.gushi688.com/book/511sngq/)
 - [[群穿]我在御兽番抢人气](https://www.gushi688.com/book/511smem/)
 - [六零之成了卷王的妹妹](https://www.gushi688.com/book/511rrqv/)
 - [假少爷不想活了](https://www.gushi688.com/book/511rrep/)

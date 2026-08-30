@@ -1,13 +1,14 @@
 
 # 时光树园-热门小说大全-小说排行榜-好看的小说推荐-热门小说推荐
 
-更新时间：2026-08-30 03:27:47
+更新时间：2026-08-31 03:28:53
 
 时光树园是一个热门小说推荐网站，这里有热门全本小说大全、好看的小说推荐、小说排行榜等。您可以在这里无广告在线阅读优质的豪门总裁小说、现代言情小说、古代言情小说、都市小说、穿越小说、玄幻小说、武侠仙侠等各类热门小说。
 
 - [时光树园小说](https://www.kltbl.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.kltbl.com/book/5achcns/)
 - [发家致富小夫郎](https://www.kltbl.com/book/5achcnr/)
 - [在千禧年的伦敦当女巫](https://www.kltbl.com/book/5achbun/)
 - [游戏角色想和玩家谈恋爱](https://www.kltbl.com/book/5achbum/)
@@ -63,6 +64,7 @@
 - [和光太郎谈恋爱](https://www.kltbl.com/book/5achbq5/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.kltbl.com/book/5ach6hs/)
 - [我真的只会Ctrl啊！！！](https://www.kltbl.com/book/5ach2q9/)
+- [养父](https://www.kltbl.com/book/5ach2hu/)
 - [人妻O救赎指南](https://www.kltbl.com/book/5ach2ar/)
 - [星际团宠小人鱼](https://www.kltbl.com/book/5acgrm2/)
 - [灭世龙崽有什么错](https://www.kltbl.com/book/5acgngm/)
@@ -70,6 +72,7 @@
 - [神豪文男主是我爸](https://www.kltbl.com/book/5acghsd/)
 - [在虫族世界逃命升级](https://www.kltbl.com/book/5acggf2/)
 - [趁她之危](https://www.kltbl.com/book/5acgee0/)
+- [从维多利亚时代开始](https://www.kltbl.com/book/5acg6n5/)
 - [我有特殊的升官技巧](https://www.kltbl.com/book/5acg3sb/)
 - [反派人生，易如反掌[快穿]](https://www.kltbl.com/book/5acg0rf/)
 - [假少爷不想活了](https://www.kltbl.com/book/5acg0a3/)
@@ -83,7 +86,6 @@
 - [寄人篱下](https://www.kltbl.com/book/5acevuc/)
 - [始皇闺女躺平失败的日子](https://www.kltbl.com/book/5acev9o/)
 - [绿叶](https://www.kltbl.com/book/5aceucv/)
-- [万人嫌女配过分漂亮](https://www.kltbl.com/book/5acet5r/)
 - [科学主义魔法学院](https://www.kltbl.com/book/5acesuo/)
 - [我写小说纯粹为了赚钱](https://www.kltbl.com/book/5acera1/)
 - [九零首富的替嫁小媳妇](https://www.kltbl.com/book/5acer20/)
@@ -118,7 +120,6 @@
 - [豪门前妻O总想诱我](https://www.kltbl.com/book/5acdo9q/)
 - [人在虫族，写文爆红](https://www.kltbl.com/book/5acdmvp/)
 - [当恶女捡回高岭之花](https://www.kltbl.com/book/5acdmoh/)
-- [兽世种田撸狼首领](https://www.kltbl.com/book/5acdls7/)
 - [漫画配角的不平凡日常](https://www.kltbl.com/book/5acdl1o/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.kltbl.com/book/5acdk5v/)
 - [当我cos了漫画if线主角](https://www.kltbl.com/book/5acdjbh/)
@@ -149,6 +150,7 @@
 - [我真的没想在选秀炒CP](https://www.kltbl.com/book/5accr10/)
 - [绿茶病秧子骗他说喜欢](https://www.kltbl.com/book/5accpv6/)
 - [把清冷权臣调成荡夫后](https://www.kltbl.com/book/5accnhs/)
+- [在医院旧楼捡到个外科鼻祖](https://www.kltbl.com/book/5accmgm/)
 - [[群穿]我在御兽番抢人气](https://www.kltbl.com/book/5accjuf/)
 - [清澈女大的六零年代](https://www.kltbl.com/book/5acbrmq/)
 - [古代种田养娃日常](https://www.kltbl.com/book/5acbrf5/)

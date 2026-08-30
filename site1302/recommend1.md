@@ -1,13 +1,14 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-08-30 03:32:27
+更新时间：2026-08-31 03:33:35
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
 - [七步阁](https://www.revwarny.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.revwarny.com/book/3sgl7q6/)
 - [发家致富小夫郎](https://www.revwarny.com/book/3sgl7q5/)
 - [痴情女配开始放手了（快穿）](https://www.revwarny.com/book/3sgl7q4/)
 - [[综英美]让我统治哥谭！！！](https://www.revwarny.com/book/3sgl7q2/)
@@ -68,6 +69,7 @@
 - [婚后矜持](https://www.revwarny.com/book/3sgl7la/)
 - [乖乖小宝被豪门长兄娇养了](https://www.revwarny.com/book/3sgl7l6/)
 - [欢迎来到纳萨力克丧葬公司](https://www.revwarny.com/book/3sgl7l4/)
+- [养父](https://www.revwarny.com/book/3sgl7l0/)
 - [九零首富的替嫁小媳妇](https://www.revwarny.com/book/3sgl7kr/)
 - [星际团宠小人鱼](https://www.revwarny.com/book/3sgl7kn/)
 - [十九世纪贵族厨房（美食）](https://www.revwarny.com/book/3sgl7kk/)
@@ -83,6 +85,7 @@
 - [灭世龙崽有什么错](https://www.revwarny.com/book/3sgjj4b/)
 - [九零重组小家庭](https://www.revwarny.com/book/3sgj9lh/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.revwarny.com/book/3sgj6el/)
+- [从维多利亚时代开始](https://www.revwarny.com/book/3sgist4/)
 - [我有特殊的升官技巧](https://www.revwarny.com/book/3sgiqee/)
 - [御兽师，我打工养你啊](https://www.revwarny.com/book/3sgio5k/)
 - [反派人生，易如反掌[快穿]](https://www.revwarny.com/book/3sgimsn/)
@@ -98,7 +101,6 @@
 - [趁她之危](https://www.revwarny.com/book/3sghs6r/)
 - [人妻O救赎指南](https://www.revwarny.com/book/3sghqcq/)
 - [第一游侠[全息]](https://www.revwarny.com/book/3sghpq1/)
-- [万人嫌女配过分漂亮](https://www.revwarny.com/book/3sghlci/)
 - [摄政王家的咸鱼夫郎](https://www.revwarny.com/book/3sghkq1/)
 - [始皇闺女躺平失败的日子](https://www.revwarny.com/book/3sghiv5/)
 - [寄人篱下](https://www.revwarny.com/book/3sghi6p/)
@@ -134,7 +136,6 @@
 - [恋爱脑毁灭世界](https://www.revwarny.com/book/ceft30/)
 - [魔尊和仙帝共坠爱河之后](https://www.revwarny.com/book/cefs1q/)
 - [你是我的根目录](https://www.revwarny.com/book/cefqqe/)
-- [兽世种田撸狼首领](https://www.revwarny.com/book/cefnql/)
 - [直男误入攻略天龙人游戏](https://www.revwarny.com/book/cefljb/)
 - [[综港影]野生情人出没地](https://www.revwarny.com/book/cefkm3/)
 - [八零恶毒后妈杀疯了](https://www.revwarny.com/book/cefjko/)
@@ -156,6 +157,7 @@
 - [萩原警官的咒术大冒险](https://www.revwarny.com/book/cef9jg/)
 - [徐娘子的美食发家日常](https://www.revwarny.com/book/cef95t/)
 - [把清冷权臣调成荡夫后](https://www.revwarny.com/book/cef7qh/)
+- [在医院旧楼捡到个外科鼻祖](https://www.revwarny.com/book/cef5eo/)
 - [清澈女大的六零年代](https://www.revwarny.com/book/17r3v0/)
 - [95美国贵族高中模拟](https://www.revwarny.com/book/17r3rh/)
 - [猫猫也要养家糊口](https://www.revwarny.com/book/17r3ji/)
