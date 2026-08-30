@@ -1,13 +1,14 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-08-30 03:34:15
+更新时间：2026-08-31 03:35:22
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
 - [书旗小说网](https://www.shuqi687.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.shuqi687.com/book/8vsmje3/)
 - [发家致富小夫郎](https://www.shuqi687.com/book/8vsmje2/)
 - [井闼山经理每天都被挖墙脚](https://www.shuqi687.com/book/8vsmje1/)
 - [氪金游戏，从养成林太郎开始](https://www.shuqi687.com/book/8vsmjdv/)
@@ -68,6 +69,7 @@
 - [撕碎[刑侦]](https://www.shuqi687.com/book/8vsmj95/)
 - [猫猫也要被魅魔魅惑吗？](https://www.shuqi687.com/book/8vsmj93/)
 - [水管工[GB]](https://www.shuqi687.com/book/8vsmj91/)
+- [养父](https://www.shuqi687.com/book/8vsmj8t/)
 - [星际团宠小人鱼](https://www.shuqi687.com/book/8vsmj8b/)
 - [十九世纪贵族厨房（美食）](https://www.shuqi687.com/book/8vsmj7k/)
 - [九零首富的替嫁小媳妇](https://www.shuqi687.com/book/8vsmj7h/)
@@ -83,6 +85,7 @@
 - [九零重组小家庭](https://www.shuqi687.com/book/8vsl2f0/)
 - [灭世龙崽有什么错](https://www.shuqi687.com/book/8vskkr8/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shuqi687.com/book/8vskirb/)
+- [从维多利亚时代开始](https://www.shuqi687.com/book/8vsk8kt/)
 - [我有特殊的升官技巧](https://www.shuqi687.com/book/8vsk5vi/)
 - [御兽师，我打工养你啊](https://www.shuqi687.com/book/8vsk3j2/)
 - [反派人生，易如反掌[快穿]](https://www.shuqi687.com/book/8vsk26p/)
@@ -99,7 +102,6 @@
 - [第一游侠[全息]](https://www.shuqi687.com/book/8vsj571/)
 - [人妻O救赎指南](https://www.shuqi687.com/book/8vsj4sc/)
 - [始皇闺女躺平失败的日子](https://www.shuqi687.com/book/8vsj0es/)
-- [万人嫌女配过分漂亮](https://www.shuqi687.com/book/8vsj0de/)
 - [摄政王家的咸鱼夫郎](https://www.shuqi687.com/book/8vsiveh/)
 - [寄人篱下](https://www.shuqi687.com/book/8vsirk4/)
 - [全球进化，而我保持不变](https://www.shuqi687.com/book/spauf2/)
@@ -135,7 +137,6 @@
 - [重临巅峰[花滑]](https://www.shuqi687.com/book/sp9l25/)
 - [魔尊和仙帝共坠爱河之后](https://www.shuqi687.com/book/sp9iqr/)
 - [直男误入攻略天龙人游戏](https://www.shuqi687.com/book/sp9g61/)
-- [兽世种田撸狼首领](https://www.shuqi687.com/book/sp9emp/)
 - [[综港影]野生情人出没地](https://www.shuqi687.com/book/sp9dk9/)
 - [穿越废星，我靠种田求生](https://www.shuqi687.com/book/sp9c7j/)
 - [迟晚](https://www.shuqi687.com/book/sp98ov/)
@@ -156,6 +157,7 @@
 - [搭档，一起来玩求生游戏吧！](https://www.shuqi687.com/book/sp90uq/)
 - [徐娘子的美食发家日常](https://www.shuqi687.com/book/sp8vkf/)
 - [把清冷权臣调成荡夫后](https://www.shuqi687.com/book/sp8va2/)
+- [在医院旧楼捡到个外科鼻祖](https://www.shuqi687.com/book/sp8up5/)
 - [全民求生:从小木屋到魔法农场](https://www.shuqi687.com/book/2s430p/)
 - [大瑛弟国](https://www.shuqi687.com/book/2s42vg/)
 - [警察，但犯罪大师系统[刑侦]](https://www.shuqi687.com/book/2s42sj/)

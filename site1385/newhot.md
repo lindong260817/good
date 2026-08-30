@@ -1,34 +1,39 @@
 
 # 宁波慈绿农垦小说-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-08-30 03:30:00
+更新时间：2026-08-31 03:31:07
 
 宁波慈绿农垦小说提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
 - [宁波慈绿农垦小说](https://www.nbcxnk.com/)
 
 ## 最新小说
+- [阿竹与野桃](https://www.nbcxnk.com/book/2srvvja/)
 - [我的烧烤摊超美味[美食]](https://www.nbcxnk.com/book/2srvvgi/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.nbcxnk.com/book/2srvvda/)
+- [失而复得的白月光[快穿]](https://www.nbcxnk.com/book/2srvd07/)
+- [男朋友买一送一](https://www.nbcxnk.com/book/2srv9rd/)
 - [被鬼怪宠爱的漂亮书生](https://www.nbcxnk.com/book/2srv6o4/)
 - [如何正确哄睡暴君](https://www.nbcxnk.com/book/2srv1s2/)
-- [老公是松散生命体](https://www.nbcxnk.com/book/2srupu7/)
+- [我不可能舔一个漂亮捞子](https://www.nbcxnk.com/book/2srv0vr/)
 - [微臣怜惜公主](https://www.nbcxnk.com/book/2srupn1/)
-- [战死的阿爹回来了[年代]](https://www.nbcxnk.com/book/2srue1e/)
-- [多梦你一会儿](https://www.nbcxnk.com/book/2sru57h/)
+- [寻真](https://www.nbcxnk.com/book/2srum40/)
+- [豪门养子怀了大哥的崽](https://www.nbcxnk.com/book/2srukqi/)
+- [沈助理又在隐藏他的超能力](https://www.nbcxnk.com/book/2srughg/)
+- [直男咒术师的限制级游戏](https://www.nbcxnk.com/book/2sru93k/)
 - [穿为清冷影后的污点A](https://www.nbcxnk.com/book/2sru23n/)
-- [就算是龙傲天也不可以[快穿]](https://www.nbcxnk.com/book/2sru23c/)
-- [漫画路人绑定系统后](https://www.nbcxnk.com/book/2sru0q5/)
 - [拯救世界从扮演反派开始](https://www.nbcxnk.com/book/2sru0gk/)
-- [[足球]能不能好好模拟游戏](https://www.nbcxnk.com/book/2sru057/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.nbcxnk.com/book/2srtvqs/)
+- [侯府打工人](https://www.nbcxnk.com/book/2srttq9/)
 - [井闼山经理每天都被挖墙脚](https://www.nbcxnk.com/book/2srtsdb/)
+- [某柯学的正义伙伴](https://www.nbcxnk.com/book/2srtr9v/)
 - [[足球]罗蜜第一志愿](https://www.nbcxnk.com/book/2srtqt2/)
+- [契约情人](https://www.nbcxnk.com/book/2srtnvi/)
+- [青空来信](https://www.nbcxnk.com/book/2srtnv7/)
+- [在女仆咖啡店兼职被校草缠上后](https://www.nbcxnk.com/book/2srtnrg/)
 - [法外狂猫](https://www.nbcxnk.com/book/2srtmm6/)
-- [一枝枝怨](https://www.nbcxnk.com/book/2srtmm0/)
 - [[足球]小小鸟堂堂来袭](https://www.nbcxnk.com/book/2srtmkf/)
 - [和室友他爸恋爱后](https://www.nbcxnk.com/book/2srtka7/)
-- [撕毁女配剧本的我被神之子读心了](https://www.nbcxnk.com/book/2srtijd/)
-- [人偶游戏](https://www.nbcxnk.com/book/2srthb5/)
 - [好兄弟暴富后非要跟我结婚](https://www.nbcxnk.com/book/2srtf6q/)
 - [关于我虚构了一个男友这件事](https://www.nbcxnk.com/book/2srtdt8/)
 - [他要和我谈恋爱](https://www.nbcxnk.com/book/2srrkq6/)
@@ -36,6 +41,7 @@
 - [高调装神，猥琐发育](https://www.nbcxnk.com/book/2srrj6v/)
 - [你，后室管理员](https://www.nbcxnk.com/book/2srrj1p/)
 - [分手后与诱系妻子再度热恋](https://www.nbcxnk.com/book/2srrik9/)
+- [[封神]圣人生欲](https://www.nbcxnk.com/book/2srri6c/)
 - [纯爱宇智波基本恋爱法](https://www.nbcxnk.com/book/2srrhsn/)
 ## 相关内容
 - [README](/README.md)

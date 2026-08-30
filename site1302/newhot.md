@@ -1,7 +1,7 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-08-30 03:32:27
+更新时间：2026-08-31 03:33:35
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
@@ -9,19 +9,25 @@
 
 ## 最新小说
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.revwarny.com/book/3sgl7p5/)
+- [失而复得的白月光[快穿]](https://www.revwarny.com/book/3sgl7ne/)
 - [我的烧烤摊超美味[美食]](https://www.revwarny.com/book/3sgl7m6/)
 - [井闼山经理每天都被挖墙脚](https://www.revwarny.com/book/3sgl7m2/)
+- [阿竹与野桃](https://www.revwarny.com/book/3sgl7ls/)
 - [星际团宠小人鱼](https://www.revwarny.com/book/3sgl7kn/)
+- [[封神]圣人生欲](https://www.revwarny.com/book/3sgl7k8/)
 - [分手后与诱系妻子再度热恋](https://www.revwarny.com/book/3sgl7js/)
 - [你，后室管理员](https://www.revwarny.com/book/3sgl7j5/)
 - [他要和我谈恋爱](https://www.revwarny.com/book/3sgl7it/)
 - [高调装神，猥琐发育](https://www.revwarny.com/book/3sgl7ih/)
+- [直男咒术师的限制级游戏](https://www.revwarny.com/book/3sgl7hr/)
 - [纯爱宇智波基本恋爱法](https://www.revwarny.com/book/3sgl7go/)
+- [某柯学的正义伙伴](https://www.revwarny.com/book/3sgiemk/)
+- [男朋友买一送一](https://www.revwarny.com/book/3sgi3a9/)
 - [我有嘉宾](https://www.revwarny.com/book/3sghtti/)
-- [漫画路人绑定系统后](https://www.revwarny.com/book/cegn6s/)
-- [一枝枝怨](https://www.revwarny.com/book/ceg4qj/)
-- [老公是松散生命体](https://www.revwarny.com/book/ceg48f/)
-- [多梦你一会儿](https://www.revwarny.com/book/cefnl1/)
+- [寻真](https://www.revwarny.com/book/3sghiau/)
+- [沈助理又在隐藏他的超能力](https://www.revwarny.com/book/ceh0li/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.revwarny.com/book/cegmq9/)
+- [青空来信](https://www.revwarny.com/book/ceg43v/)
 - [[足球]罗蜜第一志愿](https://www.revwarny.com/book/cefn53/)
 - [拯救世界从扮演反派开始](https://www.revwarny.com/book/cefn31/)
 ## 相关内容

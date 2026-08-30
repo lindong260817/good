@@ -1,14 +1,16 @@
 
 # 佚名奇书小说 - 免费更新的小说阅读网站
 
-更新时间：2026-08-30 03:40:59
+更新时间：2026-08-31 03:42:06
 
 佚名奇书小说提供全网各类热门小说在线阅读服务，支持免费观看。这里汇集了丰富的小说资源，包括但不限于都市、玄幻、武侠等多种类型，并且保证章节更新及时，页面设计清爽无广告干扰，是广大书友不可多得的好去处。
 
 - [佚名奇书小说](https://www.yimingeduai.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.yimingeduai.com/book/6adn69i/)
 - [九零重组小家庭](https://www.yimingeduai.com/book/6adn1kr/)
+- [从维多利亚时代开始](https://www.yimingeduai.com/book/6adn07r/)
 - [发家致富小夫郎](https://www.yimingeduai.com/book/6admt0b/)
 - [乖乖小宝被豪门长兄娇养了](https://www.yimingeduai.com/book/6admm5m/)
 - [凤凰男就该窝里下蛋](https://www.yimingeduai.com/book/6admm56/)
@@ -117,7 +119,6 @@
 - [我司艺人永不塌房](https://www.yimingeduai.com/book/6adkd7s/)
 - [我真的只会Ctrl啊！！！](https://www.yimingeduai.com/book/6adka8q/)
 - [我不是御兽大师](https://www.yimingeduai.com/book/6adk621/)
-- [万人嫌女配过分漂亮](https://www.yimingeduai.com/book/6adk5e3/)
 - [漫漫仙途](https://www.yimingeduai.com/book/6adk4ko/)
 - [恶犬攻绑定上司的乖狗系统](https://www.yimingeduai.com/book/6adk499/)
 - [你是我的根目录](https://www.yimingeduai.com/book/6adk42b/)
@@ -128,7 +129,6 @@
 - [当恶女捡回高岭之花](https://www.yimingeduai.com/book/6adjs4e/)
 - [这男人该死的甜美](https://www.yimingeduai.com/book/6adjp7g/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.yimingeduai.com/book/6adjodi/)
-- [兽世种田撸狼首领](https://www.yimingeduai.com/book/6adjnk1/)
 - [当我穿为龙傲天的情敌](https://www.yimingeduai.com/book/6adjmj4/)
 - [悟咪观察笔记](https://www.yimingeduai.com/book/6adjm2g/)
 - [龙傲天他解锁宠妻系统](https://www.yimingeduai.com/book/6adjk3k/)
@@ -138,8 +138,10 @@
 - [绿茶病秧子骗他说喜欢](https://www.yimingeduai.com/book/6adjbs5/)
 - [把清冷权臣调成荡夫后](https://www.yimingeduai.com/book/6adj9at/)
 - [我真的没想在选秀炒CP](https://www.yimingeduai.com/book/6adj6r6/)
+- [在医院旧楼捡到个外科鼻祖](https://www.yimingeduai.com/book/6adj59s/)
 - [欢迎来到纳萨力克丧葬公司](https://www.yimingeduai.com/book/6adj4d4/)
 - [[群穿]我在御兽番抢人气](https://www.yimingeduai.com/book/6adj47c/)
+- [养父](https://www.yimingeduai.com/book/6adj3gk/)
 - [全民求生:从小木屋到魔法农场](https://www.yimingeduai.com/book/6adi8o2/)
 - [八零恶毒后妈杀疯了](https://www.yimingeduai.com/book/6adi8jp/)
 - [海岛求生：生活玩家种田囤货](https://www.yimingeduai.com/book/6adi8em/)

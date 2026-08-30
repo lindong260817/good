@@ -1,13 +1,14 @@
 
 # 欣怡书屋 - 免费最新章节小说阅读,全本无弹窗
 
-更新时间：2026-08-30 03:43:22
+更新时间：2026-08-31 03:44:29
 
 欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。
 
 - [欣怡书屋](https://www.znenghs.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.znenghs.com/book/5n2k945/)
 - [发家致富小夫郎](https://www.znenghs.com/book/5n2k944/)
 - [无限回档，我把自己刷成了女帝](https://www.znenghs.com/book/5n2k942/)
 - [青城玩家明明超强却过分谨慎](https://www.znenghs.com/book/5n2k940/)
@@ -68,6 +69,7 @@
 - [游戏角色想和玩家谈恋爱](https://www.znenghs.com/book/5n2k8va/)
 - [下潜一万米，海渊求生](https://www.znenghs.com/book/5n2k8v5/)
 - [欢迎来到纳萨力克丧葬公司](https://www.znenghs.com/book/5n2k8v4/)
+- [养父](https://www.znenghs.com/book/5n2k8uv/)
 - [九零首富的替嫁小媳妇](https://www.znenghs.com/book/5n2k8u7/)
 - [星际团宠小人鱼](https://www.znenghs.com/book/5n2k8ss/)
 - [十九世纪贵族厨房（美食）](https://www.znenghs.com/book/5n2k8sj/)
@@ -83,6 +85,7 @@
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.znenghs.com/book/5n2iie5/)
 - [九零重组小家庭](https://www.znenghs.com/book/5n2igll/)
 - [灭世龙崽有什么错](https://www.znenghs.com/book/5n2i9u8/)
+- [从维多利亚时代开始](https://www.znenghs.com/book/5n2hsh7/)
 - [我有特殊的升官技巧](https://www.znenghs.com/book/5n2hq1b/)
 - [御兽师，我打工养你啊](https://www.znenghs.com/book/5n2hns1/)
 - [反派人生，易如反掌[快穿]](https://www.znenghs.com/book/5n2hmcj/)
@@ -100,7 +103,6 @@
 - [人妻O救赎指南](https://www.znenghs.com/book/5n2gpii/)
 - [摄政王家的咸鱼夫郎](https://www.znenghs.com/book/5n2glmf/)
 - [始皇闺女躺平失败的日子](https://www.znenghs.com/book/5n2glb6/)
-- [万人嫌女配过分漂亮](https://www.znenghs.com/book/5n2gkkc/)
 - [寄人篱下](https://www.znenghs.com/book/5n2gj7j/)
 - [全球进化，而我保持不变](https://www.znenghs.com/book/5n2ghen/)
 - [当我穿为龙傲天的情敌](https://www.znenghs.com/book/5n2ghd5/)
@@ -134,7 +136,6 @@
 - [魔尊和仙帝共坠爱河之后](https://www.znenghs.com/book/i9sk0e/)
 - [恋爱脑毁灭世界](https://www.znenghs.com/book/i9sjcp/)
 - [你是我的根目录](https://www.znenghs.com/book/i9shn0/)
-- [兽世种田撸狼首领](https://www.znenghs.com/book/i9sg39/)
 - [直男误入攻略天龙人游戏](https://www.znenghs.com/book/i9sedn/)
 - [八零恶毒后妈杀疯了](https://www.znenghs.com/book/i9saao/)
 - [[综港影]野生情人出没地](https://www.znenghs.com/book/i9sa6h/)
@@ -156,6 +157,7 @@
 - [把清冷权臣调成荡夫后](https://www.znenghs.com/book/i9rugk/)
 - [搭档，一起来玩求生游戏吧！](https://www.znenghs.com/book/i9ru2u/)
 - [绿茶病秧子骗他说喜欢](https://www.znenghs.com/book/i9rt2m/)
+- [在医院旧楼捡到个外科鼻祖](https://www.znenghs.com/book/i9rpmq/)
 - [如何扮演源氏重宝](https://www.znenghs.com/book/1qip9m/)
 - [全民求生:从小木屋到魔法农场](https://www.znenghs.com/book/1qip84/)
 - [替嫁后咸鱼继母佛系日常](https://www.znenghs.com/book/1qip6d/)

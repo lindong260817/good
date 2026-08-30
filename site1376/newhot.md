@@ -1,7 +1,7 @@
 
 # 零点看书吧-书友最值得收藏的网络小说阅读网
 
-更新时间：2026-08-30 03:23:16
+更新时间：2026-08-31 03:24:26
 
 零点看书吧是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节。作为无弹窗的小说阅读平台，零点看书吧成为网络小说爱好者必备的选择。
 
@@ -11,29 +11,35 @@
 - [我有嘉宾](https://www.gjnbgb.com/book/2s9socc/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.gjnbgb.com/book/2s9shih/)
 - [我的烧烤摊超美味[美食]](https://www.gjnbgb.com/book/2s9shgh/)
+- [阿竹与野桃](https://www.gjnbgb.com/book/2s9shfu/)
+- [男朋友买一送一](https://www.gjnbgb.com/book/2s9rfcq/)
+- [失而复得的白月光[快穿]](https://www.gjnbgb.com/book/2s9rctv/)
 - [如何正确哄睡暴君](https://www.gjnbgb.com/book/2s9r6me/)
 - [被鬼怪宠爱的漂亮书生](https://www.gjnbgb.com/book/2s9r5j3/)
-- [老公是松散生命体](https://www.gjnbgb.com/book/2s9qtd5/)
+- [我不可能舔一个漂亮捞子](https://www.gjnbgb.com/book/2s9qvvp/)
+- [寻真](https://www.gjnbgb.com/book/2s9qt3c/)
 - [微臣怜惜公主](https://www.gjnbgb.com/book/2s9qo7e/)
-- [战死的阿爹回来了[年代]](https://www.gjnbgb.com/book/2s9qe2i/)
+- [沈助理又在隐藏他的超能力](https://www.gjnbgb.com/book/2s9ql97/)
+- [直男咒术师的限制级游戏](https://www.gjnbgb.com/book/2s9qdut/)
 - [穿为清冷影后的污点A](https://www.gjnbgb.com/book/2s9q94g/)
-- [多梦你一会儿](https://www.gjnbgb.com/book/2s9q82r/)
-- [漫画路人绑定系统后](https://www.gjnbgb.com/book/2s9q4b1/)
-- [[足球]能不能好好模拟游戏](https://www.gjnbgb.com/book/2s9q3os/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.gjnbgb.com/book/2s9q533/)
 - [拯救世界从扮演反派开始](https://www.gjnbgb.com/book/2s9q2ep/)
 - [井闼山经理每天都被挖墙脚](https://www.gjnbgb.com/book/2s9q1ub/)
 - [[足球]罗蜜第一志愿](https://www.gjnbgb.com/book/2s9ptsc/)
-- [一枝枝怨](https://www.gjnbgb.com/book/2s9psl7/)
+- [青空来信](https://www.gjnbgb.com/book/2s9ptm2/)
+- [某柯学的正义伙伴](https://www.gjnbgb.com/book/2s9prst/)
+- [侯府打工人](https://www.gjnbgb.com/book/2s9pr9u/)
+- [在女仆咖啡店兼职被校草缠上后](https://www.gjnbgb.com/book/2s9pr3c/)
+- [契约情人](https://www.gjnbgb.com/book/2s9pnhb/)
 - [[足球]小小鸟堂堂来袭](https://www.gjnbgb.com/book/2s9pml6/)
-- [撕毁女配剧本的我被神之子读心了](https://www.gjnbgb.com/book/2s9pl2a/)
 - [法外狂猫](https://www.gjnbgb.com/book/2s9pip8/)
 - [好兄弟暴富后非要跟我结婚](https://www.gjnbgb.com/book/2s9phnb/)
 - [关于我虚构了一个男友这件事](https://www.gjnbgb.com/book/2s9pehf/)
 - [和室友他爸恋爱后](https://www.gjnbgb.com/book/2s9pc8e/)
-- [人偶游戏](https://www.gjnbgb.com/book/2s9pb5n/)
 - [纯爱宇智波基本恋爱法](https://www.gjnbgb.com/book/2s9np8v/)
 - [高调装神，猥琐发育](https://www.gjnbgb.com/book/2s9np4t/)
 - [他要和我谈恋爱](https://www.gjnbgb.com/book/2s9nool/)
+- [[封神]圣人生欲](https://www.gjnbgb.com/book/2s9nom2/)
 - [分手后与诱系妻子再度热恋](https://www.gjnbgb.com/book/2s9nohm/)
 - [你，后室管理员](https://www.gjnbgb.com/book/2s9nnk3/)
 - [星际团宠小人鱼](https://www.gjnbgb.com/book/2s9nn9s/)

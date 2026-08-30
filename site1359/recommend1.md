@@ -1,7 +1,7 @@
 
 # 笔架中文小说_书友必备的无弹窗小说阅读网
 
-更新时间：2026-08-30 03:20:08
+更新时间：2026-08-31 03:21:22
 
 笔架中文小说致力于打造国内最权威免费小说阅读网, 提供小说在线阅读, 小说TXT下载, 网站页面清爽简洁是广大网络小说爱好者必备的小说阅读网。
 
@@ -113,7 +113,6 @@
 - [井闼山经理每天都被挖墙脚](https://www.bijia188.com/book/6toi5d5/)
 - [人在虫族，写文爆红](https://www.bijia188.com/book/6toi3uh/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.bijia188.com/book/6toi3co/)
-- [兽世种田撸狼首领](https://www.bijia188.com/book/6toi2gc/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.bijia188.com/book/6toi277/)
 - [恋爱脑毁灭世界](https://www.bijia188.com/book/6toi0vt/)
 - [漫漫仙途](https://www.bijia188.com/book/6tohvq1/)

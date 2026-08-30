@@ -1,7 +1,7 @@
 
 # 微雨数据小说,新笔趣小说阅读网,顶点小说网备份-热门小说大全
 
-更新时间：2026-08-30 03:36:42
+更新时间：2026-08-31 03:37:49
 
 微雨数据小说网作为广大书友喜爱的平台之一，同时也是顶点小说阅读网的官方备份网站，汇集了当前最受欢迎和最火热的小说资源。当遇到顶点小说网无法访问时，请访问笔趣看小说网继续享受精彩内容！
 
@@ -9,31 +9,37 @@
 
 ## 最新小说
 - [被鬼怪宠爱的漂亮书生](https://www.weiyushuju.com/book/6rf61l8/)
+- [男朋友买一送一](https://www.weiyushuju.com/book/6rf5v8p/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.weiyushuju.com/book/6rf5tba/)
 - [我的烧烤摊超美味[美食]](https://www.weiyushuju.com/book/6rf5t1e/)
+- [阿竹与野桃](https://www.weiyushuju.com/book/6rf5srv/)
 - [如何正确哄睡暴君](https://www.weiyushuju.com/book/6rf5r6e/)
-- [老公是松散生命体](https://www.weiyushuju.com/book/6rf5hcp/)
+- [我不可能舔一个漂亮捞子](https://www.weiyushuju.com/book/6rf5ntl/)
 - [微臣怜惜公主](https://www.weiyushuju.com/book/6rf5gc8/)
 - [法外狂猫](https://www.weiyushuju.com/book/6rf5g0g/)
+- [寻真](https://www.weiyushuju.com/book/6rf5blk/)
 - [和室友他爸恋爱后](https://www.weiyushuju.com/book/6rf588b/)
-- [战死的阿爹回来了[年代]](https://www.weiyushuju.com/book/6rf56sm/)
-- [就算是龙傲天也不可以[快穿]](https://www.weiyushuju.com/book/6rf56b9/)
-- [多梦你一会儿](https://www.weiyushuju.com/book/6rf4r25/)
+- [沈助理又在隐藏他的超能力](https://www.weiyushuju.com/book/6rf5605/)
+- [直男咒术师的限制级游戏](https://www.weiyushuju.com/book/6rf4ulh/)
 - [穿为清冷影后的污点A](https://www.weiyushuju.com/book/6rf4qev/)
+- [豪门养子怀了大哥的崽](https://www.weiyushuju.com/book/6rf4p8o/)
+- [全世界名为爱的恶意](https://www.weiyushuju.com/book/6rf4nup/)
+- [侯府打工人](https://www.weiyushuju.com/book/6rf4nag/)
 - [[足球]小小鸟堂堂来袭](https://www.weiyushuju.com/book/6rf4mc6/)
 - [井闼山经理每天都被挖墙脚](https://www.weiyushuju.com/book/6rf4m8t/)
 - [拯救世界从扮演反派开始](https://www.weiyushuju.com/book/6rf4lfm/)
-- [[足球]能不能好好模拟游戏](https://www.weiyushuju.com/book/6rf4ki6/)
-- [漫画路人绑定系统后](https://www.weiyushuju.com/book/6rf4k52/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.weiyushuju.com/book/6rf4k03/)
 - [[足球]罗蜜第一志愿](https://www.weiyushuju.com/book/6rf4jbf/)
-- [人偶游戏](https://www.weiyushuju.com/book/6rf4e78/)
-- [一枝枝怨](https://www.weiyushuju.com/book/6rf4dco/)
-- [撕毁女配剧本的我被神之子读心了](https://www.weiyushuju.com/book/6rf4cm5/)
+- [青空来信](https://www.weiyushuju.com/book/6rf4gia/)
+- [某柯学的正义伙伴](https://www.weiyushuju.com/book/6rf4fm2/)
+- [契约情人](https://www.weiyushuju.com/book/6rf4ej6/)
+- [在女仆咖啡店兼职被校草缠上后](https://www.weiyushuju.com/book/6rf4dt2/)
 - [好兄弟暴富后非要跟我结婚](https://www.weiyushuju.com/book/6rf4ccf/)
 - [关于我虚构了一个男友这件事](https://www.weiyushuju.com/book/6rf4c4o/)
 - [星际团宠小人鱼](https://www.weiyushuju.com/book/6rf2a5n/)
 - [分手后与诱系妻子再度热恋](https://www.weiyushuju.com/book/6rf29ps/)
 - [纯爱宇智波基本恋爱法](https://www.weiyushuju.com/book/6rf29aj/)
+- [[封神]圣人生欲](https://www.weiyushuju.com/book/6rf295t/)
 - [你，后室管理员](https://www.weiyushuju.com/book/6rf2915/)
 - [高调装神，猥琐发育](https://www.weiyushuju.com/book/6rf289p/)
 - [他要和我谈恋爱](https://www.weiyushuju.com/book/6rf27in/)

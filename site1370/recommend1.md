@@ -1,7 +1,7 @@
 
 # 燃文故事小说网 - 无弹窗全本小说免费阅读
 
-更新时间：2026-08-30 03:24:19
+更新时间：2026-08-31 03:25:28
 
 燃文故事小说网提供无弹窗干扰的小说阅读体验，支持全本小说在线免费阅读。
 
@@ -113,7 +113,6 @@
 - [豪门前妻O总想诱我](https://www.gushi687.com/book/63qrs2d/)
 - [井闼山经理每天都被挖墙脚](https://www.gushi687.com/book/63qrrkr/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.gushi687.com/book/63qrqj5/)
-- [兽世种田撸狼首领](https://www.gushi687.com/book/63qrpdl/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.gushi687.com/book/63qrnnu/)
 - [恋爱脑毁灭世界](https://www.gushi687.com/book/63qrni1/)
 - [漫漫仙途](https://www.gushi687.com/book/63qrmo9/)

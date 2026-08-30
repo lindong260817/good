@@ -1,13 +1,15 @@
 
 # 新华 MBA雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-08-30 03:39:27
+更新时间：2026-08-31 03:40:33
 
 新华 MBA雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。
 
 - [新华MBA雷火小说网](https://www.xhmba.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.xhmba.com/book/7mj1fn7/)
+- [从维多利亚时代开始](https://www.xhmba.com/book/7mj1fli/)
 - [九零重组小家庭](https://www.xhmba.com/book/7mj18id/)
 - [发家致富小夫郎](https://www.xhmba.com/book/7mj0qlj/)
 - [社恐直播鉴宝，但带球跑](https://www.xhmba.com/book/7mj085q/)
@@ -23,7 +25,6 @@
 - [全球进化，而我保持不变](https://www.xhmba.com/book/7mium7k/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.xhmba.com/book/7mium7d/)
 - [下潜一万米，海渊求生](https://www.xhmba.com/book/7mium5u/)
-- [兽世种田撸狼首领](https://www.xhmba.com/book/7mium52/)
 - [我夫君怎会是龙傲天？](https://www.xhmba.com/book/7mium3m/)
 - [迟晚](https://www.xhmba.com/book/7mium2f/)
 - [霓虹夏日](https://www.xhmba.com/book/7mium2b/)
@@ -108,7 +109,6 @@
 - [猫猫也要被魅魔魅惑吗？](https://www.xhmba.com/book/7miujs2/)
 - [当织田作绑定魅魔系统](https://www.xhmba.com/book/7miujrj/)
 - [寄人篱下](https://www.xhmba.com/book/7miujrh/)
-- [万人嫌女配过分漂亮](https://www.xhmba.com/book/7miujr6/)
 - [绿叶](https://www.xhmba.com/book/7miujqo/)
 - [如果时光不记得](https://www.xhmba.com/book/7miujqi/)
 - [宫陷](https://www.xhmba.com/book/7miujpl/)
@@ -135,7 +135,9 @@
 - [把清冷权臣调成荡夫后](https://www.xhmba.com/book/7miucr9/)
 - [绿茶病秧子骗他说喜欢](https://www.xhmba.com/book/7miuc8f/)
 - [我真的没想在选秀炒CP](https://www.xhmba.com/book/7miu9jq/)
+- [养父](https://www.xhmba.com/book/7miu7gg/)
 - [欢迎来到纳萨力克丧葬公司](https://www.xhmba.com/book/7miu70o/)
+- [在医院旧楼捡到个外科鼻祖](https://www.xhmba.com/book/7miu6om/)
 - [[群穿]我在御兽番抢人气](https://www.xhmba.com/book/7miu631/)
 - [大瑛弟国](https://www.xhmba.com/book/7mitaec/)
 - [御兽师，我打工养你啊](https://www.xhmba.com/book/7mitadu/)

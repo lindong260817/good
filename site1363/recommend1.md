@@ -1,13 +1,14 @@
 
 # 无瑕天涯在线书库 - 免费小说在线阅读
 
-更新时间：2026-08-30 03:38:44
+更新时间：2026-08-31 03:39:50
 
 无瑕天涯在线书库自2003年创立至今，致力于提供包括武侠、言情、科幻等多种类型的小说免费在线阅读服务。页面设计简洁，持续优化用户体验，旨在为读者带来更好的阅读享受。
 
 - [无瑕天涯书库](https://www.wuxia688.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.wuxia688.com/book/2bjrame/)
 - [发家致富小夫郎](https://www.wuxia688.com/book/2bjr64c/)
 - [[娱乐圈]穿进同人文里哦多尅](https://www.wuxia688.com/book/2bjr3qq/)
 - [影帝今天分手了吗[娱乐圈]](https://www.wuxia688.com/book/2bjr3qk/)
@@ -65,9 +66,11 @@
 - [我真的只会Ctrl啊！！！](https://www.wuxia688.com/book/2bjr1c3/)
 - [灭世龙崽有什么错](https://www.wuxia688.com/book/2bjqqfv/)
 - [九零重组小家庭](https://www.wuxia688.com/book/2bjqojj/)
+- [养父](https://www.wuxia688.com/book/2bjqnhv/)
 - [人妻O救赎指南](https://www.wuxia688.com/book/2bjqncn/)
 - [在虫族世界逃命升级](https://www.wuxia688.com/book/2bjqk0l/)
 - [神豪文男主是我爸](https://www.wuxia688.com/book/2bjqj1s/)
+- [从维多利亚时代开始](https://www.wuxia688.com/book/2bjqaai/)
 - [我有特殊的升官技巧](https://www.wuxia688.com/book/2bjq7dh/)
 - [十九世纪贵族厨房（美食）](https://www.wuxia688.com/book/2bjq4d4/)
 - [星际团宠小人鱼](https://www.wuxia688.com/book/2bjq4bv/)
@@ -77,7 +80,6 @@
 - [全球进化，而我保持不变](https://www.wuxia688.com/book/2bjpava/)
 - [绿叶](https://www.wuxia688.com/book/2bjp7nv/)
 - [第一游侠[全息]](https://www.wuxia688.com/book/2bjp69l/)
-- [万人嫌女配过分漂亮](https://www.wuxia688.com/book/2bjp4vn/)
 - [我写小说纯粹为了赚钱](https://www.wuxia688.com/book/2bjp4pe/)
 - [始皇闺女躺平失败的日子](https://www.wuxia688.com/book/2bjp4oq/)
 - [枕边热吻](https://www.wuxia688.com/book/2bjp318/)
@@ -115,7 +117,6 @@
 - [豪门前妻O总想诱我](https://www.wuxia688.com/book/2bjnsvb/)
 - [恋爱脑毁灭世界](https://www.wuxia688.com/book/2bjnrmf/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.wuxia688.com/book/2bjnrjo/)
-- [兽世种田撸狼首领](https://www.wuxia688.com/book/2bjnqnj/)
 - [漫漫仙途](https://www.wuxia688.com/book/2bjnnlv/)
 - [魔尊和仙帝共坠爱河之后](https://www.wuxia688.com/book/2bjnn8b/)
 - [漫画配角的不平凡日常](https://www.wuxia688.com/book/2bjnn3e/)
@@ -145,6 +146,7 @@
 - [我不是御兽大师](https://www.wuxia688.com/book/2bjmvs1/)
 - [徐娘子的美食发家日常](https://www.wuxia688.com/book/2bjmum3/)
 - [我真的没想在选秀炒CP](https://www.wuxia688.com/book/2bjmsnf/)
+- [在医院旧楼捡到个外科鼻祖](https://www.wuxia688.com/book/2bjmrr6/)
 - [把清冷权臣调成荡夫后](https://www.wuxia688.com/book/2bjmqqj/)
 - [[群穿]我在御兽番抢人气](https://www.wuxia688.com/book/2bjmprd/)
 - [刑部的小衙门](https://www.wuxia688.com/book/2bjlv5q/)

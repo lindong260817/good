@@ -1,13 +1,14 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-08-30 03:30:57
+更新时间：2026-08-31 03:32:04
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。
 
 - [左叶小说网](https://www.pusytgp.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.pusytgp.com/book/7pbovc6/)
 - [发家致富小夫郎](https://www.pusytgp.com/book/7pbovc5/)
 - [阿竹与野桃](https://www.pusytgp.com/book/7pbouiv/)
 - [退婚流龙傲天，但未婚夫是我](https://www.pusytgp.com/book/7pbouit/)
@@ -63,6 +64,7 @@
 - [游戏boss们抢着要当我的猫[全息]](https://www.pusytgp.com/book/7pbouee/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.pusytgp.com/book/7pbop6n/)
 - [我真的只会Ctrl啊！！！](https://www.pusytgp.com/book/7pbolcb/)
+- [养父](https://www.pusytgp.com/book/7pbol89/)
 - [人妻O救赎指南](https://www.pusytgp.com/book/7pbokvb/)
 - [星际团宠小人鱼](https://www.pusytgp.com/book/7pboe9n/)
 - [灭世龙崽有什么错](https://www.pusytgp.com/book/7pboa3p/)
@@ -70,6 +72,7 @@
 - [神豪文男主是我爸](https://www.pusytgp.com/book/7pbo4ig/)
 - [在虫族世界逃命升级](https://www.pusytgp.com/book/7pbo33t/)
 - [趁她之危](https://www.pusytgp.com/book/7pbo14b/)
+- [从维多利亚时代开始](https://www.pusytgp.com/book/7pbnpd1/)
 - [我有特殊的升官技巧](https://www.pusytgp.com/book/7pbnmlp/)
 - [反派人生，易如反掌[快穿]](https://www.pusytgp.com/book/7pbnj9e/)
 - [假少爷不想活了](https://www.pusytgp.com/book/7pbnj2v/)
@@ -84,7 +87,6 @@
 - [科学主义魔法学院](https://www.pusytgp.com/book/7pbmgmg/)
 - [始皇闺女躺平失败的日子](https://www.pusytgp.com/book/7pbmgev/)
 - [绿叶](https://www.pusytgp.com/book/7pbmfch/)
-- [万人嫌女配过分漂亮](https://www.pusytgp.com/book/7pbmf9d/)
 - [我写小说纯粹为了赚钱](https://www.pusytgp.com/book/7pbmf0p/)
 - [九零首富的替嫁小媳妇](https://www.pusytgp.com/book/7pbmdh9/)
 - [枕边热吻](https://www.pusytgp.com/book/7pbmdam/)
@@ -120,7 +122,6 @@
 - [当恶女捡回高岭之花](https://www.pusytgp.com/book/7pbl95g/)
 - [漫画配角的不平凡日常](https://www.pusytgp.com/book/7pbl7fn/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.pusytgp.com/book/7pbl6n5/)
-- [兽世种田撸狼首领](https://www.pusytgp.com/book/7pbl68f/)
 - [井闼山经理每天都被挖墙脚](https://www.pusytgp.com/book/7pbl5vo/)
 - [魔尊和仙帝共坠爱河之后](https://www.pusytgp.com/book/7pbl587/)
 - [重临巅峰[花滑]](https://www.pusytgp.com/book/7pbl4g4/)
@@ -149,6 +150,7 @@
 - [绿茶病秧子骗他说喜欢](https://www.pusytgp.com/book/7pbke17/)
 - [徐娘子的美食发家日常](https://www.pusytgp.com/book/7pbkcsr/)
 - [把清冷权臣调成荡夫后](https://www.pusytgp.com/book/7pbkb8g/)
+- [在医院旧楼捡到个外科鼻祖](https://www.pusytgp.com/book/7pbkaoj/)
 - [[群穿]我在御兽番抢人气](https://www.pusytgp.com/book/7pbk85g/)
 - [95美国贵族高中模拟](https://www.pusytgp.com/book/7pbjebn/)
 - [[娱乐圈]过分美丽的她](https://www.pusytgp.com/book/7pbjebb/)

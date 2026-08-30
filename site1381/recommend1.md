@@ -1,13 +1,14 @@
 
 # 湾里早市时间小说网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-08-30 03:38:11
+更新时间：2026-08-31 03:39:18
 
 湾里早市时间小说网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
 - [湾里早市时间小说网](https://www.wlzssj.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.wlzssj.com/book/4pmf2rm/)
 - [发家致富小夫郎](https://www.wlzssj.com/book/4pmet1c/)
 - [九零重组小家庭](https://www.wlzssj.com/book/4pmeomf/)
 - [卡尔蜜拉也能成为特利迦白月光？](https://www.wlzssj.com/book/4pmeoe2/)
@@ -66,8 +67,10 @@
 - [在虫族世界逃命升级](https://www.wlzssj.com/book/4pmelgu/)
 - [神豪文男主是我爸](https://www.wlzssj.com/book/4pmekdv/)
 - [我真的只会Ctrl啊！！！](https://www.wlzssj.com/book/4pmeidq/)
+- [从维多利亚时代开始](https://www.wlzssj.com/book/4pmec7c/)
 - [我有特殊的升官技巧](https://www.wlzssj.com/book/4pme964/)
 - [反派人生，易如反掌[快穿]](https://www.wlzssj.com/book/4pme5l3/)
+- [养父](https://www.wlzssj.com/book/4pmdtt2/)
 - [人妻O救赎指南](https://www.wlzssj.com/book/4pmdtms/)
 - [摄政王家的咸鱼夫郎](https://www.wlzssj.com/book/4pmdi75/)
 - [绿叶](https://www.wlzssj.com/book/4pmdg7n/)
@@ -77,7 +80,6 @@
 - [我写小说纯粹为了赚钱](https://www.wlzssj.com/book/4pmda72/)
 - [科学主义魔法学院](https://www.wlzssj.com/book/4pmd9ao/)
 - [寄人篱下](https://www.wlzssj.com/book/4pmd7sb/)
-- [万人嫌女配过分漂亮](https://www.wlzssj.com/book/4pmd5jq/)
 - [始皇闺女躺平失败的日子](https://www.wlzssj.com/book/4pmd4n6/)
 - [误标记隔壁阿姨O之后](https://www.wlzssj.com/book/4pmd430/)
 - [当菟丝花要分手后](https://www.wlzssj.com/book/4pmd122/)
@@ -106,7 +108,6 @@
 - [青空来信](https://www.wlzssj.com/book/4pmc2n5/)
 - [豪门前妻O总想诱我](https://www.wlzssj.com/book/4pmc1lc/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.wlzssj.com/book/4pmc0ab/)
-- [兽世种田撸狼首领](https://www.wlzssj.com/book/4pmbu0p/)
 - [恋爱脑毁灭世界](https://www.wlzssj.com/book/4pmbspq/)
 - [漫画配角的不平凡日常](https://www.wlzssj.com/book/4pmbrsj/)
 - [青城玩家明明超强却过分谨慎](https://www.wlzssj.com/book/4pmbrps/)
@@ -139,6 +140,7 @@
 - [我真的没想在选秀炒CP](https://www.wlzssj.com/book/4pmb0ul/)
 - [把清冷权臣调成荡夫后](https://www.wlzssj.com/book/4pmaujj/)
 - [欢迎来到纳萨力克丧葬公司](https://www.wlzssj.com/book/4pmatod/)
+- [在医院旧楼捡到个外科鼻祖](https://www.wlzssj.com/book/4pmat7t/)
 - [[群穿]我在御兽番抢人气](https://www.wlzssj.com/book/4pmasa6/)
 - [我，恶女，在线搞事](https://www.wlzssj.com/book/4pmarcn/)
 - [为诡异打工，但反封建迷信](https://www.wlzssj.com/book/4pma0uf/)

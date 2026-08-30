@@ -1,13 +1,14 @@
 
 # 灌南华侨小说网笔趣阁_书友最值得收藏的网络小说阅读网
 
-更新时间：2026-08-30 03:23:30
+更新时间：2026-08-31 03:24:40
 
 灌南华侨小说网笔趣阁海量免费小说在线阅读平台，汇聚玄幻、都市、言情、科幻、悬疑等全品类热门小说，实时更新全网爆款佳作。无广告干扰，支持缓存离线看，让你随时随地沉浸阅读世界，找书看书就来笔趣阁，满足你的所有阅读渴望。
 
 - [灌南华侨小说网](https://www.gnhqbs.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.gnhqbs.com/book/1cqms1l/)
 - [发家致富小夫郎](https://www.gnhqbs.com/book/1cqms1k/)
 - [宫陷](https://www.gnhqbs.com/book/1cqms1j/)
 - [身为人造人的我梦想是成为救世主](https://www.gnhqbs.com/book/1cqms1i/)
@@ -66,8 +67,10 @@
 - [九零重组小家庭](https://www.gnhqbs.com/book/1cqm0eq/)
 - [在虫族世界逃命升级](https://www.gnhqbs.com/book/1cqlunj/)
 - [神豪文男主是我爸](https://www.gnhqbs.com/book/1cqltjf/)
+- [从维多利亚时代开始](https://www.gnhqbs.com/book/1cqllbm/)
 - [我有特殊的升官技巧](https://www.gnhqbs.com/book/1cqli9k/)
 - [反派人生，易如反掌[快穿]](https://www.gnhqbs.com/book/1cqlevb/)
+- [养父](https://www.gnhqbs.com/book/1cql6s0/)
 - [人妻O救赎指南](https://www.gnhqbs.com/book/1cql6qs/)
 - [摄政王家的咸鱼夫郎](https://www.gnhqbs.com/book/1cqkr4p/)
 - [绿叶](https://www.gnhqbs.com/book/1cqkpf5/)
@@ -77,7 +80,6 @@
 - [科学主义魔法学院](https://www.gnhqbs.com/book/1cqkjmt/)
 - [第一游侠[全息]](https://www.gnhqbs.com/book/1cqkico/)
 - [寄人篱下](https://www.gnhqbs.com/book/1cqkgtb/)
-- [万人嫌女配过分漂亮](https://www.gnhqbs.com/book/1cqkeju/)
 - [始皇闺女躺平失败的日子](https://www.gnhqbs.com/book/1cqkedj/)
 - [误标记隔壁阿姨O之后](https://www.gnhqbs.com/book/1cqkbu4/)
 - [当菟丝花要分手后](https://www.gnhqbs.com/book/1cqkajb/)
@@ -107,7 +109,6 @@
 - [龙傲天他解锁宠妻系统](https://www.gnhqbs.com/book/1cqjc5k/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.gnhqbs.com/book/1cqj8di/)
 - [青城玩家明明超强却过分谨慎](https://www.gnhqbs.com/book/1cqj73e/)
-- [兽世种田撸狼首领](https://www.gnhqbs.com/book/1cqj6hk/)
 - [恋爱脑毁灭世界](https://www.gnhqbs.com/book/1cqj6bl/)
 - [漫画配角的不平凡日常](https://www.gnhqbs.com/book/1cqj62s/)
 - [当我cos了漫画if线主角](https://www.gnhqbs.com/book/1cqj4o6/)
@@ -140,6 +141,7 @@
 - [把清冷权臣调成荡夫后](https://www.gnhqbs.com/book/1cqi84u/)
 - [欢迎来到纳萨力克丧葬公司](https://www.gnhqbs.com/book/1cqi6kl/)
 - [[群穿]我在御兽番抢人气](https://www.gnhqbs.com/book/1cqi50v/)
+- [在医院旧楼捡到个外科鼻祖](https://www.gnhqbs.com/book/1cqi4sl/)
 - [我，恶女，在线搞事](https://www.gnhqbs.com/book/1cqi1qq/)
 - [十九世纪贵族厨房（美食）](https://www.gnhqbs.com/book/1cqha97/)
 - [八零恶毒后妈杀疯了](https://www.gnhqbs.com/book/1cqha4m/)

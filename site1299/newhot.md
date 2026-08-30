@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-30 03:38:25
+更新时间：2026-08-31 03:39:31
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
@@ -9,19 +9,25 @@
 
 ## 最新小说
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wsfsx.com/book/5ts2992/)
+- [阿竹与野桃](https://www.wsfsx.com/book/5ts298e/)
+- [失而复得的白月光[快穿]](https://www.wsfsx.com/book/5ts297r/)
 - [井闼山经理每天都被挖墙脚](https://www.wsfsx.com/book/5ts297i/)
 - [我的烧烤摊超美味[美食]](https://www.wsfsx.com/book/5ts297g/)
 - [分手后与诱系妻子再度热恋](https://www.wsfsx.com/book/5ts296b/)
 - [星际团宠小人鱼](https://www.wsfsx.com/book/5ts2955/)
 - [你，后室管理员](https://www.wsfsx.com/book/5ts2951/)
+- [[封神]圣人生欲](https://www.wsfsx.com/book/5ts294m/)
 - [他要和我谈恋爱](https://www.wsfsx.com/book/5ts294j/)
 - [高调装神，猥琐发育](https://www.wsfsx.com/book/5ts294e/)
 - [纯爱宇智波基本恋爱法](https://www.wsfsx.com/book/5ts2945/)
+- [直男咒术师的限制级游戏](https://www.wsfsx.com/book/5ts291p/)
+- [某柯学的正义伙伴](https://www.wsfsx.com/book/5trvebu/)
+- [男朋友买一送一](https://www.wsfsx.com/book/5trv6g0/)
 - [我有嘉宾](https://www.wsfsx.com/book/5trv00k/)
-- [漫画路人绑定系统后](https://www.wsfsx.com/book/ivl6mv/)
-- [老公是松散生命体](https://www.wsfsx.com/book/ivkk58/)
-- [一枝枝怨](https://www.wsfsx.com/book/ivkjnn/)
-- [多梦你一会儿](https://www.wsfsx.com/book/ivk99v/)
+- [寻真](https://www.wsfsx.com/book/5truigr/)
+- [沈助理又在隐藏他的超能力](https://www.wsfsx.com/book/ivli57/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.wsfsx.com/book/ivl5sk/)
+- [青空来信](https://www.wsfsx.com/book/ivkkun/)
 - [拯救世界从扮演反派开始](https://www.wsfsx.com/book/ivk6la/)
 - [[足球]罗蜜第一志愿](https://www.wsfsx.com/book/ivk65b/)
 ## 相关内容
