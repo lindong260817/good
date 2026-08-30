@@ -1,13 +1,14 @@
 
 # 零点看书吧-书友最值得收藏的网络小说阅读网
 
-更新时间：2026-08-30 03:23:16
+更新时间：2026-08-31 03:24:26
 
 零点看书吧是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节。作为无弹窗的小说阅读平台，零点看书吧成为网络小说爱好者必备的选择。
 
 - [零点看书吧](https://www.gjnbgb.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.gjnbgb.com/book/2s9ss27/)
 - [发家致富小夫郎](https://www.gjnbgb.com/book/2s9smbo/)
 - [九零重组小家庭](https://www.gjnbgb.com/book/2s9si0r/)
 - [除病弱万人嫌外全员重生](https://www.gjnbgb.com/book/2s9shma/)
@@ -66,9 +67,11 @@
 - [在虫族世界逃命升级](https://www.gjnbgb.com/book/2s9sepf/)
 - [神豪文男主是我爸](https://www.gjnbgb.com/book/2s9sdl2/)
 - [我真的只会Ctrl啊！！！](https://www.gjnbgb.com/book/2s9sbm4/)
+- [从维多利亚时代开始](https://www.gjnbgb.com/book/2s9s5cg/)
 - [我有特殊的升官技巧](https://www.gjnbgb.com/book/2s9s2be/)
 - [反派人生，易如反掌[快穿]](https://www.gjnbgb.com/book/2s9ruvt/)
 - [人妻O救赎指南](https://www.gjnbgb.com/book/2s9rn1g/)
+- [养父](https://www.gjnbgb.com/book/2s9rn05/)
 - [摄政王家的咸鱼夫郎](https://www.gjnbgb.com/book/2s9rafb/)
 - [绿叶](https://www.gjnbgb.com/book/2s9r80c/)
 - [枕边热吻](https://www.gjnbgb.com/book/2s9r7gl/)
@@ -77,7 +80,6 @@
 - [寄人篱下](https://www.gjnbgb.com/book/2s9r23c/)
 - [我写小说纯粹为了赚钱](https://www.gjnbgb.com/book/2s9r1kj/)
 - [第一游侠[全息]](https://www.gjnbgb.com/book/2s9r10j/)
-- [万人嫌女配过分漂亮](https://www.gjnbgb.com/book/2s9r0t2/)
 - [始皇闺女躺平失败的日子](https://www.gjnbgb.com/book/2s9r0k1/)
 - [误标记隔壁阿姨O之后](https://www.gjnbgb.com/book/2s9qtiv/)
 - [十福晋吃瓜日常(清穿)](https://www.gjnbgb.com/book/2s9qolv/)
@@ -107,7 +109,6 @@
 - [豪门前妻O总想诱我](https://www.gjnbgb.com/book/2s9pr44/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.gjnbgb.com/book/2s9pp0f/)
 - [恋爱脑毁灭世界](https://www.gjnbgb.com/book/2s9pnln/)
-- [兽世种田撸狼首领](https://www.gjnbgb.com/book/2s9pn5v/)
 - [漫画配角的不平凡日常](https://www.gjnbgb.com/book/2s9pmrl/)
 - [青城玩家明明超强却过分谨慎](https://www.gjnbgb.com/book/2s9plvk/)
 - [魔尊和仙帝共坠爱河之后](https://www.gjnbgb.com/book/2s9pk33/)
@@ -138,6 +139,7 @@
 - [绿茶病秧子骗他说喜欢](https://www.gjnbgb.com/book/2s9osoi/)
 - [我真的没想在选秀炒CP](https://www.gjnbgb.com/book/2s9opt3/)
 - [把清冷权臣调成荡夫后](https://www.gjnbgb.com/book/2s9ooaf/)
+- [在医院旧楼捡到个外科鼻祖](https://www.gjnbgb.com/book/2s9onhn/)
 - [[群穿]我在御兽番抢人气](https://www.gjnbgb.com/book/2s9onc5/)
 - [欢迎来到纳萨力克丧葬公司](https://www.gjnbgb.com/book/2s9omtv/)
 - [我，恶女，在线搞事](https://www.gjnbgb.com/book/2s9ojdr/)

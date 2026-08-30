@@ -1,7 +1,7 @@
 
 # 紫竹原始小说 - 最新最全的小说文学网站
 
-更新时间：2026-08-30 03:21:29
+更新时间：2026-08-31 03:22:41
 
 紫竹原始小说是一个专注于分享最新、最全的小说文学作品的网站。我们致力于为读者带来全新的阅读体验，欢迎访问我们的网站，尽情享受文学的魅力。
 
@@ -107,7 +107,6 @@
 - [豪门前妻O总想诱我](https://www.cnysxc.com/book/8edtem3/)
 - [恋爱脑毁灭世界](https://www.cnysxc.com/book/8edtcdu/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.cnysxc.com/book/8edtau0/)
-- [兽世种田撸狼首领](https://www.cnysxc.com/book/8edtap6/)
 - [青城玩家明明超强却过分谨慎](https://www.cnysxc.com/book/8edta9u/)
 - [漫画配角的不平凡日常](https://www.cnysxc.com/book/8edt7uv/)
 - [漫漫仙途](https://www.cnysxc.com/book/8edt69p/)

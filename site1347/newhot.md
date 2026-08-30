@@ -1,13 +1,14 @@
 
 # 故事来书吧-免费阅读全网最新最热小说
 
-更新时间：2026-08-30 03:24:34
+更新时间：2026-08-31 03:25:43
 
 故事来书吧提供海量免费无弹窗小说在线阅读服务，涵盖言情、都市、玄幻、武侠等多种类型，让你随时随地享受阅读的乐趣。
 
 - [故事来书吧](https://www.gushi688.com/)
 
 ## 最新小说
+- [阿竹与野桃](https://www.gushi688.com/book/51210pb/)
 - [我的烧烤摊超美味[美食]](https://www.gushi688.com/book/51210o3/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.gushi688.com/book/51210mk/)
 - [我有嘉宾](https://www.gushi688.com/book/5120rqu/)
@@ -15,24 +16,30 @@
 - [星际团宠小人鱼](https://www.gushi688.com/book/512021u/)
 - [分手后与诱系妻子再度热恋](https://www.gushi688.com/book/5120207/)
 - [高调装神，猥琐发育](https://www.gushi688.com/book/511vqpi/)
+- [男朋友买一送一](https://www.gushi688.com/book/511vffi/)
+- [失而复得的白月光[快穿]](https://www.gushi688.com/book/511vb14/)
 - [如何正确哄睡暴君](https://www.gushi688.com/book/511v6it/)
-- [老公是松散生命体](https://www.gushi688.com/book/511upkt/)
+- [寻真](https://www.gushi688.com/book/511uv3j/)
+- [我不可能舔一个漂亮捞子](https://www.gushi688.com/book/511usqm/)
+- [沈助理又在隐藏他的超能力](https://www.gushi688.com/book/511un2e/)
 - [被鬼怪宠爱的漂亮书生](https://www.gushi688.com/book/511un1i/)
 - [微臣怜惜公主](https://www.gushi688.com/book/511ul4b/)
 - [他要和我谈恋爱](https://www.gushi688.com/book/511uc3g/)
-- [战死的阿爹回来了[年代]](https://www.gushi688.com/book/511u80p/)
-- [多梦你一会儿](https://www.gushi688.com/book/511u6un/)
-- [漫画路人绑定系统后](https://www.gushi688.com/book/511u5pb/)
-- [[足球]能不能好好模拟游戏](https://www.gushi688.com/book/511u2nk/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.gushi688.com/book/511u7to/)
+- [[封神]圣人生欲](https://www.gushi688.com/book/511u7nr/)
 - [[足球]罗蜜第一志愿](https://www.gushi688.com/book/511tuoc/)
-- [一枝枝怨](https://www.gushi688.com/book/511tqnf/)
+- [青空来信](https://www.gushi688.com/book/511tuhh/)
+- [某柯学的正义伙伴](https://www.gushi688.com/book/511tugh/)
 - [井闼山经理每天都被挖墙脚](https://www.gushi688.com/book/511tpuo/)
 - [[足球]小小鸟堂堂来袭](https://www.gushi688.com/book/511thuu/)
+- [侯府打工人](https://www.gushi688.com/book/511tdja/)
 - [好兄弟暴富后非要跟我结婚](https://www.gushi688.com/book/511taso/)
 - [法外狂猫](https://www.gushi688.com/book/511t9dj/)
 - [关于我虚构了一个男友这件事](https://www.gushi688.com/book/511t755/)
+- [契约情人](https://www.gushi688.com/book/511t5kq/)
 - [和室友他爸恋爱后](https://www.gushi688.com/book/511t10i/)
 - [纯爱宇智波基本恋爱法](https://www.gushi688.com/book/511rrob/)
+- [直男咒术师的限制级游戏](https://www.gushi688.com/book/511rq5e/)
 - [拯救世界从扮演反派开始](https://www.gushi688.com/book/511roqc/)
 ## 相关内容
 - [README](/README.md)

@@ -1,13 +1,14 @@
 
 # 读者电子书-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-08-30 03:22:13
+更新时间：2026-08-31 03:23:24
 
 读者电子书提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
 
 - [读者电子书](https://www.duzhe368.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.duzhe368.com/book/3hfv5uh/)
 - [发家致富小夫郎](https://www.duzhe368.com/book/3hfv1ab/)
 - [痴情女配开始放手了（快穿）](https://www.duzhe368.com/book/3hfuv1o/)
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.duzhe368.com/book/3hfuv1l/)
@@ -66,8 +67,10 @@
 - [灭世龙崽有什么错](https://www.duzhe368.com/book/3hfulcm/)
 - [九零重组小家庭](https://www.duzhe368.com/book/3hfujkd/)
 - [人妻O救赎指南](https://www.duzhe368.com/book/3hfuj17/)
+- [养父](https://www.duzhe368.com/book/3hfuiv8/)
 - [在虫族世界逃命升级](https://www.duzhe368.com/book/3hfuepo/)
 - [神豪文男主是我爸](https://www.duzhe368.com/book/3hfue5d/)
+- [从维多利亚时代开始](https://www.duzhe368.com/book/3hfu576/)
 - [我有特殊的升官技巧](https://www.duzhe368.com/book/3hfu29l/)
 - [十九世纪贵族厨房（美食）](https://www.duzhe368.com/book/3hfu082/)
 - [星际团宠小人鱼](https://www.duzhe368.com/book/3hfu02v/)
@@ -79,7 +82,6 @@
 - [绿叶](https://www.duzhe368.com/book/3hft2ip/)
 - [寄人篱下](https://www.duzhe368.com/book/3hft0io/)
 - [枕边热吻](https://www.duzhe368.com/book/3hft0gh/)
-- [万人嫌女配过分漂亮](https://www.duzhe368.com/book/3hft08q/)
 - [九零首富的替嫁小媳妇](https://www.duzhe368.com/book/3hfsvvc/)
 - [始皇闺女躺平失败的日子](https://www.duzhe368.com/book/3hfsvp1/)
 - [我写小说纯粹为了赚钱](https://www.duzhe368.com/book/3hfstt8/)
@@ -115,7 +117,6 @@
 - [井闼山经理每天都被挖墙脚](https://www.duzhe368.com/book/3hfro51/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.duzhe368.com/book/3hfrn1o/)
 - [恋爱脑毁灭世界](https://www.duzhe368.com/book/3hfrmqv/)
-- [兽世种田撸狼首领](https://www.duzhe368.com/book/3hfrlm9/)
 - [漫画配角的不平凡日常](https://www.duzhe368.com/book/3hfrkn5/)
 - [漫漫仙途](https://www.duzhe368.com/book/3hfrkaa/)
 - [魔尊和仙帝共坠爱河之后](https://www.duzhe368.com/book/3hfrjma/)
@@ -145,6 +146,7 @@
 - [我不是御兽大师](https://www.duzhe368.com/book/3hfqr6j/)
 - [我真的没想在选秀炒CP](https://www.duzhe368.com/book/3hfqoqi/)
 - [徐娘子的美食发家日常](https://www.duzhe368.com/book/3hfqojj/)
+- [在医院旧楼捡到个外科鼻祖](https://www.duzhe368.com/book/3hfqmv8/)
 - [把清冷权臣调成荡夫后](https://www.duzhe368.com/book/3hfqkp4/)
 - [[群穿]我在御兽番抢人气](https://www.duzhe368.com/book/3hfqkm0/)
 - [古代种田养娃日常](https://www.duzhe368.com/book/3hfpq0i/)

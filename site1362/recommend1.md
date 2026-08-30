@@ -1,13 +1,14 @@
 
 # 漫话乐文小说-免费小说阅读,无弹窗,最新章节更新快
 
-更新时间：2026-08-30 03:29:31
+更新时间：2026-08-31 03:30:38
 
 漫话乐文小说是广大书友最值得收藏的网络小说阅读网，提供当前最火热的网络小说免费阅读服务，高质量的小说最新章节更新快速，适合所有网络小说爱好者。
 
 - [漫话乐文小说](https://www.manhua958.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.manhua958.com/book/17scoah/)
 - [发家致富小夫郎](https://www.manhua958.com/book/17scjmr/)
 - [败类游戏](https://www.manhua958.com/book/17schcs/)
 - [昼色清明](https://www.manhua958.com/book/17schcp/)
@@ -65,9 +66,11 @@
 - [我真的只会Ctrl啊！！！](https://www.manhua958.com/book/17scevt/)
 - [灭世龙崽有什么错](https://www.manhua958.com/book/17sc824/)
 - [九零重组小家庭](https://www.manhua958.com/book/17sc687/)
+- [养父](https://www.manhua958.com/book/17sc54c/)
 - [人妻O救赎指南](https://www.manhua958.com/book/17sc54a/)
 - [在虫族世界逃命升级](https://www.manhua958.com/book/17sc1ga/)
 - [神豪文男主是我爸](https://www.manhua958.com/book/17sc0ns/)
+- [从维多利亚时代开始](https://www.manhua958.com/book/17sbnv3/)
 - [我有特殊的升官技巧](https://www.manhua958.com/book/17sbkqo/)
 - [十九世纪贵族厨房（美食）](https://www.manhua958.com/book/17sbhvu/)
 - [星际团宠小人鱼](https://www.manhua958.com/book/17sbhqj/)
@@ -81,7 +84,6 @@
 - [始皇闺女躺平失败的日子](https://www.manhua958.com/book/17saj5m/)
 - [寄人篱下](https://www.manhua958.com/book/17saj3h/)
 - [枕边热吻](https://www.manhua958.com/book/17saiqm/)
-- [万人嫌女配过分漂亮](https://www.manhua958.com/book/17sahdu/)
 - [九零首富的替嫁小媳妇](https://www.manhua958.com/book/17sagn1/)
 - [为诡异打工，但反封建迷信](https://www.manhua958.com/book/17sad6u/)
 - [误标记隔壁阿姨O之后](https://www.manhua958.com/book/17saco2/)
@@ -114,7 +116,6 @@
 - [人在虫族，写文爆红](https://www.manhua958.com/book/17s9bgv/)
 - [井闼山经理每天都被挖墙脚](https://www.manhua958.com/book/17s9b3r/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.manhua958.com/book/17s99f3/)
-- [兽世种田撸狼首领](https://www.manhua958.com/book/17s98af/)
 - [恋爱脑毁灭世界](https://www.manhua958.com/book/17s97o4/)
 - [漫漫仙途](https://www.manhua958.com/book/17s96ug/)
 - [漫画配角的不平凡日常](https://www.manhua958.com/book/17s96ef/)
@@ -146,6 +147,7 @@
 - [徐娘子的美食发家日常](https://www.manhua958.com/book/17s8bt5/)
 - [我真的没想在选秀炒CP](https://www.manhua958.com/book/17s8bdb/)
 - [[群穿]我在御兽番抢人气](https://www.manhua958.com/book/17s89mt/)
+- [在医院旧楼捡到个外科鼻祖](https://www.manhua958.com/book/17s89fe/)
 - [把清冷权臣调成荡夫后](https://www.manhua958.com/book/17s87ul/)
 - [御兽师，我打工养你啊](https://www.manhua958.com/book/17s7cms/)
 - [六零之成了卷王的妹妹](https://www.manhua958.com/book/17s7clq/)

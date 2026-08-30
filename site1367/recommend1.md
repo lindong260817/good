@@ -1,13 +1,14 @@
 
 # 奇幻笔趣屋 - 书友最值得收藏的网络小说阅读网
 
-更新时间：2026-08-30 03:31:40
+更新时间：2026-08-31 03:32:48
 
 奇幻笔趣屋收录整理最新最全的热门网络小说，提供所有小说首发最新章节免费阅读服务，是书友们最值得收藏的小说阅读网站。
 
 - [奇幻笔趣屋](https://www.qihuan958.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.qihuan958.com/book/4ratrcg/)
 - [发家致富小夫郎](https://www.qihuan958.com/book/4ratmrp/)
 - [猫猫也要被魅魔魅惑吗？](https://www.qihuan958.com/book/4ratkgq/)
 - [游戏boss们抢着要当我的猫[全息]](https://www.qihuan958.com/book/4ratkgp/)
@@ -65,9 +66,11 @@
 - [我真的只会Ctrl啊！！！](https://www.qihuan958.com/book/4rati2m/)
 - [灭世龙崽有什么错](https://www.qihuan958.com/book/4ratb5p/)
 - [九零重组小家庭](https://www.qihuan958.com/book/4rat9a3/)
+- [养父](https://www.qihuan958.com/book/4rat853/)
 - [人妻O救赎指南](https://www.qihuan958.com/book/4rat83p/)
 - [在虫族世界逃命升级](https://www.qihuan958.com/book/4rat4kb/)
 - [神豪文男主是我爸](https://www.qihuan958.com/book/4rat3sb/)
+- [从维多利亚时代开始](https://www.qihuan958.com/book/4rasr1r/)
 - [我有特殊的升官技巧](https://www.qihuan958.com/book/4raso2f/)
 - [十九世纪贵族厨房（美食）](https://www.qihuan958.com/book/4rasl9q/)
 - [星际团宠小人鱼](https://www.qihuan958.com/book/4rasl0k/)
@@ -80,7 +83,6 @@
 - [寄人篱下](https://www.qihuan958.com/book/4rarmcq/)
 - [始皇闺女躺平失败的日子](https://www.qihuan958.com/book/4rarlfh/)
 - [我写小说纯粹为了赚钱](https://www.qihuan958.com/book/4rarler/)
-- [万人嫌女配过分漂亮](https://www.qihuan958.com/book/4rarl64/)
 - [枕边热吻](https://www.qihuan958.com/book/4rarjv0/)
 - [九零首富的替嫁小媳妇](https://www.qihuan958.com/book/4rarjug/)
 - [为诡异打工，但反封建迷信](https://www.qihuan958.com/book/4rarg27/)
@@ -115,7 +117,6 @@
 - [井闼山经理每天都被挖墙脚](https://www.qihuan958.com/book/4raqdpr/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.qihuan958.com/book/4raqc2o/)
 - [恋爱脑毁灭世界](https://www.qihuan958.com/book/4raqbso/)
-- [兽世种田撸狼首领](https://www.qihuan958.com/book/4raqal2/)
 - [漫画配角的不平凡日常](https://www.qihuan958.com/book/4raqa1g/)
 - [漫漫仙途](https://www.qihuan958.com/book/4raq8qj/)
 - [魔尊和仙帝共坠爱河之后](https://www.qihuan958.com/book/4raq8fo/)
@@ -147,6 +148,7 @@
 - [徐娘子的美食发家日常](https://www.qihuan958.com/book/4rapdao/)
 - [把清冷权臣调成荡夫后](https://www.qihuan958.com/book/4rapcc9/)
 - [[群穿]我在御兽番抢人气](https://www.qihuan958.com/book/4rapc4e/)
+- [在医院旧楼捡到个外科鼻祖](https://www.qihuan958.com/book/4rapatm/)
 - [日化人生[科研]](https://www.qihuan958.com/book/4raofs2/)
 - [高门小婢](https://www.qihuan958.com/book/4raofpi/)
 - [御兽师，我打工养你啊](https://www.qihuan958.com/book/4raofm0/)

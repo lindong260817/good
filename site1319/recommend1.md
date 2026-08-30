@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-08-30 03:27:00
+更新时间：2026-08-31 03:28:05
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
@@ -134,7 +134,6 @@
 - [你是我的根目录](https://www.kanshu666.com/book/rj4ssa/)
 - [魔尊和仙帝共坠爱河之后](https://www.kanshu666.com/book/rj4s3g/)
 - [恋爱脑毁灭世界](https://www.kanshu666.com/book/rj4rvo/)
-- [兽世种田撸狼首领](https://www.kanshu666.com/book/rj4rdl/)
 - [直男误入攻略天龙人游戏](https://www.kanshu666.com/book/rj4mto/)
 - [[综港影]野生情人出没地](https://www.kanshu666.com/book/rj4m5q/)
 - [穿越废星，我靠种田求生](https://www.kanshu666.com/book/rj4lie/)
