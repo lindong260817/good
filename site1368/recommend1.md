@@ -1,13 +1,14 @@
 
 # 探秘书院-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-08-30 03:35:57
+更新时间：2026-08-31 03:37:04
 
 探秘书院提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
 - [探秘书院](https://www.tanmi918.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.tanmi918.com/book/80r4na0/)
 - [发家致富小夫郎](https://www.tanmi918.com/book/80r4ili/)
 - [和光太郎谈恋爱](https://www.tanmi918.com/book/80r4gcr/)
 - [氪金游戏，从养成林太郎开始](https://www.tanmi918.com/book/80r4gcq/)
@@ -66,8 +67,10 @@
 - [灭世龙崽有什么错](https://www.tanmi918.com/book/80r470d/)
 - [九零重组小家庭](https://www.tanmi918.com/book/80r453p/)
 - [人妻O救赎指南](https://www.tanmi918.com/book/80r442f/)
+- [养父](https://www.tanmi918.com/book/80r4410/)
 - [在虫族世界逃命升级](https://www.tanmi918.com/book/80r40dq/)
 - [神豪文男主是我爸](https://www.tanmi918.com/book/80r3vm9/)
+- [从维多利亚时代开始](https://www.tanmi918.com/book/80r3mpu/)
 - [我有特殊的升官技巧](https://www.tanmi918.com/book/80r3jrk/)
 - [星际团宠小人鱼](https://www.tanmi918.com/book/80r3h49/)
 - [十九世纪贵族厨房（美食）](https://www.tanmi918.com/book/80r3gv2/)
@@ -80,7 +83,6 @@
 - [寄人篱下](https://www.tanmi918.com/book/80r2hdi/)
 - [九零首富的替嫁小媳妇](https://www.tanmi918.com/book/80r2hd2/)
 - [我写小说纯粹为了赚钱](https://www.tanmi918.com/book/80r2gjs/)
-- [万人嫌女配过分漂亮](https://www.tanmi918.com/book/80r2fpm/)
 - [始皇闺女躺平失败的日子](https://www.tanmi918.com/book/80r2fnc/)
 - [枕边热吻](https://www.tanmi918.com/book/80r2fi7/)
 - [为诡异打工，但反封建迷信](https://www.tanmi918.com/book/80r2bve/)
@@ -114,7 +116,6 @@
 - [井闼山经理每天都被挖墙脚](https://www.tanmi918.com/book/80r1ao6/)
 - [豪门前妻O总想诱我](https://www.tanmi918.com/book/80r1aba/)
 - [恋爱脑毁灭世界](https://www.tanmi918.com/book/80r18d1/)
-- [兽世种田撸狼首领](https://www.tanmi918.com/book/80r17f4/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.tanmi918.com/book/80r16k3/)
 - [漫漫仙途](https://www.tanmi918.com/book/80r15m0/)
 - [魔尊和仙帝共坠爱河之后](https://www.tanmi918.com/book/80r1498/)
@@ -146,6 +147,7 @@
 - [我真的没想在选秀炒CP](https://www.tanmi918.com/book/80r0ael/)
 - [徐娘子的美食发家日常](https://www.tanmi918.com/book/80r09b1/)
 - [把清冷权臣调成荡夫后](https://www.tanmi918.com/book/80r08bh/)
+- [在医院旧楼捡到个外科鼻祖](https://www.tanmi918.com/book/80r07q1/)
 - [[群穿]我在御兽番抢人气](https://www.tanmi918.com/book/80r07gv/)
 - [假少爷不想活了](https://www.tanmi918.com/book/80qvbnf/)
 - [巨物致富：回乡开钓场](https://www.tanmi918.com/book/80qvbkk/)

@@ -1,13 +1,14 @@
 
 # 春日书屋-免费热门小说在线阅读平台|晋江文学|全本免费畅读
 
-更新时间：2026-08-30 03:33:18
+更新时间：2026-08-31 03:34:25
 
 春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！
 
 - [春日书屋小说](https://www.shenyuanhg.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.shenyuanhg.com/book/7gie9ds/)
 - [发家致富小夫郎](https://www.shenyuanhg.com/book/7gie9dr/)
 - [身为人造人的我梦想是成为救世主](https://www.shenyuanhg.com/book/7gie8kn/)
 - [欢迎来到纳萨力克丧葬公司](https://www.shenyuanhg.com/book/7gie8kl/)
@@ -63,6 +64,7 @@
 - [我的烧烤摊超美味[美食]](https://www.shenyuanhg.com/book/7gie8g0/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.shenyuanhg.com/book/7gie38u/)
 - [我真的只会Ctrl啊！！！](https://www.shenyuanhg.com/book/7gidvfm/)
+- [养父](https://www.shenyuanhg.com/book/7gidv7e/)
 - [人妻O救赎指南](https://www.shenyuanhg.com/book/7gidv3r/)
 - [星际团宠小人鱼](https://www.shenyuanhg.com/book/7gido92/)
 - [灭世龙崽有什么错](https://www.shenyuanhg.com/book/7gidk7h/)
@@ -70,6 +72,7 @@
 - [神豪文男主是我爸](https://www.shenyuanhg.com/book/7gideh3/)
 - [在虫族世界逃命升级](https://www.shenyuanhg.com/book/7gidd5e/)
 - [趁她之危](https://www.shenyuanhg.com/book/7gidb53/)
+- [从维多利亚时代开始](https://www.shenyuanhg.com/book/7gid3gl/)
 - [我有特殊的升官技巧](https://www.shenyuanhg.com/book/7gid0k7/)
 - [反派人生，易如反掌[快穿]](https://www.shenyuanhg.com/book/7gictgf/)
 - [假少爷不想活了](https://www.shenyuanhg.com/book/7gict1j/)
@@ -81,7 +84,6 @@
 - [全球进化，而我保持不变](https://www.shenyuanhg.com/book/7gic1i3/)
 - [第一游侠[全息]](https://www.shenyuanhg.com/book/7gibvfg/)
 - [寄人篱下](https://www.shenyuanhg.com/book/7gibt1i/)
-- [万人嫌女配过分漂亮](https://www.shenyuanhg.com/book/7gibrjk/)
 - [绿叶](https://www.shenyuanhg.com/book/7gibq8i/)
 - [科学主义魔法学院](https://www.shenyuanhg.com/book/7gibpu0/)
 - [始皇闺女躺平失败的日子](https://www.shenyuanhg.com/book/7gibphs/)
@@ -120,7 +122,6 @@
 - [恋爱脑毁灭世界](https://www.shenyuanhg.com/book/7giakb2/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.shenyuanhg.com/book/7giaikq/)
 - [漫画配角的不平凡日常](https://www.shenyuanhg.com/book/7giah6o/)
-- [兽世种田撸狼首领](https://www.shenyuanhg.com/book/7giagt8/)
 - [重临巅峰[花滑]](https://www.shenyuanhg.com/book/7giafj9/)
 - [井闼山经理每天都被挖墙脚](https://www.shenyuanhg.com/book/7giaego/)
 - [当我cos了漫画if线主角](https://www.shenyuanhg.com/book/7giae5l/)
@@ -148,6 +149,7 @@
 - [绿茶病秧子骗他说喜欢](https://www.shenyuanhg.com/book/7gi9omi/)
 - [徐娘子的美食发家日常](https://www.shenyuanhg.com/book/7gi9nhs/)
 - [我真的没想在选秀炒CP](https://www.shenyuanhg.com/book/7gi9mve/)
+- [在医院旧楼捡到个外科鼻祖](https://www.shenyuanhg.com/book/7gi9khb/)
 - [把清冷权臣调成荡夫后](https://www.shenyuanhg.com/book/7gi9jh5/)
 - [[群穿]我在御兽番抢人气](https://www.shenyuanhg.com/book/7gi9g85/)
 - [日化人生[科研]](https://www.shenyuanhg.com/book/7gi8oc6/)

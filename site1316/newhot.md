@@ -1,27 +1,31 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-08-30 03:20:53
+更新时间：2026-08-31 03:22:06
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
 - [创意小说网](https://www.chuangyi1687.com/)
 
 ## 最新小说
+- [阿竹与野桃](https://www.chuangyi1687.com/book/1hvgov0/)
 - [井闼山经理每天都被挖墙脚](https://www.chuangyi1687.com/book/1hvgouu/)
-- [我的烧烤摊超美味[美食]](https://www.chuangyi1687.com/book/1hvgord/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.chuangyi1687.com/book/1hvgor5/)
+- [失而复得的白月光[快穿]](https://www.chuangyi1687.com/book/1hvgosl/)
 - [分手后与诱系妻子再度热恋](https://www.chuangyi1687.com/book/1hvgoqh/)
+- [[封神]圣人生欲](https://www.chuangyi1687.com/book/1hvgoq7/)
 - [星际团宠小人鱼](https://www.chuangyi1687.com/book/1hvgopt/)
 - [你，后室管理员](https://www.chuangyi1687.com/book/1hvgop8/)
 - [他要和我谈恋爱](https://www.chuangyi1687.com/book/1hvgop7/)
 - [高调装神，猥琐发育](https://www.chuangyi1687.com/book/1hvgooe/)
 - [纯爱宇智波基本恋爱法](https://www.chuangyi1687.com/book/1hvgojv/)
+- [直男咒术师的限制级游戏](https://www.chuangyi1687.com/book/1hvgojn/)
+- [某柯学的正义伙伴](https://www.chuangyi1687.com/book/1hve06a/)
+- [男朋友买一送一](https://www.chuangyi1687.com/book/1hvdjlf/)
 - [我有嘉宾](https://www.chuangyi1687.com/book/1hvdfa8/)
-- [漫画路人绑定系统后](https://www.chuangyi1687.com/book/5008cq/)
-- [一枝枝怨](https://www.chuangyi1687.com/book/4vvn1b/)
-- [老公是松散生命体](https://www.chuangyi1687.com/book/4vvljq/)
-- [多梦你一会儿](https://www.chuangyi1687.com/book/4vvakb/)
+- [寻真](https://www.chuangyi1687.com/book/1hvd37t/)
+- [沈助理又在隐藏他的超能力](https://www.chuangyi1687.com/book/500j2q/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.chuangyi1687.com/book/5009b5/)
+- [青空来信](https://www.chuangyi1687.com/book/4vvlbc/)
 - [[足球]罗蜜第一志愿](https://www.chuangyi1687.com/book/4vv7ka/)
 - [拯救世界从扮演反派开始](https://www.chuangyi1687.com/book/4vv7fs/)
 ## 相关内容

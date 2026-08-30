@@ -1,13 +1,14 @@
 
 # 看剧文学网 - 书友最值得收藏的小说阅读网
 
-更新时间：2026-08-30 03:26:45
+更新时间：2026-08-31 03:27:51
 
 看剧文学网，精选最好看的小说推荐给大家在线阅读。这里有网络小说大全，包括最火、最热门的小说最新章节，是书友最值得收藏的免费小说阅读网。
 
 - [看剧文学网](https://www.kanju788.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.kanju788.com/book/to4pag/)
 - [发家致富小夫郎](https://www.kanju788.com/book/to4kma/)
 - [卡尔蜜拉也能成为特利迦白月光？](https://www.kanju788.com/book/to4idu/)
 - [春归燕](https://www.kanju788.com/book/to4idt/)
@@ -65,9 +66,11 @@
 - [我真的只会Ctrl啊！！！](https://www.kanju788.com/book/to4g04/)
 - [灭世龙崽有什么错](https://www.kanju788.com/book/to48n1/)
 - [九零重组小家庭](https://www.kanju788.com/book/to46s2/)
+- [养父](https://www.kanju788.com/book/to46dk/)
 - [人妻O救赎指南](https://www.kanju788.com/book/to4691/)
 - [在虫族世界逃命升级](https://www.kanju788.com/book/to42af/)
 - [神豪文男主是我爸](https://www.kanju788.com/book/to41c6/)
+- [从维多利亚时代开始](https://www.kanju788.com/book/to3oms/)
 - [我有特殊的升官技巧](https://www.kanju788.com/book/to3lpa/)
 - [星际团宠小人鱼](https://www.kanju788.com/book/to3jnv/)
 - [十九世纪贵族厨房（美食）](https://www.kanju788.com/book/to3jme/)
@@ -82,7 +85,6 @@
 - [枕边热吻](https://www.kanju788.com/book/to2ih8/)
 - [九零首富的替嫁小媳妇](https://www.kanju788.com/book/to2i6g/)
 - [始皇闺女躺平失败的日子](https://www.kanju788.com/book/to2i2n/)
-- [万人嫌女配过分漂亮](https://www.kanju788.com/book/to2h8h/)
 - [误标记隔壁阿姨O之后](https://www.kanju788.com/book/to2dup/)
 - [为诡异打工，但反封建迷信](https://www.kanju788.com/book/to2d0n/)
 - [当我穿为龙傲天的情敌](https://www.kanju788.com/book/to2ak4/)
@@ -113,7 +115,6 @@
 - [万人迷今天也在风靡全世界[快穿]](https://www.kanju788.com/book/to1cek/)
 - [豪门前妻O总想诱我](https://www.kanju788.com/book/to1bub/)
 - [人在虫族，写文爆红](https://www.kanju788.com/book/to1bdv/)
-- [兽世种田撸狼首领](https://www.kanju788.com/book/to19u4/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.kanju788.com/book/to19ti/)
 - [恋爱脑毁灭世界](https://www.kanju788.com/book/to185r/)
 - [漫画配角的不平凡日常](https://www.kanju788.com/book/to173r/)
@@ -145,6 +146,7 @@
 - [绿茶病秧子骗他说喜欢](https://www.kanju788.com/book/to0fs1/)
 - [我真的没想在选秀炒CP](https://www.kanju788.com/book/to0cfa/)
 - [徐娘子的美食发家日常](https://www.kanju788.com/book/to0arc/)
+- [在医院旧楼捡到个外科鼻祖](https://www.kanju788.com/book/to0al5/)
 - [把清冷权臣调成荡夫后](https://www.kanju788.com/book/to09jl/)
 - [[群穿]我在御兽番抢人气](https://www.kanju788.com/book/to08js/)
 - [假少爷不想活了](https://www.kanju788.com/book/tnvdfj/)

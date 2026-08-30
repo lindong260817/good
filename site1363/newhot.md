@@ -1,13 +1,14 @@
 
 # 无瑕天涯在线书库 - 免费小说在线阅读
 
-更新时间：2026-08-30 03:38:44
+更新时间：2026-08-31 03:39:50
 
 无瑕天涯在线书库自2003年创立至今，致力于提供包括武侠、言情、科幻等多种类型的小说免费在线阅读服务。页面设计简洁，持续优化用户体验，旨在为读者带来更好的阅读享受。
 
 - [无瑕天涯书库](https://www.wuxia688.com/)
 
 ## 最新小说
+- [阿竹与野桃](https://www.wuxia688.com/book/2bjr3pp/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wuxia688.com/book/2bjr3nu/)
 - [我的烧烤摊超美味[美食]](https://www.wuxia688.com/book/2bjr3mc/)
 - [我有嘉宾](https://www.wuxia688.com/book/2bjqv37/)
@@ -15,23 +16,29 @@
 - [你，后室管理员](https://www.wuxia688.com/book/2bjq4ch/)
 - [星际团宠小人鱼](https://www.wuxia688.com/book/2bjq4bv/)
 - [高调装神，猥琐发育](https://www.wuxia688.com/book/2bjptcu/)
+- [男朋友买一送一](https://www.wuxia688.com/book/2bjpj0v/)
+- [失而复得的白月光[快穿]](https://www.wuxia688.com/book/2bjpdol/)
 - [如何正确哄睡暴君](https://www.wuxia688.com/book/2bjpaj1/)
-- [老公是松散生命体](https://www.wuxia688.com/book/2bjord5/)
+- [我不可能舔一个漂亮捞子](https://www.wuxia688.com/book/2bjp168/)
+- [寻真](https://www.wuxia688.com/book/2bjp161/)
 - [被鬼怪宠爱的漂亮书生](https://www.wuxia688.com/book/2bjoqvp/)
+- [沈助理又在隐藏他的超能力](https://www.wuxia688.com/book/2bjoq58/)
 - [微臣怜惜公主](https://www.wuxia688.com/book/2bjonss/)
 - [他要和我谈恋爱](https://www.wuxia688.com/book/2bjoh7v/)
-- [漫画路人绑定系统后](https://www.wuxia688.com/book/2bjob90/)
-- [战死的阿爹回来了[年代]](https://www.wuxia688.com/book/2bjo90j/)
-- [多梦你一会儿](https://www.wuxia688.com/book/2bjo8ke/)
-- [[足球]能不能好好模拟游戏](https://www.wuxia688.com/book/2bjo821/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.wuxia688.com/book/2bjobc0/)
+- [[封神]圣人生欲](https://www.wuxia688.com/book/2bjo8kt/)
+- [某柯学的正义伙伴](https://www.wuxia688.com/book/2bjo286/)
+- [青空来信](https://www.wuxia688.com/book/2bjo26v/)
 - [[足球]罗蜜第一志愿](https://www.wuxia688.com/book/2bjo1fd/)
-- [一枝枝怨](https://www.wuxia688.com/book/2bjntl0/)
 - [井闼山经理每天都被挖墙脚](https://www.wuxia688.com/book/2bjntbf/)
 - [[足球]小小鸟堂堂来袭](https://www.wuxia688.com/book/2bjnlm0/)
 - [好兄弟暴富后非要跟我结婚](https://www.wuxia688.com/book/2bjngui/)
+- [侯府打工人](https://www.wuxia688.com/book/2bjnfl0/)
 - [法外狂猫](https://www.wuxia688.com/book/2bjne6u/)
 - [关于我虚构了一个男友这件事](https://www.wuxia688.com/book/2bjnc8p/)
+- [契约情人](https://www.wuxia688.com/book/2bjnc26/)
 - [和室友他爸恋爱后](https://www.wuxia688.com/book/2bjn2ed/)
+- [直男咒术师的限制级游戏](https://www.wuxia688.com/book/2bjltog/)
 - [纯爱宇智波基本恋爱法](https://www.wuxia688.com/book/2bjltmg/)
 - [拯救世界从扮演反派开始](https://www.wuxia688.com/book/2bjlsds/)
 ## 相关内容

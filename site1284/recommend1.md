@@ -1,13 +1,14 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-08-30 03:29:14
+更新时间：2026-08-31 03:30:20
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
 - [爱你中文网](https://www.longjiangstone.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.longjiangstone.com/book/34b4o5/)
 - [发家致富小夫郎](https://www.longjiangstone.com/book/34b4o4/)
 - [婚后矜持](https://www.longjiangstone.com/book/34b4o2/)
 - [我们生活玩家是这样的](https://www.longjiangstone.com/book/34b4nv/)
@@ -68,6 +69,7 @@
 - [下潜一万米，海渊求生](https://www.longjiangstone.com/book/34b4jb/)
 - [阿竹与野桃](https://www.longjiangstone.com/book/34b4j4/)
 - [水管工[GB]](https://www.longjiangstone.com/book/34b4j2/)
+- [养父](https://www.longjiangstone.com/book/34b4iv/)
 - [九零首富的替嫁小媳妇](https://www.longjiangstone.com/book/34b4ib/)
 - [星际团宠小人鱼](https://www.longjiangstone.com/book/34b4hq/)
 - [十九世纪贵族厨房（美食）](https://www.longjiangstone.com/book/34b4gl/)
@@ -83,6 +85,7 @@
 - [灭世龙崽有什么错](https://www.longjiangstone.com/book/349hdc/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.longjiangstone.com/book/34941d/)
 - [九零重组小家庭](https://www.longjiangstone.com/book/3493hu/)
+- [从维多利亚时代开始](https://www.longjiangstone.com/book/348qbf/)
 - [我有特殊的升官技巧](https://www.longjiangstone.com/book/348nn7/)
 - [御兽师，我打工养你啊](https://www.longjiangstone.com/book/348llu/)
 - [反派人生，易如反掌[快穿]](https://www.longjiangstone.com/book/348kbp/)
@@ -100,7 +103,6 @@
 - [趁她之危](https://www.longjiangstone.com/book/347n34/)
 - [始皇闺女躺平失败的日子](https://www.longjiangstone.com/book/347hb8/)
 - [摄政王家的咸鱼夫郎](https://www.longjiangstone.com/book/347gcb/)
-- [万人嫌女配过分漂亮](https://www.longjiangstone.com/book/347fuo/)
 - [寄人篱下](https://www.longjiangstone.com/book/347fd1/)
 - [当我穿为龙傲天的情敌](https://www.longjiangstone.com/book/a3f1o/)
 - [全球进化，而我保持不变](https://www.longjiangstone.com/book/a3f1d/)
@@ -134,7 +136,6 @@
 - [恋爱脑毁灭世界](https://www.longjiangstone.com/book/a21v5/)
 - [你是我的根目录](https://www.longjiangstone.com/book/a21bo/)
 - [魔尊和仙帝共坠爱河之后](https://www.longjiangstone.com/book/a216c/)
-- [兽世种田撸狼首领](https://www.longjiangstone.com/book/a20js/)
 - [直男误入攻略天龙人游戏](https://www.longjiangstone.com/book/a1shs/)
 - [[综港影]野生情人出没地](https://www.longjiangstone.com/book/a1qvf/)
 - [穿越废星，我靠种田求生](https://www.longjiangstone.com/book/a1q7v/)
@@ -155,6 +156,7 @@
 - [绿茶病秧子骗他说喜欢](https://www.longjiangstone.com/book/a1gg0/)
 - [搭档，一起来玩求生游戏吧！](https://www.longjiangstone.com/book/a1g1h/)
 - [萩原警官的咒术大冒险](https://www.longjiangstone.com/book/a1fmv/)
+- [在医院旧楼捡到个外科鼻祖](https://www.longjiangstone.com/book/a1dv1/)
 - [把清冷权臣调成荡夫后](https://www.longjiangstone.com/book/a1cf7/)
 - [海岛求生：生活玩家种田囤货](https://www.longjiangstone.com/book/104eg/)
 - [我是唯一地上神国](https://www.longjiangstone.com/book/104ch/)

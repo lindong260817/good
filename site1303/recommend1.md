@@ -1,13 +1,14 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-08-30 03:30:40
+更新时间：2026-08-31 03:31:48
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。
 
 - [顶点中文免费阅读网](https://www.panyuplastic.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.panyuplastic.com/book/6h8ufus/)
 - [发家致富小夫郎](https://www.panyuplastic.com/book/6h8ufur/)
 - [万人嫌女配深陷修罗场](https://www.panyuplastic.com/book/6h8ufum/)
 - [渡鬼](https://www.panyuplastic.com/book/6h8ufuh/)
@@ -60,6 +61,7 @@
 - [痴情女配开始放手了（快穿）](https://www.panyuplastic.com/book/6h8ufrl/)
 - [[综英美]黄雨衣和纸袋头也可以加入正联吗](https://www.panyuplastic.com/book/6h8ufrk/)
 - [游戏boss们抢着要当我的猫[全息]](https://www.panyuplastic.com/book/6h8ufrj/)
+- [养父](https://www.panyuplastic.com/book/6h8ufrh/)
 - [星际团宠小人鱼](https://www.panyuplastic.com/book/6h8ufpt/)
 - [暴君偏头痛](https://www.panyuplastic.com/book/6h8ufp8/)
 - [假少爷不想活了](https://www.panyuplastic.com/book/6h8ufo2/)
@@ -99,9 +101,9 @@
 - [[娱乐圈]过分美丽的她](https://www.panyuplastic.com/book/6h8t5u4/)
 - [十福晋吃瓜日常(清穿)](https://www.panyuplastic.com/book/6h8t5s3/)
 - [古代种田养娃日常](https://www.panyuplastic.com/book/6h8t5s2/)
+- [在医院旧楼捡到个外科鼻祖](https://www.panyuplastic.com/book/6h8t5ps/)
 - [误标记隔壁阿姨O之后](https://www.panyuplastic.com/book/6h8t5nj/)
 - [老婆是恋爱脑女配](https://www.panyuplastic.com/book/6h8t5ni/)
-- [兽世种田撸狼首领](https://www.panyuplastic.com/book/6h8t5kd/)
 - [龙傲天他解锁宠妻系统](https://www.panyuplastic.com/book/6h8t5cj/)
 - [科学主义魔法学院](https://www.panyuplastic.com/book/6h8t5b0/)
 - [为诡异打工，但反封建迷信](https://www.panyuplastic.com/book/6h8t5av/)
@@ -158,7 +160,6 @@
 - [我有一座安全城](https://www.panyuplastic.com/book/6h8rlk6/)
 - [95美国贵族高中模拟](https://www.panyuplastic.com/book/6h8rlj5/)
 - [漫漫仙途](https://www.panyuplastic.com/book/6h8rlev/)
-- [万人嫌女配过分漂亮](https://www.panyuplastic.com/book/6h8rl98/)
 - [清澈女大的六零年代](https://www.panyuplastic.com/book/6h8rl50/)
 - [始皇闺女躺平失败的日子](https://www.panyuplastic.com/book/6h8rkas/)
 - [当我穿为龙傲天的情敌](https://www.panyuplastic.com/book/6h8rjtj/)
@@ -173,6 +174,7 @@
 - [你是我的根目录](https://www.panyuplastic.com/book/22uvg4/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.panyuplastic.com/book/6m9sj/)
 - [穿成炮灰后我封神了［快穿］](https://www.panyuplastic.com/book/6m9qr/)
+- [从维多利亚时代开始](https://www.panyuplastic.com/book/6m9nf/)
 - [我有特殊的升官技巧](https://www.panyuplastic.com/book/ldoo/)
 ## 相关内容
 - [README](/README.md)

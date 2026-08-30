@@ -1,7 +1,7 @@
 
 # 书社1687小说免费-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-08-30 03:34:33
+更新时间：2026-08-31 03:35:39
 
 书社1687小说免费提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏书社1687小说，享受便捷的小说阅读体验。
 
@@ -10,28 +10,35 @@
 ## 最新小说
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shushe1687.com/book/489gtas/)
 - [我的烧烤摊超美味[美食]](https://www.shushe1687.com/book/489gt94/)
+- [阿竹与野桃](https://www.shushe1687.com/book/489gt8s/)
 - [我有嘉宾](https://www.shushe1687.com/book/489gock/)
 - [星际团宠小人鱼](https://www.shushe1687.com/book/489fuk7/)
 - [你，后室管理员](https://www.shushe1687.com/book/489fui2/)
 - [分手后与诱系妻子再度热恋](https://www.shushe1687.com/book/489fufm/)
 - [高调装神，猥琐发育](https://www.shushe1687.com/book/489fnds/)
+- [男朋友买一送一](https://www.shushe1687.com/book/489fbrp/)
+- [失而复得的白月光[快穿]](https://www.shushe1687.com/book/489f770/)
 - [如何正确哄睡暴君](https://www.shushe1687.com/book/489f3st/)
-- [老公是松散生命体](https://www.shushe1687.com/book/489ekhh/)
+- [我不可能舔一个漂亮捞子](https://www.shushe1687.com/book/489epv2/)
+- [寻真](https://www.shushe1687.com/book/489ep61/)
+- [沈助理又在隐藏他的超能力](https://www.shushe1687.com/book/489em6a/)
 - [被鬼怪宠爱的漂亮书生](https://www.shushe1687.com/book/489ejae/)
 - [微臣怜惜公主](https://www.shushe1687.com/book/489eiie/)
 - [他要和我谈恋爱](https://www.shushe1687.com/book/489e8j8/)
-- [多梦你一会儿](https://www.shushe1687.com/book/489e4ge/)
-- [战死的阿爹回来了[年代]](https://www.shushe1687.com/book/489e3s4/)
-- [漫画路人绑定系统后](https://www.shushe1687.com/book/489e3mg/)
-- [[足球]能不能好好模拟游戏](https://www.shushe1687.com/book/489dvaq/)
+- [[封神]圣人生欲](https://www.shushe1687.com/book/489e3op/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.shushe1687.com/book/489e1sb/)
+- [青空来信](https://www.shushe1687.com/book/489dr0a/)
 - [[足球]罗蜜第一志愿](https://www.shushe1687.com/book/489dppr/)
+- [某柯学的正义伙伴](https://www.shushe1687.com/book/489dpaj/)
 - [井闼山经理每天都被挖墙脚](https://www.shushe1687.com/book/489donc/)
-- [一枝枝怨](https://www.shushe1687.com/book/489dnep/)
 - [[足球]小小鸟堂堂来袭](https://www.shushe1687.com/book/489dfs6/)
+- [侯府打工人](https://www.shushe1687.com/book/489d9i8/)
 - [好兄弟暴富后非要跟我结婚](https://www.shushe1687.com/book/489d95h/)
 - [法外狂猫](https://www.shushe1687.com/book/489d65a/)
+- [契约情人](https://www.shushe1687.com/book/489d3ea/)
 - [关于我虚构了一个男友这件事](https://www.shushe1687.com/book/489d2st/)
 - [和室友他爸恋爱后](https://www.shushe1687.com/book/489cudm/)
+- [直男咒术师的限制级游戏](https://www.shushe1687.com/book/489bnc9/)
 - [拯救世界从扮演反派开始](https://www.shushe1687.com/book/489bmpl/)
 - [纯爱宇智波基本恋爱法](https://www.shushe1687.com/book/489blvd/)
 ## 相关内容

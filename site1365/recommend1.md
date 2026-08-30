@@ -1,13 +1,14 @@
 
 # 书城读书网_免费小说在线阅读|无弹窗广告
 
-更新时间：2026-08-30 03:33:45
+更新时间：2026-08-31 03:34:52
 
 书城读书网是最热门的免费小说网站，提供包括玄幻、都市、言情等多种类型的小说在线阅读服务。这里不仅有最新章节的实时更新，还有全面的小说排行榜，让您轻松找到喜欢的作品。阅读体验极佳，全程无弹窗广告干扰，值得收藏！
 
 - [书城读书网](https://www.shucheng168.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.shucheng168.com/book/47fp4op/)
 - [发家致富小夫郎](https://www.shucheng168.com/book/47fp06l/)
 - [当织田作绑定魅魔系统](https://www.shucheng168.com/book/47fotsh/)
 - [私恋旧星](https://www.shucheng168.com/book/47fotsd/)
@@ -66,8 +67,10 @@
 - [灭世龙崽有什么错](https://www.shucheng168.com/book/47fokgr/)
 - [九零重组小家庭](https://www.shucheng168.com/book/47foiov/)
 - [人妻O救赎指南](https://www.shucheng168.com/book/47fohi0/)
+- [养父](https://www.shucheng168.com/book/47fohgk/)
 - [在虫族世界逃命升级](https://www.shucheng168.com/book/47fodup/)
 - [神豪文男主是我爸](https://www.shucheng168.com/book/47foda1/)
+- [从维多利亚时代开始](https://www.shucheng168.com/book/47fo4fs/)
 - [我有特殊的升官技巧](https://www.shucheng168.com/book/47fo1ii/)
 - [星际团宠小人鱼](https://www.shucheng168.com/book/47fnukd/)
 - [十九世纪贵族厨房（美食）](https://www.shucheng168.com/book/47fnudm/)
@@ -82,7 +85,6 @@
 - [始皇闺女躺平失败的日子](https://www.shucheng168.com/book/47fmtlm/)
 - [我写小说纯粹为了赚钱](https://www.shucheng168.com/book/47fmthm/)
 - [寄人篱下](https://www.shucheng168.com/book/47fmt3q/)
-- [万人嫌女配过分漂亮](https://www.shucheng168.com/book/47fmsu3/)
 - [为诡异打工，但反封建迷信](https://www.shucheng168.com/book/47fmpp5/)
 - [误标记隔壁阿姨O之后](https://www.shucheng168.com/book/47fmogh/)
 - [不当救世主就要当人类恶了吗](https://www.shucheng168.com/book/47fmmhn/)
@@ -113,7 +115,6 @@
 - [豪门前妻O总想诱我](https://www.shucheng168.com/book/47flo96/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.shucheng168.com/book/47flnq5/)
 - [井闼山经理每天都被挖墙脚](https://www.shucheng168.com/book/47fln3k/)
-- [兽世种田撸狼首领](https://www.shucheng168.com/book/47fllos/)
 - [恋爱脑毁灭世界](https://www.shucheng168.com/book/47fll62/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.shucheng168.com/book/47flks5/)
 - [漫画配角的不平凡日常](https://www.shucheng168.com/book/47fljla/)
@@ -145,6 +146,7 @@
 - [绿茶病秧子骗他说喜欢](https://www.shucheng168.com/book/47fkrm9/)
 - [徐娘子的美食发家日常](https://www.shucheng168.com/book/47fko5v/)
 - [我真的没想在选秀炒CP](https://www.shucheng168.com/book/47fknf3/)
+- [在医院旧楼捡到个外科鼻祖](https://www.shucheng168.com/book/47fklql/)
 - [把清冷权臣调成荡夫后](https://www.shucheng168.com/book/47fkk3t/)
 - [[群穿]我在御兽番抢人气](https://www.shucheng168.com/book/47fkjo2/)
 - [成为养成系练习生后](https://www.shucheng168.com/book/47fjomf/)

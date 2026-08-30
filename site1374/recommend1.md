@@ -1,7 +1,7 @@
 
 # 看居中文网_免费小说在线阅读|无弹窗广告值得收藏
 
-更新时间：2026-08-30 03:26:30
+更新时间：2026-08-31 03:27:37
 
 看居中文网是最热门的免费小说网站，提供包括但不限于玄幻、都市、言情等多种类型的小说在线阅读服务。本站实时更新小说最新章节列表，拥有全面的小说排行榜，致力于为读者提供一个干净舒适的阅读环境，无弹窗广告干扰，是您寻找好书的理想之地。
 
@@ -113,7 +113,6 @@
 - [万人迷今天也在风靡全世界[快穿]](https://www.kanju688.com/book/pasq7d/)
 - [豪门前妻O总想诱我](https://www.kanju688.com/book/paspvv/)
 - [人在虫族，写文爆红](https://www.kanju688.com/book/paso4a/)
-- [兽世种田撸狼首领](https://www.kanju688.com/book/pasnq3/)
 - [恋爱脑毁灭世界](https://www.kanju688.com/book/pasmuf/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.kanju688.com/book/pasmk8/)
 - [漫漫仙途](https://www.kanju688.com/book/paskqm/)

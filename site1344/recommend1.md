@@ -1,7 +1,7 @@
 
 # 国威御林小说_国威御林小说小说在线阅读
 
-更新时间：2026-08-30 03:23:45
+更新时间：2026-08-31 03:24:55
 
 国威御林小说是拥有海量的完结全本小说作品, 提供热门小说排行榜免费在线阅读, 每日更新言情、都市、穿越、青春、悬疑等作品连载。
 
@@ -120,7 +120,6 @@
 - [豪门前妻O总想诱我](https://www.guoweiyulin.com/book/360mclp/)
 - [漫画配角的不平凡日常](https://www.guoweiyulin.com/book/360mbuo/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.guoweiyulin.com/book/360m9ie/)
-- [兽世种田撸狼首领](https://www.guoweiyulin.com/book/360m99l/)
 - [魔尊和仙帝共坠爱河之后](https://www.guoweiyulin.com/book/360m90e/)
 - [漫漫仙途](https://www.guoweiyulin.com/book/360m8bf/)
 - [当我cos了漫画if线主角](https://www.guoweiyulin.com/book/360m7ta/)
