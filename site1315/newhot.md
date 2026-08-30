@@ -1,27 +1,31 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-08-30 03:28:38
+更新时间：2026-08-31 03:29:44
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
 - [连载小说网](https://www.lianzai007.com/)
 
 ## 最新小说
+- [失而复得的白月光[快穿]](https://www.lianzai007.com/book/6g3n1h2/)
+- [阿竹与野桃](https://www.lianzai007.com/book/6g3n1gc/)
 - [井闼山经理每天都被挖墙脚](https://www.lianzai007.com/book/6g3n1g6/)
-- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.lianzai007.com/book/6g3n1fp/)
-- [我的烧烤摊超美味[美食]](https://www.lianzai007.com/book/6g3n1f9/)
+- [[封神]圣人生欲](https://www.lianzai007.com/book/6g3n1ej/)
 - [星际团宠小人鱼](https://www.lianzai007.com/book/6g3n1eg/)
 - [分手后与诱系妻子再度热恋](https://www.lianzai007.com/book/6g3n1e5/)
 - [你，后室管理员](https://www.lianzai007.com/book/6g3n1d5/)
 - [他要和我谈恋爱](https://www.lianzai007.com/book/6g3n1cr/)
 - [高调装神，猥琐发育](https://www.lianzai007.com/book/6g3n1cj/)
 - [纯爱宇智波基本恋爱法](https://www.lianzai007.com/book/6g3n1c3/)
+- [直男咒术师的限制级游戏](https://www.lianzai007.com/book/6g3n1ad/)
+- [某柯学的正义伙伴](https://www.lianzai007.com/book/6g3k8h6/)
+- [男朋友买一送一](https://www.lianzai007.com/book/6g3jtk9/)
 - [我有嘉宾](https://www.lianzai007.com/book/6g3jl8b/)
-- [漫画路人绑定系统后](https://www.lianzai007.com/book/kq0rne/)
-- [老公是松散生命体](https://www.lianzai007.com/book/kq09km/)
-- [一枝枝怨](https://www.lianzai007.com/book/kq099g/)
-- [多梦你一会儿](https://www.lianzai007.com/book/kpvtdh/)
+- [寻真](https://www.lianzai007.com/book/6g3jb80/)
+- [沈助理又在隐藏他的超能力](https://www.lianzai007.com/book/kq16tu/)
+- [[综武侠]万人迷小姐想要富贵荣华](https://www.lianzai007.com/book/kq0svm/)
+- [青空来信](https://www.lianzai007.com/book/kq0bb2/)
 - [拯救世界从扮演反派开始](https://www.lianzai007.com/book/kpvsqs/)
 - [[足球]罗蜜第一志愿](https://www.lianzai007.com/book/kpvrdj/)
 ## 相关内容

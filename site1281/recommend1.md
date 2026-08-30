@@ -1,7 +1,7 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-08-30 03:19:50
+更新时间：2026-08-31 03:21:05
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。
 
@@ -135,7 +135,6 @@
 - [恋爱脑毁灭世界](https://www.bianlishihao.com/book/9io2ka/)
 - [魔尊和仙帝共坠爱河之后](https://www.bianlishihao.com/book/9io1fb/)
 - [直男误入攻略天龙人游戏](https://www.bianlishihao.com/book/9invim/)
-- [兽世种田撸狼首领](https://www.bianlishihao.com/book/9inv2t/)
 - [[综港影]野生情人出没地](https://www.bianlishihao.com/book/9inre9/)
 - [穿越废星，我靠种田求生](https://www.bianlishihao.com/book/9inppi/)
 - [八零恶毒后妈杀疯了](https://www.bianlishihao.com/book/9inns2/)

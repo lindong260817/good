@@ -1,7 +1,7 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-08-30 03:21:11
+更新时间：2026-08-31 03:22:23
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
@@ -135,7 +135,6 @@
 - [恋爱脑毁灭世界](https://www.cialisgs.com/book/qiqca7/)
 - [魔尊和仙帝共坠爱河之后](https://www.cialisgs.com/book/qiq94u/)
 - [直男误入攻略天龙人游戏](https://www.cialisgs.com/book/qiq80b/)
-- [兽世种田撸狼首领](https://www.cialisgs.com/book/qiq6mj/)
 - [[综港影]野生情人出没地](https://www.cialisgs.com/book/qiq3hi/)
 - [穿越废星，我靠种田求生](https://www.cialisgs.com/book/qiq39f/)
 - [八零恶毒后妈杀疯了](https://www.cialisgs.com/book/qiq2vt/)

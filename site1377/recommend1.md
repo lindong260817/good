@@ -1,13 +1,14 @@
 
 # 牛魔王JJ电子书 - 小说阅读网, 全本免费完结小说在线阅读及下载
 
-更新时间：2026-08-30 03:30:14
+更新时间：2026-08-31 03:31:21
 
 牛魔王JJ电子书提供精彩小说阅读服务，包括各种类型的小说排行榜、免费好看的小说等。涵盖穿越小说、都市小说、言情小说、玄幻小说等多种类别，支持全本全集完结小说在线阅读以及TXT下载。
 
 - [牛魔王JJ电子书](https://www.nmwjj.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.nmwjj.com/book/18cj87r/)
 - [发家致富小夫郎](https://www.nmwjj.com/book/18cj2f7/)
 - [九零重组小家庭](https://www.nmwjj.com/book/18ciu2b/)
 - [游戏角色想和玩家谈恋爱](https://www.nmwjj.com/book/18citq8/)
@@ -66,8 +67,10 @@
 - [在虫族世界逃命升级](https://www.nmwjj.com/book/18ciqp6/)
 - [神豪文男主是我爸](https://www.nmwjj.com/book/18cipl0/)
 - [我真的只会Ctrl啊！！！](https://www.nmwjj.com/book/18cinuf/)
+- [从维多利亚时代开始](https://www.nmwjj.com/book/18cihc3/)
 - [我有特殊的升官技巧](https://www.nmwjj.com/book/18cielu/)
 - [反派人生，易如反掌[快穿]](https://www.nmwjj.com/book/18cib4g/)
+- [养父](https://www.nmwjj.com/book/18ci35u/)
 - [人妻O救赎指南](https://www.nmwjj.com/book/18ci35m/)
 - [摄政王家的咸鱼夫郎](https://www.nmwjj.com/book/18chm7q/)
 - [绿叶](https://www.nmwjj.com/book/18chllh/)
@@ -78,7 +81,6 @@
 - [科学主义魔法学院](https://www.nmwjj.com/book/18che0n/)
 - [寄人篱下](https://www.nmwjj.com/book/18chdtp/)
 - [始皇闺女躺平失败的日子](https://www.nmwjj.com/book/18chb3p/)
-- [万人嫌女配过分漂亮](https://www.nmwjj.com/book/18chaed/)
 - [误标记隔壁阿姨O之后](https://www.nmwjj.com/book/18ch96i/)
 - [不当救世主就要当人类恶了吗](https://www.nmwjj.com/book/18ch6s7/)
 - [十福晋吃瓜日常(清穿)](https://www.nmwjj.com/book/18ch6bn/)
@@ -108,7 +110,6 @@
 - [万人迷今天也在风靡全世界[快穿]](https://www.nmwjj.com/book/18cg6e5/)
 - [青城玩家明明超强却过分谨慎](https://www.nmwjj.com/book/18cg33t/)
 - [漫画配角的不平凡日常](https://www.nmwjj.com/book/18cg2ik/)
-- [兽世种田撸狼首领](https://www.nmwjj.com/book/18cg1io/)
 - [恋爱脑毁灭世界](https://www.nmwjj.com/book/18cg1gb/)
 - [重临巅峰[花滑]](https://www.nmwjj.com/book/18cfvdv/)
 - [漫漫仙途](https://www.nmwjj.com/book/18cfv35/)
@@ -139,6 +140,7 @@
 - [把清冷权臣调成荡夫后](https://www.nmwjj.com/book/18cf6ll/)
 - [我真的没想在选秀炒CP](https://www.nmwjj.com/book/18cf3qs/)
 - [欢迎来到纳萨力克丧葬公司](https://www.nmwjj.com/book/18cf3f0/)
+- [在医院旧楼捡到个外科鼻祖](https://www.nmwjj.com/book/18cf2h8/)
 - [[群穿]我在御兽番抢人气](https://www.nmwjj.com/book/18cf0tg/)
 - [我，恶女，在线搞事](https://www.nmwjj.com/book/18cf03e/)
 - [为诡异打工，但反封建迷信](https://www.nmwjj.com/book/18ce68a/)

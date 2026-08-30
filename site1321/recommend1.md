@@ -1,13 +1,14 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-08-30 03:22:28
+更新时间：2026-08-31 03:23:39
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
 - [读者香书小说](https://www.duzhe888.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.duzhe888.com/book/2koepe6/)
 - [发家致富小夫郎](https://www.duzhe888.com/book/2koepe5/)
 - [[足球]顶级名帅](https://www.duzhe888.com/book/2koepe2/)
 - [青城玩家明明超强却过分谨慎](https://www.duzhe888.com/book/2koepdv/)
@@ -68,6 +69,7 @@
 - [渡鬼](https://www.duzhe888.com/book/2koep98/)
 - [太子哥哥不想当哥哥](https://www.duzhe888.com/book/2koep97/)
 - [[希腊神话]诸神都是我学生](https://www.duzhe888.com/book/2koep94/)
+- [养父](https://www.duzhe888.com/book/2koep90/)
 - [星际团宠小人鱼](https://www.duzhe888.com/book/2koep8p/)
 - [十九世纪贵族厨房（美食）](https://www.duzhe888.com/book/2koep77/)
 - [九零首富的替嫁小媳妇](https://www.duzhe888.com/book/2koep71/)
@@ -83,6 +85,7 @@
 - [九零重组小家庭](https://www.duzhe888.com/book/2kocuum/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.duzhe888.com/book/2kocor0/)
 - [灭世龙崽有什么错](https://www.duzhe888.com/book/2kocnol/)
+- [从维多利亚时代开始](https://www.duzhe888.com/book/2kocdco/)
 - [我有特殊的升官技巧](https://www.duzhe888.com/book/2kocaq7/)
 - [御兽师，我打工养你啊](https://www.duzhe888.com/book/2koc8t2/)
 - [反派人生，易如反掌[快穿]](https://www.duzhe888.com/book/2koc7aj/)
@@ -99,7 +102,6 @@
 - [第一游侠[全息]](https://www.duzhe888.com/book/2koba2q/)
 - [人妻O救赎指南](https://www.duzhe888.com/book/2kob97v/)
 - [摄政王家的咸鱼夫郎](https://www.duzhe888.com/book/2kob7dg/)
-- [万人嫌女配过分漂亮](https://www.duzhe888.com/book/2kob5cj/)
 - [始皇闺女躺平失败的日子](https://www.duzhe888.com/book/2kob438/)
 - [寄人篱下](https://www.duzhe888.com/book/2kob3bn/)
 - [全球进化，而我保持不变](https://www.duzhe888.com/book/2kob1ns/)
@@ -134,7 +136,6 @@
 - [恋爱脑毁灭世界](https://www.duzhe888.com/book/8f8sjp/)
 - [重临巅峰[花滑]](https://www.duzhe888.com/book/8f8s0e/)
 - [魔尊和仙帝共坠爱河之后](https://www.duzhe888.com/book/8f8qif/)
-- [兽世种田撸狼首领](https://www.duzhe888.com/book/8f8ltr/)
 - [直男误入攻略天龙人游戏](https://www.duzhe888.com/book/8f8ldh/)
 - [穿越废星，我靠种田求生](https://www.duzhe888.com/book/8f8ju1/)
 - [[综港影]野生情人出没地](https://www.duzhe888.com/book/8f8jjt/)
@@ -155,6 +156,7 @@
 - [我真的没想在选秀炒CP](https://www.duzhe888.com/book/8f885r/)
 - [绿茶病秧子骗他说喜欢](https://www.duzhe888.com/book/8f87ua/)
 - [徐娘子的美食发家日常](https://www.duzhe888.com/book/8f87rs/)
+- [在医院旧楼捡到个外科鼻祖](https://www.duzhe888.com/book/8f85hk/)
 - [把清冷权臣调成荡夫后](https://www.duzhe888.com/book/8f85fh/)
 - [如何扮演源氏重宝](https://www.duzhe888.com/book/r404c/)
 - [猫猫也要养家糊口](https://www.duzhe888.com/book/r3vsf/)

@@ -1,13 +1,14 @@
 
 # 三三言情小说 - 全本网文免费阅读, 最新最热言情故事
 
-更新时间：2026-08-30 03:42:32
+更新时间：2026-08-31 03:43:38
 
 三三言情小说为您提供海量全本完结的言情小说资源，在这里您可以免费在线阅读最新、最受欢迎的爱情故事。无论您是喜欢经典还是追求潮流的新作，我们都有丰富的选择等待着您来探索。
 
 - [三三言情小说](https://www.zhaoxingangjiegou.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.zhaoxingangjiegou.com/book/1duot28/)
 - [发家致富小夫郎](https://www.zhaoxingangjiegou.com/book/1duot27/)
 - [我夫君怎会是龙傲天？](https://www.zhaoxingangjiegou.com/book/1duot22/)
 - [影帝今天分手了吗[娱乐圈]](https://www.zhaoxingangjiegou.com/book/1duot21/)
@@ -68,6 +69,7 @@
 - [师姐她怎么还不来追求我](https://www.zhaoxingangjiegou.com/book/1duost7/)
 - [下潜一万米，海渊求生](https://www.zhaoxingangjiegou.com/book/1duost5/)
 - [昼色清明](https://www.zhaoxingangjiegou.com/book/1duost4/)
+- [养父](https://www.zhaoxingangjiegou.com/book/1duost2/)
 - [十九世纪贵族厨房（美食）](https://www.zhaoxingangjiegou.com/book/1duossb/)
 - [星际团宠小人鱼](https://www.zhaoxingangjiegou.com/book/1duoss5/)
 - [九零首富的替嫁小媳妇](https://www.zhaoxingangjiegou.com/book/1duosrq/)
@@ -83,6 +85,7 @@
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.zhaoxingangjiegou.com/book/1dunbt6/)
 - [九零重组小家庭](https://www.zhaoxingangjiegou.com/book/1dunb4k/)
 - [灭世龙崽有什么错](https://www.zhaoxingangjiegou.com/book/1dun90r/)
+- [从维多利亚时代开始](https://www.zhaoxingangjiegou.com/book/1dumghs/)
 - [我有特殊的升官技巧](https://www.zhaoxingangjiegou.com/book/1dumdpv/)
 - [御兽师，我打工养你啊](https://www.zhaoxingangjiegou.com/book/1dumbmc/)
 - [反派人生，易如反掌[快穿]](https://www.zhaoxingangjiegou.com/book/1dumac4/)
@@ -101,7 +104,6 @@
 - [摄政王家的咸鱼夫郎](https://www.zhaoxingangjiegou.com/book/1dulbmq/)
 - [始皇闺女躺平失败的日子](https://www.zhaoxingangjiegou.com/book/1dula15/)
 - [寄人篱下](https://www.zhaoxingangjiegou.com/book/1dul8gc/)
-- [万人嫌女配过分漂亮](https://www.zhaoxingangjiegou.com/book/1dul7ml/)
 - [全球进化，而我保持不变](https://www.zhaoxingangjiegou.com/book/1dul61a/)
 - [当我穿为龙傲天的情敌](https://www.zhaoxingangjiegou.com/book/1dul5ne/)
 - [不当救世主就要当人类恶了吗](https://www.zhaoxingangjiegou.com/book/4j4n7c/)
@@ -134,7 +136,6 @@
 - [恋爱脑毁灭世界](https://www.zhaoxingangjiegou.com/book/4j3f6u/)
 - [魔尊和仙帝共坠爱河之后](https://www.zhaoxingangjiegou.com/book/4j3f19/)
 - [你是我的根目录](https://www.zhaoxingangjiegou.com/book/4j3en3/)
-- [兽世种田撸狼首领](https://www.zhaoxingangjiegou.com/book/4j3b26/)
 - [直男误入攻略天龙人游戏](https://www.zhaoxingangjiegou.com/book/4j3986/)
 - [八零恶毒后妈杀疯了](https://www.zhaoxingangjiegou.com/book/4j370d/)
 - [穿越废星，我靠种田求生](https://www.zhaoxingangjiegou.com/book/4j362s/)
@@ -156,6 +157,7 @@
 - [搭档，一起来玩求生游戏吧！](https://www.zhaoxingangjiegou.com/book/4j2r1t/)
 - [绿茶病秧子骗他说喜欢](https://www.zhaoxingangjiegou.com/book/4j2pul/)
 - [把清冷权臣调成荡夫后](https://www.zhaoxingangjiegou.com/book/4j2oj6/)
+- [在医院旧楼捡到个外科鼻祖](https://www.zhaoxingangjiegou.com/book/4j2ng6/)
 - [95美国贵族高中模拟](https://www.zhaoxingangjiegou.com/book/emlof/)
 - [猫猫也要养家糊口](https://www.zhaoxingangjiegou.com/book/emlmo/)
 - [如何扮演源氏重宝](https://www.zhaoxingangjiegou.com/book/emllr/)

@@ -1,13 +1,14 @@
 
 # 阅读大文学 - 弘扬华夏文化的综合小说阅读平台
 
-更新时间：2026-08-30 03:41:26
+更新时间：2026-08-31 03:42:34
 
 阅读大文学致力于弘扬华夏文化，提供丰富的小说资源供免费阅读，涵盖但不限于古典文学、现代文学、当代文学及各类流行小说如言情、都市、玄幻等。
 
 - [阅读大文学](https://www.yuedu188.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.yuedu188.com/book/1egrdcf/)
 - [发家致富小夫郎](https://www.yuedu188.com/book/1egr8pi/)
 - [游戏boss们抢着要当我的猫[全息]](https://www.yuedu188.com/book/1egr6el/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yuedu188.com/book/1egr6ei/)
@@ -65,9 +66,11 @@
 - [我真的只会Ctrl啊！！！](https://www.yuedu188.com/book/1egr3v6/)
 - [灭世龙崽有什么错](https://www.yuedu188.com/book/1egqsnc/)
 - [九零重组小家庭](https://www.yuedu188.com/book/1egqqn6/)
+- [养父](https://www.yuedu188.com/book/1egqqj9/)
 - [人妻O救赎指南](https://www.yuedu188.com/book/1egqqj8/)
 - [在虫族世界逃命升级](https://www.yuedu188.com/book/1egqm2b/)
 - [神豪文男主是我爸](https://www.yuedu188.com/book/1egql9b/)
+- [从维多利亚时代开始](https://www.yuedu188.com/book/1egqcg2/)
 - [我有特殊的升官技巧](https://www.yuedu188.com/book/1egq9eo/)
 - [星际团宠小人鱼](https://www.yuedu188.com/book/1egq7tn/)
 - [十九世纪贵族厨房（美食）](https://www.yuedu188.com/book/1egq7re/)
@@ -77,7 +80,6 @@
 - [第一游侠[全息]](https://www.yuedu188.com/book/1egpak6/)
 - [绿叶](https://www.yuedu188.com/book/1egp8p5/)
 - [全球进化，而我保持不变](https://www.yuedu188.com/book/1egp8ki/)
-- [万人嫌女配过分漂亮](https://www.yuedu188.com/book/1egp7os/)
 - [寄人篱下](https://www.yuedu188.com/book/1egp7k7/)
 - [枕边热吻](https://www.yuedu188.com/book/1egp7bh/)
 - [始皇闺女躺平失败的日子](https://www.yuedu188.com/book/1egp79v/)
@@ -115,7 +117,6 @@
 - [豪门前妻O总想诱我](https://www.yuedu188.com/book/4ktq8v/)
 - [恋爱脑毁灭世界](https://www.yuedu188.com/book/4ktpor/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.yuedu188.com/book/4kto2b/)
-- [兽世种田撸狼首领](https://www.yuedu188.com/book/4ktnv4/)
 - [漫画配角的不平凡日常](https://www.yuedu188.com/book/4ktmdb/)
 - [魔尊和仙帝共坠爱河之后](https://www.yuedu188.com/book/4ktm4t/)
 - [漫漫仙途](https://www.yuedu188.com/book/4ktkmk/)
@@ -147,6 +148,7 @@
 - [我真的没想在选秀炒CP](https://www.yuedu188.com/book/4ksq3c/)
 - [[群穿]我在御兽番抢人气](https://www.yuedu188.com/book/4ksp9p/)
 - [把清冷权臣调成荡夫后](https://www.yuedu188.com/book/4ksnsk/)
+- [在医院旧楼捡到个外科鼻祖](https://www.yuedu188.com/book/4ksnal/)
 - [五十年代港城日常](https://www.yuedu188.com/book/esfc6/)
 - [古代种田养娃日常](https://www.yuedu188.com/book/esfbf/)
 - [全民求生:从小木屋到魔法农场](https://www.yuedu188.com/book/esfaf/)

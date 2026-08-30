@@ -1,13 +1,14 @@
 
 # 书城小说网 - 全站免费无弹窗小说阅读平台
 
-更新时间：2026-08-30 03:34:00
+更新时间：2026-08-31 03:35:07
 
 书城小说网为您提供全站免费的小说阅读服务，支持全本小说在线浏览，承诺全程无广告弹窗干扰，是您理想的网络文学阅读选择。
 
 - [书城小说网](https://www.shucheng518.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.shucheng518.com/book/39m3ih0/)
 - [发家致富小夫郎](https://www.shucheng518.com/book/39m3du1/)
 - [水管工[GB]](https://www.shucheng518.com/book/39m3blt/)
 - [下潜一万米，海渊求生](https://www.shucheng518.com/book/39m3blr/)
@@ -66,8 +67,10 @@
 - [灭世龙崽有什么错](https://www.shucheng518.com/book/39m320f/)
 - [九零重组小家庭](https://www.shucheng518.com/book/39m3092/)
 - [人妻O救赎指南](https://www.shucheng518.com/book/39m2vjf/)
+- [养父](https://www.shucheng518.com/book/39m2vi4/)
 - [在虫族世界逃命升级](https://www.shucheng518.com/book/39m2rdl/)
 - [神豪文男主是我爸](https://www.shucheng518.com/book/39m2qoj/)
+- [从维多利亚时代开始](https://www.shucheng518.com/book/39m2i10/)
 - [我有特殊的升官技巧](https://www.shucheng518.com/book/39m2esn/)
 - [星际团宠小人鱼](https://www.shucheng518.com/book/39m2crj/)
 - [十九世纪贵族厨房（美食）](https://www.shucheng518.com/book/39m2cms/)
@@ -81,7 +84,6 @@
 - [枕边热吻](https://www.shucheng518.com/book/39m1bu2/)
 - [我写小说纯粹为了赚钱](https://www.shucheng518.com/book/39m1brt/)
 - [九零首富的替嫁小媳妇](https://www.shucheng518.com/book/39m1bh5/)
-- [万人嫌女配过分漂亮](https://www.shucheng518.com/book/39m1b0u/)
 - [始皇闺女躺平失败的日子](https://www.shucheng518.com/book/39m1ala/)
 - [为诡异打工，但反封建迷信](https://www.shucheng518.com/book/39m16mn/)
 - [误标记隔壁阿姨O之后](https://www.shucheng518.com/book/39m16le/)
@@ -114,7 +116,6 @@
 - [井闼山经理每天都被挖墙脚](https://www.shucheng518.com/book/39m0637/)
 - [豪门前妻O总想诱我](https://www.shucheng518.com/book/39m04fm/)
 - [网骗少年漫男主后，他哭着喊我老婆](https://www.shucheng518.com/book/39m02q5/)
-- [兽世种田撸狼首领](https://www.shucheng518.com/book/39m02k6/)
 - [恋爱脑毁灭世界](https://www.shucheng518.com/book/39m026l/)
 - [漫漫仙途](https://www.shucheng518.com/book/39m0147/)
 - [漫画配角的不平凡日常](https://www.shucheng518.com/book/39m00vv/)
@@ -147,6 +148,7 @@
 - [我真的没想在选秀炒CP](https://www.shucheng518.com/book/39lv6g4/)
 - [把清冷权臣调成荡夫后](https://www.shucheng518.com/book/39lv36c/)
 - [[群穿]我在御兽番抢人气](https://www.shucheng518.com/book/39lv35h/)
+- [在医院旧楼捡到个外科鼻祖](https://www.shucheng518.com/book/39lv1vu/)
 - [假少爷不想活了](https://www.shucheng518.com/book/39lu6oa/)
 - [日化人生[科研]](https://www.shucheng518.com/book/39lu6n1/)
 - [高嫁之后](https://www.shucheng518.com/book/39lu6f5/)

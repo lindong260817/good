@@ -1,13 +1,14 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-08-30 03:41:41
+更新时间：2026-08-31 03:42:48
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
 - [阅读小说网](https://www.yuedu687.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.yuedu687.com/book/2bu5iu9/)
 - [发家致富小夫郎](https://www.yuedu687.com/book/2bu5iu8/)
 - [凤凰男就该窝里下蛋](https://www.yuedu687.com/book/2bu5iu0/)
 - [异种新婚报告](https://www.yuedu687.com/book/2bu5itv/)
@@ -68,6 +69,7 @@
 - [败类游戏](https://www.yuedu687.com/book/2bu5ipd/)
 - [深渊if，从染血骑士迪卢克开始[原神]](https://www.yuedu687.com/book/2bu5ipa/)
 - [我夫君怎会是龙傲天？](https://www.yuedu687.com/book/2bu5ip8/)
+- [养父](https://www.yuedu687.com/book/2bu5ip3/)
 - [九零首富的替嫁小媳妇](https://www.yuedu687.com/book/2bu5iob/)
 - [十九世纪贵族厨房（美食）](https://www.yuedu687.com/book/2bu5ioa/)
 - [星际团宠小人鱼](https://www.yuedu687.com/book/2bu5ink/)
@@ -83,6 +85,7 @@
 - [九零重组小家庭](https://www.yuedu687.com/book/2bu43ua/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.yuedu687.com/book/2bu40v1/)
 - [灭世龙崽有什么错](https://www.yuedu687.com/book/2bu3k30/)
+- [从维多利亚时代开始](https://www.yuedu687.com/book/2bu38ve/)
 - [我有特殊的升官技巧](https://www.yuedu687.com/book/2bu36e8/)
 - [御兽师，我打工养你啊](https://www.yuedu687.com/book/2bu340i/)
 - [反派人生，易如反掌[快穿]](https://www.yuedu687.com/book/2bu32nu/)
@@ -101,7 +104,6 @@
 - [摄政王家的咸鱼夫郎](https://www.yuedu687.com/book/2bu213o/)
 - [始皇闺女躺平失败的日子](https://www.yuedu687.com/book/2bu1uug/)
 - [寄人篱下](https://www.yuedu687.com/book/2bu1u8r/)
-- [万人嫌女配过分漂亮](https://www.yuedu687.com/book/2bu1s7k/)
 - [当我穿为龙傲天的情敌](https://www.yuedu687.com/book/7j2s8k/)
 - [全球进化，而我保持不变](https://www.yuedu687.com/book/7j2rn1/)
 - [不当救世主就要当人类恶了吗](https://www.yuedu687.com/book/7j2po2/)
@@ -134,7 +136,6 @@
 - [魔尊和仙帝共坠爱河之后](https://www.yuedu687.com/book/7j1g2n/)
 - [恋爱脑毁灭世界](https://www.yuedu687.com/book/7j1fj4/)
 - [你是我的根目录](https://www.yuedu687.com/book/7j1f40/)
-- [兽世种田撸狼首领](https://www.yuedu687.com/book/7j1ebq/)
 - [[综港影]野生情人出没地](https://www.yuedu687.com/book/7j1bps/)
 - [直男误入攻略天龙人游戏](https://www.yuedu687.com/book/7j19ro/)
 - [八零恶毒后妈杀疯了](https://www.yuedu687.com/book/7j17rv/)
@@ -156,6 +157,7 @@
 - [把清冷权臣调成荡夫后](https://www.yuedu687.com/book/7j0t1d/)
 - [绿茶病秧子骗他说喜欢](https://www.yuedu687.com/book/7j0s7h/)
 - [搭档，一起来玩求生游戏吧！](https://www.yuedu687.com/book/7j0qv1/)
+- [在医院旧楼捡到个外科鼻祖](https://www.yuedu687.com/book/7j0p62/)
 - [猫猫也要养家糊口](https://www.yuedu687.com/book/o9m07/)
 - [如何扮演源氏重宝](https://www.yuedu687.com/book/o9lpl/)
 - [全民求生:从小木屋到魔法农场](https://www.yuedu687.com/book/o9lib/)

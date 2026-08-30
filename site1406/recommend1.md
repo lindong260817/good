@@ -1,7 +1,7 @@
 
 # 书迷村-免费高质量网络小说阅读网,热门男生女生小说大全
 
-更新时间：2026-08-30 03:19:38
+更新时间：2026-08-31 03:20:53
 
 书迷村是广大书友最值得收藏的网络小说阅读平台，提供最新最全的男生小说、女生小说以及孟静薇等作者的作品。在这里可以免费阅读到高质量的小说章节内容，是小说爱好者的首选网站。
 
@@ -104,7 +104,6 @@
 - [青城玩家明明超强却过分谨慎](https://www.aurorawj.com/book/3be8q1j/)
 - [豪门前妻O总想诱我](https://www.aurorawj.com/book/3be8pin/)
 - [万人迷今天也在风靡全世界[快穿]](https://www.aurorawj.com/book/3be8obk/)
-- [兽世种田撸狼首领](https://www.aurorawj.com/book/3be8mqe/)
 - [恋爱脑毁灭世界](https://www.aurorawj.com/book/3be8lrh/)
 - [重临巅峰[花滑]](https://www.aurorawj.com/book/3be8jto/)
 - [漫画配角的不平凡日常](https://www.aurorawj.com/book/3be8jc4/)
