@@ -1,13 +1,15 @@
 
 # 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
 
-更新时间：2026-08-31 03:20:09
+更新时间：2026-09-01 03:20:31
 
 瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！
 
 - [瑞文文学网](https://www.49ig.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.49ig.com/book/436dl0c/)
+- [从维多利亚时代开始](https://www.49ig.com/book/436dj9u/)
 - [九零重组小家庭](https://www.49ig.com/book/436ddsl/)
 - [发家致富小夫郎](https://www.49ig.com/book/436d78h/)
 - [神豪文男主是我爸](https://www.49ig.com/book/436ctia/)
@@ -73,7 +75,6 @@
 - [我写小说纯粹为了赚钱](https://www.49ig.com/book/436cj10/)
 - [寄人篱下](https://www.49ig.com/book/436chqu/)
 - [第一游侠[全息]](https://www.49ig.com/book/436ch52/)
-- [万人嫌女配过分漂亮](https://www.49ig.com/book/436cgsr/)
 - [误标记隔壁阿姨O之后](https://www.49ig.com/book/436cbr4/)
 - [高嫁之后](https://www.49ig.com/book/436cato/)
 - [[全职高手]霸图老板是叶修](https://www.49ig.com/book/436c99o/)
@@ -138,6 +139,8 @@
 - [绿茶病秧子骗他说喜欢](https://www.49ig.com/book/436a9vg/)
 - [我真的没想在选秀炒CP](https://www.49ig.com/book/436a7ah/)
 - [[群穿]我在御兽番抢人气](https://www.49ig.com/book/436a4p4/)
+- [在医院旧楼捡到个外科鼻祖](https://www.49ig.com/book/436a49u/)
+- [养父](https://www.49ig.com/book/436a38i/)
 - [欢迎来到纳萨力克丧葬公司](https://www.49ig.com/book/436a2sq/)
 - [海岛求生：生活玩家种田囤货](https://www.49ig.com/book/43698bi/)
 - [替嫁后咸鱼继母佛系日常](https://www.49ig.com/book/43698ba/)

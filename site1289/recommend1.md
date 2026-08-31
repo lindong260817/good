@@ -1,14 +1,15 @@
 
 # 三三言情小说 - 全本网文免费阅读, 最新最热言情故事
 
-更新时间：2026-08-31 03:43:38
+更新时间：2026-09-01 03:44:14
 
 三三言情小说为您提供海量全本完结的言情小说资源，在这里您可以免费在线阅读最新、最受欢迎的爱情故事。无论您是喜欢经典还是追求潮流的新作，我们都有丰富的选择等待着您来探索。
 
 - [三三言情小说](https://www.zhaoxingangjiegou.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.zhaoxingangjiegou.com/book/1duot28/)
+- [宠妃岂敢压我！](https://www.zhaoxingangjiegou.com/book/1duot2a/)
+- [死遁后，师弟他不哄不停](https://www.zhaoxingangjiegou.com/book/1duot29/)
 - [发家致富小夫郎](https://www.zhaoxingangjiegou.com/book/1duot27/)
 - [我夫君怎会是龙傲天？](https://www.zhaoxingangjiegou.com/book/1duot22/)
 - [影帝今天分手了吗[娱乐圈]](https://www.zhaoxingangjiegou.com/book/1duot21/)
@@ -69,7 +70,6 @@
 - [师姐她怎么还不来追求我](https://www.zhaoxingangjiegou.com/book/1duost7/)
 - [下潜一万米，海渊求生](https://www.zhaoxingangjiegou.com/book/1duost5/)
 - [昼色清明](https://www.zhaoxingangjiegou.com/book/1duost4/)
-- [养父](https://www.zhaoxingangjiegou.com/book/1duost2/)
 - [十九世纪贵族厨房（美食）](https://www.zhaoxingangjiegou.com/book/1duossb/)
 - [星际团宠小人鱼](https://www.zhaoxingangjiegou.com/book/1duoss5/)
 - [九零首富的替嫁小媳妇](https://www.zhaoxingangjiegou.com/book/1duosrq/)
@@ -77,6 +77,7 @@
 - [假少爷不想活了](https://www.zhaoxingangjiegou.com/book/1duosqg/)
 - [千禧年，拆迁分了十栋楼！](https://www.zhaoxingangjiegou.com/book/1duosq3/)
 - [高嫁之后](https://www.zhaoxingangjiegou.com/book/1duospg/)
+- [绝不会喜欢五条君的！](https://www.zhaoxingangjiegou.com/book/1duore2/)
 - [我不是御兽大师](https://www.zhaoxingangjiegou.com/book/1duordv/)
 - [六零之成了卷王的妹妹](https://www.zhaoxingangjiegou.com/book/1duordg/)
 - [满级大佬制霸热血运动番](https://www.zhaoxingangjiegou.com/book/1duordc/)
@@ -85,8 +86,8 @@
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.zhaoxingangjiegou.com/book/1dunbt6/)
 - [九零重组小家庭](https://www.zhaoxingangjiegou.com/book/1dunb4k/)
 - [灭世龙崽有什么错](https://www.zhaoxingangjiegou.com/book/1dun90r/)
+- [假少爷有特殊的算命技巧](https://www.zhaoxingangjiegou.com/book/1dun09i/)
 - [从维多利亚时代开始](https://www.zhaoxingangjiegou.com/book/1dumghs/)
-- [我有特殊的升官技巧](https://www.zhaoxingangjiegou.com/book/1dumdpv/)
 - [御兽师，我打工养你啊](https://www.zhaoxingangjiegou.com/book/1dumbmc/)
 - [反派人生，易如反掌[快穿]](https://www.zhaoxingangjiegou.com/book/1dumac4/)
 - [神豪文男主是我爸](https://www.zhaoxingangjiegou.com/book/1dum286/)
@@ -100,14 +101,12 @@
 - [巨物致富：回乡开钓场](https://www.zhaoxingangjiegou.com/book/1dullsg/)
 - [趁她之危](https://www.zhaoxingangjiegou.com/book/1dulfo4/)
 - [第一游侠[全息]](https://www.zhaoxingangjiegou.com/book/1dulehq/)
-- [人妻O救赎指南](https://www.zhaoxingangjiegou.com/book/1duldnf/)
 - [摄政王家的咸鱼夫郎](https://www.zhaoxingangjiegou.com/book/1dulbmq/)
 - [始皇闺女躺平失败的日子](https://www.zhaoxingangjiegou.com/book/1dula15/)
 - [寄人篱下](https://www.zhaoxingangjiegou.com/book/1dul8gc/)
 - [全球进化，而我保持不变](https://www.zhaoxingangjiegou.com/book/1dul61a/)
 - [当我穿为龙傲天的情敌](https://www.zhaoxingangjiegou.com/book/1dul5ne/)
 - [不当救世主就要当人类恶了吗](https://www.zhaoxingangjiegou.com/book/4j4n7c/)
-- [社恐直播鉴宝，但带球跑](https://www.zhaoxingangjiegou.com/book/4j4l2p/)
 - [枕边热吻](https://www.zhaoxingangjiegou.com/book/4j4kgk/)
 - [[全职高手]霸图老板是叶修](https://www.zhaoxingangjiegou.com/book/4j4ido/)
 - [误标记隔壁阿姨O之后](https://www.zhaoxingangjiegou.com/book/4j4fjs/)
@@ -157,14 +156,11 @@
 - [搭档，一起来玩求生游戏吧！](https://www.zhaoxingangjiegou.com/book/4j2r1t/)
 - [绿茶病秧子骗他说喜欢](https://www.zhaoxingangjiegou.com/book/4j2pul/)
 - [把清冷权臣调成荡夫后](https://www.zhaoxingangjiegou.com/book/4j2oj6/)
-- [在医院旧楼捡到个外科鼻祖](https://www.zhaoxingangjiegou.com/book/4j2ng6/)
 - [95美国贵族高中模拟](https://www.zhaoxingangjiegou.com/book/emlof/)
 - [猫猫也要养家糊口](https://www.zhaoxingangjiegou.com/book/emlmo/)
-- [如何扮演源氏重宝](https://www.zhaoxingangjiegou.com/book/emllr/)
 - [米花无刁民](https://www.zhaoxingangjiegou.com/book/emll4/)
 - [大瑛弟国](https://www.zhaoxingangjiegou.com/book/emlhd/)
 - [我有一座安全城](https://www.zhaoxingangjiegou.com/book/emldl/)
-- [警察，但犯罪大师系统[刑侦]](https://www.zhaoxingangjiegou.com/book/emlaq/)
 - [[娱乐圈]过分美丽的她](https://www.zhaoxingangjiegou.com/book/eml1p/)
 - [五十年代港城日常](https://www.zhaoxingangjiegou.com/book/eml03/)
 - [卧底后被港岛大小姐缠上了](https://www.zhaoxingangjiegou.com/book/emkt7/)
@@ -175,7 +171,6 @@
 - [海岛求生：生活玩家种田囤货](https://www.zhaoxingangjiegou.com/book/emkcs/)
 - [当恶女捡回高岭之花](https://www.zhaoxingangjiegou.com/book/emk9j/)
 - [科学主义魔法学院](https://www.zhaoxingangjiegou.com/book/emjjv/)
-- [替嫁后咸鱼继母佛系日常](https://www.zhaoxingangjiegou.com/book/1f2ab/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1289/index.md)
