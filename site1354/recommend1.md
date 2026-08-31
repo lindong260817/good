@@ -1,14 +1,15 @@
 
 # 阅读大文学 - 弘扬华夏文化的综合小说阅读平台
 
-更新时间：2026-08-31 03:42:34
+更新时间：2026-09-01 03:43:09
 
 阅读大文学致力于弘扬华夏文化，提供丰富的小说资源供免费阅读，涵盖但不限于古典文学、现代文学、当代文学及各类流行小说如言情、都市、玄幻等。
 
 - [阅读大文学](https://www.yuedu188.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.yuedu188.com/book/1egrdcf/)
+- [宠妃岂敢压我！](https://www.yuedu188.com/book/1egrfm0/)
+- [死遁后，师弟他不哄不停](https://www.yuedu188.com/book/1egrfle/)
 - [发家致富小夫郎](https://www.yuedu188.com/book/1egr8pi/)
 - [游戏boss们抢着要当我的猫[全息]](https://www.yuedu188.com/book/1egr6el/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yuedu188.com/book/1egr6ei/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.yuedu188.com/book/1egr3v6/)
 - [灭世龙崽有什么错](https://www.yuedu188.com/book/1egqsnc/)
 - [九零重组小家庭](https://www.yuedu188.com/book/1egqqn6/)
-- [养父](https://www.yuedu188.com/book/1egqqj9/)
-- [人妻O救赎指南](https://www.yuedu188.com/book/1egqqj8/)
+- [假少爷有特殊的算命技巧](https://www.yuedu188.com/book/1egqpn6/)
 - [在虫族世界逃命升级](https://www.yuedu188.com/book/1egqm2b/)
 - [神豪文男主是我爸](https://www.yuedu188.com/book/1egql9b/)
 - [从维多利亚时代开始](https://www.yuedu188.com/book/1egqcg2/)
-- [我有特殊的升官技巧](https://www.yuedu188.com/book/1egq9eo/)
 - [星际团宠小人鱼](https://www.yuedu188.com/book/1egq7tn/)
 - [十九世纪贵族厨房（美食）](https://www.yuedu188.com/book/1egq7re/)
 - [反派人生，易如反掌[快穿]](https://www.yuedu188.com/book/1egq5te/)
@@ -91,13 +90,11 @@
 - [十福晋吃瓜日常(清穿)](https://www.yuedu188.com/book/4kupip/)
 - [当我穿为龙傲天的情敌](https://www.yuedu188.com/book/4kup9i/)
 - [不当救世主就要当人类恶了吗](https://www.yuedu188.com/book/4kup1d/)
-- [社恐直播鉴宝，但带球跑](https://www.yuedu188.com/book/4kuo1k/)
 - [[全职高手]霸图老板是叶修](https://www.yuedu188.com/book/4kundk/)
 - [假金丝雀深陷修罗场](https://www.yuedu188.com/book/4kumc8/)
 - [当菟丝花要分手后](https://www.yuedu188.com/book/4kukuf/)
 - [养成游戏，但破解版](https://www.yuedu188.com/book/4kueun/)
 - [霓虹夏日](https://www.yuedu188.com/book/4kuc1i/)
-- [替嫁后咸鱼继母佛系日常](https://www.yuedu188.com/book/4ku9q4/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.yuedu188.com/book/4ku8dq/)
 - [[综英美]让我统治哥谭！！！](https://www.yuedu188.com/book/4ku7bq/)
 - [啊？我是万人迷？［虫族］](https://www.yuedu188.com/book/4ku5c2/)
@@ -148,7 +145,6 @@
 - [我真的没想在选秀炒CP](https://www.yuedu188.com/book/4ksq3c/)
 - [[群穿]我在御兽番抢人气](https://www.yuedu188.com/book/4ksp9p/)
 - [把清冷权臣调成荡夫后](https://www.yuedu188.com/book/4ksnsk/)
-- [在医院旧楼捡到个外科鼻祖](https://www.yuedu188.com/book/4ksnal/)
 - [五十年代港城日常](https://www.yuedu188.com/book/esfc6/)
 - [古代种田养娃日常](https://www.yuedu188.com/book/esfbf/)
 - [全民求生:从小木屋到魔法农场](https://www.yuedu188.com/book/esfaf/)
@@ -156,19 +152,18 @@
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.yuedu188.com/book/esers/)
 - [穿成炮灰后我封神了［快穿］](https://www.yuedu188.com/book/esenf/)
 - [[娱乐圈]过分美丽的她](https://www.yuedu188.com/book/eseju/)
+- [绝不会喜欢五条君的！](https://www.yuedu188.com/book/esej6/)
 - [95美国贵族高中模拟](https://www.yuedu188.com/book/eseif/)
 - [御兽师，我打工养你啊](https://www.yuedu188.com/book/ese9v/)
 - [日化人生[科研]](https://www.yuedu188.com/book/ese8j/)
 - [高嫁之后](https://www.yuedu188.com/book/ese49/)
 - [我有一座安全城](https://www.yuedu188.com/book/ese23/)
-- [如何扮演源氏重宝](https://www.yuedu188.com/book/ese1b/)
 - [卧底后被港岛大小姐缠上了](https://www.yuedu188.com/book/esdqf/)
 - [大瑛弟国](https://www.yuedu188.com/book/esdod/)
 - [我是唯一地上神国](https://www.yuedu188.com/book/esdjm/)
 - [成为养成系练习生后](https://www.yuedu188.com/book/esdh1/)
 - [六零之成了卷王的妹妹](https://www.yuedu188.com/book/esdfv/)
 - [假少爷不想活了](https://www.yuedu188.com/book/esdf3/)
-- [警察，但犯罪大师系统[刑侦]](https://www.yuedu188.com/book/esd8f/)
 - [刑部的小衙门](https://www.yuedu188.com/book/1fl97/)
 - [科学主义魔法学院](https://www.yuedu188.com/book/1fl7p/)
 - [高门小婢](https://www.yuedu188.com/book/1fl66/)

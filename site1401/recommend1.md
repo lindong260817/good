@@ -1,13 +1,15 @@
 
 # 曹操SPA小说 - 小说的海洋，文学的殿堂 | 在线阅读与下载原创小说
 
-更新时间：2026-08-31 03:21:36
+更新时间：2026-09-01 03:22:02
 
 曹操SPA小说是一个专注于优质小说和文学创作的网站，这里是书迷们的天堂，提供丰富的原创网络小说、经典文学作品在线阅读与下载，致力于打造一个充满灵感与创意的文学世界。
 
 - [曹操SPA小说](https://www.caocaospa.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.caocaospa.com/book/8q1tk7n/)
+- [从维多利亚时代开始](https://www.caocaospa.com/book/8q1tig0/)
 - [九零重组小家庭](https://www.caocaospa.com/book/8q1tdd6/)
 - [发家致富小夫郎](https://www.caocaospa.com/book/8q1t6dh/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.caocaospa.com/book/8q1ssv7/)
@@ -71,7 +73,6 @@
 - [科学主义魔法学院](https://www.caocaospa.com/book/8q1smjs/)
 - [全球进化，而我保持不变](https://www.caocaospa.com/book/8q1smd7/)
 - [我写小说纯粹为了赚钱](https://www.caocaospa.com/book/8q1sici/)
-- [万人嫌女配过分漂亮](https://www.caocaospa.com/book/8q1sgp5/)
 - [第一游侠[全息]](https://www.caocaospa.com/book/8q1sgn3/)
 - [寄人篱下](https://www.caocaospa.com/book/8q1sehl/)
 - [[全职高手]霸图老板是叶修](https://www.caocaospa.com/book/8q1sapk/)
@@ -137,8 +138,10 @@
 - [把清冷权臣调成荡夫后](https://www.caocaospa.com/book/8q1q9vn/)
 - [绿茶病秧子骗他说喜欢](https://www.caocaospa.com/book/8q1q9mc/)
 - [我真的没想在选秀炒CP](https://www.caocaospa.com/book/8q1q5ar/)
+- [在医院旧楼捡到个外科鼻祖](https://www.caocaospa.com/book/8q1q50l/)
 - [[群穿]我在御兽番抢人气](https://www.caocaospa.com/book/8q1q4ib/)
 - [欢迎来到纳萨力克丧葬公司](https://www.caocaospa.com/book/8q1q3mk/)
+- [养父](https://www.caocaospa.com/book/8q1q38v/)
 - [高门小婢](https://www.caocaospa.com/book/8q1p7pd/)
 - [全民求生:从小木屋到魔法农场](https://www.caocaospa.com/book/8q1p7o7/)
 - [趁她之危](https://www.caocaospa.com/book/8q1p7o1/)

@@ -1,14 +1,15 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-08-31 03:41:18
+更新时间：2026-09-01 03:41:52
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。
 
 - [炫书网](https://www.xqwz8bk.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.xqwz8bk.com/book/1igm349/)
+- [死遁后，师弟他不哄不停](https://www.xqwz8bk.com/book/1igm34b/)
+- [宠妃岂敢压我！](https://www.xqwz8bk.com/book/1igm34a/)
 - [发家致富小夫郎](https://www.xqwz8bk.com/book/1igm348/)
 - [我司艺人永不塌房](https://www.xqwz8bk.com/book/1igm33v/)
 - [[三国]清澈，但千古一帝](https://www.xqwz8bk.com/book/1igm33t/)
@@ -69,7 +70,6 @@
 - [卡尔蜜拉也能成为特利迦白月光？](https://www.xqwz8bk.com/book/1igm2v7/)
 - [师姐她怎么还不来追求我](https://www.xqwz8bk.com/book/1igm2v6/)
 - [昼色清明](https://www.xqwz8bk.com/book/1igm2v5/)
-- [养父](https://www.xqwz8bk.com/book/1igm2v3/)
 - [星际团宠小人鱼](https://www.xqwz8bk.com/book/1igm2ui/)
 - [九零首富的替嫁小媳妇](https://www.xqwz8bk.com/book/1igm2u0/)
 - [十九世纪贵族厨房（美食）](https://www.xqwz8bk.com/book/1igm2sr/)
@@ -78,15 +78,16 @@
 - [千禧年，拆迁分了十栋楼！](https://www.xqwz8bk.com/book/1igm2qg/)
 - [高嫁之后](https://www.xqwz8bk.com/book/1igm2q2/)
 - [我不是御兽大师](https://www.xqwz8bk.com/book/1igm1gc/)
+- [绝不会喜欢五条君的！](https://www.xqwz8bk.com/book/1igm1fs/)
 - [六零之成了卷王的妹妹](https://www.xqwz8bk.com/book/1igm1fe/)
 - [满级大佬制霸热血运动番](https://www.xqwz8bk.com/book/1igm1fc/)
 - [古代种田养娃日常](https://www.xqwz8bk.com/book/1iglcvl/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.xqwz8bk.com/book/1iglcip/)
 - [九零重组小家庭](https://www.xqwz8bk.com/book/1igkj3u/)
 - [灭世龙崽有什么错](https://www.xqwz8bk.com/book/1igkbi0/)
+- [假少爷有特殊的算命技巧](https://www.xqwz8bk.com/book/1igk61l/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.xqwz8bk.com/book/1igk3t9/)
 - [从维多利亚时代开始](https://www.xqwz8bk.com/book/1igjpdg/)
-- [我有特殊的升官技巧](https://www.xqwz8bk.com/book/1igjmg5/)
 - [御兽师，我打工养你啊](https://www.xqwz8bk.com/book/1igjkj0/)
 - [反派人生，易如反掌[快穿]](https://www.xqwz8bk.com/book/1igjj0j/)
 - [神豪文男主是我爸](https://www.xqwz8bk.com/book/1igjap3/)
@@ -100,7 +101,6 @@
 - [巨物致富：回乡开钓场](https://www.xqwz8bk.com/book/1igisge/)
 - [第一游侠[全息]](https://www.xqwz8bk.com/book/1igind1/)
 - [趁她之危](https://www.xqwz8bk.com/book/1igil0s/)
-- [人妻O救赎指南](https://www.xqwz8bk.com/book/1igii0k/)
 - [始皇闺女躺平失败的日子](https://www.xqwz8bk.com/book/1igignt/)
 - [摄政王家的咸鱼夫郎](https://www.xqwz8bk.com/book/1igifdv/)
 - [寄人篱下](https://www.xqwz8bk.com/book/1igidm8/)
@@ -108,7 +108,6 @@
 - [全球进化，而我保持不变](https://www.xqwz8bk.com/book/51nng7/)
 - [不当救世主就要当人类恶了吗](https://www.xqwz8bk.com/book/51nl88/)
 - [枕边热吻](https://www.xqwz8bk.com/book/51njc3/)
-- [社恐直播鉴宝，但带球跑](https://www.xqwz8bk.com/book/51nirn/)
 - [[全职高手]霸图老板是叶修](https://www.xqwz8bk.com/book/51nefg/)
 - [误标记隔壁阿姨O之后](https://www.xqwz8bk.com/book/51ndsd/)
 - [十福晋吃瓜日常(清穿)](https://www.xqwz8bk.com/book/51ndld/)
@@ -157,7 +156,6 @@
 - [把清冷权臣调成荡夫后](https://www.xqwz8bk.com/book/51loa0/)
 - [搭档，一起来玩求生游戏吧！](https://www.xqwz8bk.com/book/51ln11/)
 - [绿茶病秧子骗他说喜欢](https://www.xqwz8bk.com/book/51lm4c/)
-- [在医院旧楼捡到个外科鼻祖](https://www.xqwz8bk.com/book/51lln6/)
 - [卧底后被港岛大小姐缠上了](https://www.xqwz8bk.com/book/g5bpk/)
 - [全民求生:从小木屋到魔法农场](https://www.xqwz8bk.com/book/g5blo/)
 - [科学主义魔法学院](https://www.xqwz8bk.com/book/g5bki/)
@@ -167,12 +165,9 @@
 - [高门小婢](https://www.xqwz8bk.com/book/g5aur/)
 - [五十年代港城日常](https://www.xqwz8bk.com/book/g5as5/)
 - [当恶女捡回高岭之花](https://www.xqwz8bk.com/book/g5aqc/)
-- [如何扮演源氏重宝](https://www.xqwz8bk.com/book/g59st/)
 - [海岛求生：生活玩家种田囤货](https://www.xqwz8bk.com/book/g59r1/)
-- [警察，但犯罪大师系统[刑侦]](https://www.xqwz8bk.com/book/1jo0n/)
 - [猫猫也要养家糊口](https://www.xqwz8bk.com/book/1jnrl/)
 - [95美国贵族高中模拟](https://www.xqwz8bk.com/book/1jnr7/)
-- [替嫁后咸鱼继母佛系日常](https://www.xqwz8bk.com/book/1jnqb/)
 - [米花无刁民](https://www.xqwz8bk.com/book/1jno5/)
 - [我有一座安全城](https://www.xqwz8bk.com/book/1jnmc/)
 - [我是唯一地上神国](https://www.xqwz8bk.com/book/1jnen/)

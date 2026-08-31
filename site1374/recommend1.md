@@ -1,13 +1,14 @@
 
 # 看居中文网_免费小说在线阅读|无弹窗广告值得收藏
 
-更新时间：2026-08-31 03:27:37
+更新时间：2026-09-01 03:28:10
 
 看居中文网是最热门的免费小说网站，提供包括但不限于玄幻、都市、言情等多种类型的小说在线阅读服务。本站实时更新小说最新章节列表，拥有全面的小说排行榜，致力于为读者提供一个干净舒适的阅读环境，无弹窗广告干扰，是您寻找好书的理想之地。
 
 - [看居中文网](https://www.kanju688.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.kanju688.com/book/pb05of/)
 - [发家致富小夫郎](https://www.kanju688.com/book/pb015s/)
 - [异种新婚报告](https://www.kanju688.com/book/pavut0/)
 - [在千禧年的伦敦当女巫](https://www.kanju688.com/book/pavusr/)
@@ -66,8 +67,10 @@
 - [灭世龙崽有什么错](https://www.kanju688.com/book/pavlgr/)
 - [九零重组小家庭](https://www.kanju688.com/book/pavjpi/)
 - [人妻O救赎指南](https://www.kanju688.com/book/pavigt/)
+- [养父](https://www.kanju688.com/book/pavif5/)
 - [在虫族世界逃命升级](https://www.kanju688.com/book/pavf1i/)
 - [神豪文男主是我爸](https://www.kanju688.com/book/pave41/)
+- [从维多利亚时代开始](https://www.kanju688.com/book/pav5ej/)
 - [我有特殊的升官技巧](https://www.kanju688.com/book/pav2jm/)
 - [十九世纪贵族厨房（美食）](https://www.kanju688.com/book/pauvds/)
 - [星际团宠小人鱼](https://www.kanju688.com/book/pauvdd/)
@@ -82,7 +85,6 @@
 - [枕边热吻](https://www.kanju688.com/book/patv34/)
 - [始皇闺女躺平失败的日子](https://www.kanju688.com/book/patume/)
 - [寄人篱下](https://www.kanju688.com/book/patuil/)
-- [万人嫌女配过分漂亮](https://www.kanju688.com/book/patu17/)
 - [误标记隔壁阿姨O之后](https://www.kanju688.com/book/patq61/)
 - [为诡异打工，但反封建迷信](https://www.kanju688.com/book/patp19/)
 - [在民俗惊悚片被诸神庇护](https://www.kanju688.com/book/patnsn/)
@@ -145,6 +147,7 @@
 - [我真的没想在选秀炒CP](https://www.kanju688.com/book/parott/)
 - [徐娘子的美食发家日常](https://www.kanju688.com/book/paroee/)
 - [[群穿]我在御兽番抢人气](https://www.kanju688.com/book/parne7/)
+- [在医院旧楼捡到个外科鼻祖](https://www.kanju688.com/book/parmar/)
 - [把清冷权臣调成荡夫后](https://www.kanju688.com/book/parl7f/)
 - [假少爷不想活了](https://www.kanju688.com/book/paqppu/)
 - [[娱乐圈]过分美丽的她](https://www.kanju688.com/book/paqppb/)
