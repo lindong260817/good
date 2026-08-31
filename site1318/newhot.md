@@ -1,7 +1,7 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-08-31 03:35:22
+更新时间：2026-09-01 03:35:55
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
@@ -10,24 +10,20 @@
 ## 最新小说
 - [井闼山经理每天都被挖墙脚](https://www.shuqi687.com/book/8vsmje1/)
 - [阿竹与野桃](https://www.shuqi687.com/book/8vsmjd8/)
-- [我的烧烤摊超美味[美食]](https://www.shuqi687.com/book/8vsmjc2/)
-- [失而复得的白月光[快穿]](https://www.shuqi687.com/book/8vsmja1/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shuqi687.com/book/8vsmj9u/)
 - [星际团宠小人鱼](https://www.shuqi687.com/book/8vsmj8b/)
 - [你，后室管理员](https://www.shuqi687.com/book/8vsmj82/)
-- [分手后与诱系妻子再度热恋](https://www.shuqi687.com/book/8vsmj7m/)
-- [他要和我谈恋爱](https://www.shuqi687.com/book/8vsmj6n/)
 - [[封神]圣人生欲](https://www.shuqi687.com/book/8vsmj6h/)
 - [高调装神，猥琐发育](https://www.shuqi687.com/book/8vsmj6e/)
 - [直男咒术师的限制级游戏](https://www.shuqi687.com/book/8vsmj4f/)
+- [女扮男装科举和皇帝撞脸了！](https://www.shuqi687.com/book/8vsmj2m/)
 - [纯爱宇智波基本恋爱法](https://www.shuqi687.com/book/8vsmj2d/)
-- [某柯学的正义伙伴](https://www.shuqi687.com/book/8vsjq8f/)
-- [男朋友买一送一](https://www.shuqi687.com/book/8vsjcuf/)
-- [我有嘉宾](https://www.shuqi687.com/book/8vsj6ui/)
 - [寻真](https://www.shuqi687.com/book/8vsis60/)
-- [沈助理又在隐藏他的超能力](https://www.shuqi687.com/book/spao95/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.shuqi687.com/book/spad4i/)
+- [逝水](https://www.shuqi687.com/book/spaepo/)
+- [这谁的沙雕二次元心声！](https://www.shuqi687.com/book/sp9svf/)
+- [老公是松散生命体](https://www.shuqi687.com/book/sp9sc6/)
 - [青空来信](https://www.shuqi687.com/book/sp9qru/)
+- [多梦你一会儿](https://www.shuqi687.com/book/sp9fmn/)
 - [[足球]罗蜜第一志愿](https://www.shuqi687.com/book/sp9eq7/)
 - [拯救世界从扮演反派开始](https://www.shuqi687.com/book/sp9bhp/)
 ## 相关内容

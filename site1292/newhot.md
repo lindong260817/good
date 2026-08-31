@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-08-31 03:43:21
+更新时间：2026-09-01 03:43:57
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
@@ -12,21 +12,19 @@
 - [井闼山经理每天都被挖墙脚](https://www.yumin66.com/book/5q5nak/)
 - [阿竹与野桃](https://www.yumin66.com/book/5q5n90/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yumin66.com/book/5q5n74/)
-- [分手后与诱系妻子再度热恋](https://www.yumin66.com/book/5q5n5v/)
 - [[封神]圣人生欲](https://www.yumin66.com/book/5q5n5t/)
-- [他要和我谈恋爱](https://www.yumin66.com/book/5q5n5o/)
 - [你，后室管理员](https://www.yumin66.com/book/5q5n5l/)
 - [星际团宠小人鱼](https://www.yumin66.com/book/5q5n58/)
 - [高调装神，猥琐发育](https://www.yumin66.com/book/5q5n4h/)
 - [直男咒术师的限制级游戏](https://www.yumin66.com/book/5q5n44/)
 - [纯爱宇智波基本恋爱法](https://www.yumin66.com/book/5q5n0g/)
-- [某柯学的正义伙伴](https://www.yumin66.com/book/5q2uti/)
-- [男朋友买一送一](https://www.yumin66.com/book/5q2k43/)
-- [我有嘉宾](https://www.yumin66.com/book/5q2ejg/)
+- [女扮男装科举和皇帝撞脸了！](https://www.yumin66.com/book/5q5n0e/)
 - [寻真](https://www.yumin66.com/book/5q21mq/)
-- [沈助理又在隐藏他的超能力](https://www.yumin66.com/book/ilsr7/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.yumin66.com/book/ilfjg/)
+- [逝水](https://www.yumin66.com/book/ilifj/)
+- [这谁的沙雕二次元心声！](https://www.yumin66.com/book/il1eo/)
+- [老公是松散生命体](https://www.yumin66.com/book/ikvsh/)
 - [青空来信](https://www.yumin66.com/book/ikvcc/)
+- [多梦你一会儿](https://www.yumin66.com/book/ikk5b/)
 - [[足球]罗蜜第一志愿](https://www.yumin66.com/book/ikgn3/)
 - [拯救世界从扮演反派开始](https://www.yumin66.com/book/ikggt/)
 ## 相关内容

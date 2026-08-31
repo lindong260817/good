@@ -1,44 +1,38 @@
 
 # 读者电子书-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-08-31 03:23:24
+更新时间：2026-09-01 03:23:54
 
 读者电子书提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
 
 - [读者电子书](https://www.duzhe368.com/)
 
 ## 最新小说
-- [我的烧烤摊超美味[美食]](https://www.duzhe368.com/book/3hfuv1k/)
 - [阿竹与野桃](https://www.duzhe368.com/book/3hfuv02/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.duzhe368.com/book/3hfuuu3/)
-- [我有嘉宾](https://www.duzhe368.com/book/3hfuq0m/)
 - [你，后室管理员](https://www.duzhe368.com/book/3hfu04u/)
 - [星际团宠小人鱼](https://www.duzhe368.com/book/3hfu02v/)
-- [分手后与诱系妻子再度热恋](https://www.duzhe368.com/book/3hfu02h/)
 - [高调装神，猥琐发育](https://www.duzhe368.com/book/3hftp55/)
-- [男朋友买一送一](https://www.duzhe368.com/book/3hftddk/)
-- [失而复得的白月光[快穿]](https://www.duzhe368.com/book/3hft7bf/)
 - [如何正确哄睡暴君](https://www.duzhe368.com/book/3hft43q/)
+- [逝水](https://www.duzhe368.com/book/3hfstj3/)
 - [寻真](https://www.duzhe368.com/book/3hfssd9/)
-- [我不可能舔一个漂亮捞子](https://www.duzhe368.com/book/3hfsr4g/)
-- [被鬼怪宠爱的漂亮书生](https://www.duzhe368.com/book/3hfsmj5/)
-- [沈助理又在隐藏他的超能力](https://www.duzhe368.com/book/3hfslur/)
+- [老公是松散生命体](https://www.duzhe368.com/book/3hfsm47/)
 - [微臣怜惜公主](https://www.duzhe368.com/book/3hfsi6a/)
-- [他要和我谈恋爱](https://www.duzhe368.com/book/3hfsbvb/)
+- [炮灰的我该如何上位？](https://www.duzhe368.com/book/3hfs4e4/)
+- [多梦你一会儿](https://www.duzhe368.com/book/3hfs4ds/)
 - [[封神]圣人生欲](https://www.duzhe368.com/book/3hfs47l/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.duzhe368.com/book/3hfs3mq/)
+- [这谁的沙雕二次元心声！](https://www.duzhe368.com/book/3hfs36c/)
+- [善逸拒绝成为咒术师](https://www.duzhe368.com/book/3hfs2cm/)
 - [[足球]罗蜜第一志愿](https://www.duzhe368.com/book/3hfrsmk/)
-- [某柯学的正义伙伴](https://www.duzhe368.com/book/3hfrrvq/)
 - [青空来信](https://www.duzhe368.com/book/3hfrrkv/)
 - [井闼山经理每天都被挖墙脚](https://www.duzhe368.com/book/3hfro51/)
 - [[足球]小小鸟堂堂来袭](https://www.duzhe368.com/book/3hfrfn9/)
 - [好兄弟暴富后非要跟我结婚](https://www.duzhe368.com/book/3hfrbc3/)
-- [侯府打工人](https://www.duzhe368.com/book/3hfr9cn/)
 - [法外狂猫](https://www.duzhe368.com/book/3hfr6oc/)
 - [关于我虚构了一个男友这件事](https://www.duzhe368.com/book/3hfr53r/)
-- [契约情人](https://www.duzhe368.com/book/3hfr4og/)
 - [和室友他爸恋爱后](https://www.duzhe368.com/book/3hfqv5s/)
 - [纯爱宇智波基本恋爱法](https://www.duzhe368.com/book/3hfppfi/)
+- [女扮男装科举和皇帝撞脸了！](https://www.duzhe368.com/book/3hfpoeq/)
 - [拯救世界从扮演反派开始](https://www.duzhe368.com/book/3hfpnoc/)
 - [直男咒术师的限制级游戏](https://www.duzhe368.com/book/3hfpmre/)
 ## 相关内容

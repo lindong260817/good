@@ -1,14 +1,15 @@
 
 # 紫玉海小说 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-08-31 03:44:11
+更新时间：2026-09-01 03:44:47
 
 紫玉海小说网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
 - [紫玉海小说](https://www.ziyuhai.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.ziyuhai.com/book/84rn586/)
+- [死遁后，师弟他不哄不停](https://www.ziyuhai.com/book/84rn588/)
+- [宠妃岂敢压我！](https://www.ziyuhai.com/book/84rn587/)
 - [发家致富小夫郎](https://www.ziyuhai.com/book/84rn585/)
 - [欢迎来到纳萨力克丧葬公司](https://www.ziyuhai.com/book/84rn57v/)
 - [猫猫也要被魅魔魅惑吗？](https://www.ziyuhai.com/book/84rn57u/)
@@ -69,7 +70,6 @@
 - [被怪物女友始乱终弃后[gb]](https://www.ziyuhai.com/book/84rn535/)
 - [和光太郎谈恋爱](https://www.ziyuhai.com/book/84rn534/)
 - [影帝今天分手了吗[娱乐圈]](https://www.ziyuhai.com/book/84rn532/)
-- [养父](https://www.ziyuhai.com/book/84rn530/)
 - [星际团宠小人鱼](https://www.ziyuhai.com/book/84rn52t/)
 - [十九世纪贵族厨房（美食）](https://www.ziyuhai.com/book/84rn527/)
 - [九零首富的替嫁小媳妇](https://www.ziyuhai.com/book/84rn515/)
@@ -78,15 +78,16 @@
 - [高嫁之后](https://www.ziyuhai.com/book/84rn50a/)
 - [千禧年，拆迁分了十栋楼！](https://www.ziyuhai.com/book/84rn4sb/)
 - [满级大佬制霸热血运动番](https://www.ziyuhai.com/book/84rn3k7/)
+- [绝不会喜欢五条君的！](https://www.ziyuhai.com/book/84rn3jt/)
 - [我不是御兽大师](https://www.ziyuhai.com/book/84rn3jl/)
 - [六零之成了卷王的妹妹](https://www.ziyuhai.com/book/84rn3ja/)
 - [古代种田养娃日常](https://www.ziyuhai.com/book/84rmeo0/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.ziyuhai.com/book/84rme9l/)
+- [假少爷有特殊的算命技巧](https://www.ziyuhai.com/book/84rlis3/)
 - [九零重组小家庭](https://www.ziyuhai.com/book/84rlbnt/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ziyuhai.com/book/84rlah0/)
 - [灭世龙崽有什么错](https://www.ziyuhai.com/book/84rl70h/)
 - [从维多利亚时代开始](https://www.ziyuhai.com/book/84rkr5m/)
-- [我有特殊的升官技巧](https://www.ziyuhai.com/book/84rkobl/)
 - [御兽师，我打工养你啊](https://www.ziyuhai.com/book/84rkm4c/)
 - [反派人生，易如反掌[快穿]](https://www.ziyuhai.com/book/84rkkkm/)
 - [神豪文男主是我爸](https://www.ziyuhai.com/book/84rkcfl/)
@@ -100,7 +101,6 @@
 - [巨物致富：回乡开钓场](https://www.ziyuhai.com/book/84rjtjh/)
 - [第一游侠[全息]](https://www.ziyuhai.com/book/84rjoj4/)
 - [趁她之危](https://www.ziyuhai.com/book/84rjnnb/)
-- [人妻O救赎指南](https://www.ziyuhai.com/book/84rjnhl/)
 - [摄政王家的咸鱼夫郎](https://www.ziyuhai.com/book/84rjiap/)
 - [始皇闺女躺平失败的日子](https://www.ziyuhai.com/book/84rjgsr/)
 - [寄人篱下](https://www.ziyuhai.com/book/84rjg4a/)
@@ -108,7 +108,6 @@
 - [全球进化，而我保持不变](https://www.ziyuhai.com/book/q2r2lo/)
 - [不当救世主就要当人类恶了吗](https://www.ziyuhai.com/book/q2qu48/)
 - [枕边热吻](https://www.ziyuhai.com/book/q2qt8m/)
-- [社恐直播鉴宝，但带球跑](https://www.ziyuhai.com/book/q2qrkd/)
 - [[全职高手]霸图老板是叶修](https://www.ziyuhai.com/book/q2qqqq/)
 - [假金丝雀深陷修罗场](https://www.ziyuhai.com/book/q2qne9/)
 - [十福晋吃瓜日常(清穿)](https://www.ziyuhai.com/book/q2qmj6/)
@@ -157,15 +156,12 @@
 - [我真的没想在选秀炒CP](https://www.ziyuhai.com/book/q2p2kt/)
 - [徐娘子的美食发家日常](https://www.ziyuhai.com/book/q2p2kd/)
 - [把清冷权臣调成荡夫后](https://www.ziyuhai.com/book/q2p0mp/)
-- [在医院旧楼捡到个外科鼻祖](https://www.ziyuhai.com/book/q2othd/)
-- [替嫁后咸鱼继母佛系日常](https://www.ziyuhai.com/book/2jf9c5/)
 - [卧底后被港岛大小姐缠上了](https://www.ziyuhai.com/book/2jf9a0/)
 - [五十年代港城日常](https://www.ziyuhai.com/book/2jf94e/)
 - [[娱乐圈]过分美丽的她](https://www.ziyuhai.com/book/2jf8vb/)
 - [清澈女大的六零年代](https://www.ziyuhai.com/book/2jf8ut/)
 - [高门小婢](https://www.ziyuhai.com/book/2jf8th/)
 - [我是唯一地上神国](https://www.ziyuhai.com/book/2jf8dd/)
-- [如何扮演源氏重宝](https://www.ziyuhai.com/book/2jf88p/)
 - [科学主义魔法学院](https://www.ziyuhai.com/book/2jf7t0/)
 - [米花无刁民](https://www.ziyuhai.com/book/2jf7qe/)
 - [猫猫也要养家糊口](https://www.ziyuhai.com/book/8b4l1/)
@@ -173,7 +169,6 @@
 - [95美国贵族高中模拟](https://www.ziyuhai.com/book/8b45f/)
 - [海岛求生：生活玩家种田囤货](https://www.ziyuhai.com/book/8b448/)
 - [全民求生:从小木屋到魔法农场](https://www.ziyuhai.com/book/8b442/)
-- [警察，但犯罪大师系统[刑侦]](https://www.ziyuhai.com/book/8b432/)
 - [我有一座安全城](https://www.ziyuhai.com/book/8b40s/)
 - [大瑛弟国](https://www.ziyuhai.com/book/qms0/)
 ## 相关内容

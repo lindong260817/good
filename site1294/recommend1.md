@@ -1,13 +1,14 @@
 
 # 思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-08-31 03:20:21
+更新时间：2026-09-01 03:20:44
 
 思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。
 
 - [思路客](https://www.968577.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.968577.com/book/1b28mg4/)
 - [发家致富小夫郎](https://www.968577.com/book/1b28mg3/)
 - [败类游戏](https://www.968577.com/book/1b28mg0/)
 - [折禅（强取豪夺）](https://www.968577.com/book/1b28mfr/)
@@ -68,6 +69,7 @@
 - [水管工[GB]](https://www.968577.com/book/1b28mb9/)
 - [下潜一万米，海渊求生](https://www.968577.com/book/1b28mb7/)
 - [卡尔蜜拉也能成为特利迦白月光？](https://www.968577.com/book/1b28mb2/)
+- [养父](https://www.968577.com/book/1b28mau/)
 - [九零首富的替嫁小媳妇](https://www.968577.com/book/1b28maa/)
 - [星际团宠小人鱼](https://www.968577.com/book/1b28m9j/)
 - [十九世纪贵族厨房（美食）](https://www.968577.com/book/1b28m8h/)
@@ -83,6 +85,7 @@
 - [九零重组小家庭](https://www.968577.com/book/1b277io/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.968577.com/book/1b26ofq/)
 - [灭世龙崽有什么错](https://www.968577.com/book/1b26m0i/)
+- [从维多利亚时代开始](https://www.968577.com/book/1b26be7/)
 - [我有特殊的升官技巧](https://www.968577.com/book/1b268qg/)
 - [御兽师，我打工养你啊](https://www.968577.com/book/1b266l3/)
 - [反派人生，易如反掌[快穿]](https://www.968577.com/book/1b265es/)
@@ -100,7 +103,6 @@
 - [人妻O救赎指南](https://www.968577.com/book/1b258ar/)
 - [始皇闺女躺平失败的日子](https://www.968577.com/book/1b2538d/)
 - [摄政王家的咸鱼夫郎](https://www.968577.com/book/1b252bh/)
-- [万人嫌女配过分漂亮](https://www.968577.com/book/1b25207/)
 - [寄人篱下](https://www.968577.com/book/1b250uk/)
 - [全球进化，而我保持不变](https://www.968577.com/book/49sqa6/)
 - [当我穿为龙傲天的情敌](https://www.968577.com/book/49so9m/)
@@ -154,6 +156,7 @@
 - [徐娘子的美食发家日常](https://www.968577.com/book/49qqvt/)
 - [搭档，一起来玩求生游戏吧！](https://www.968577.com/book/49qqq2/)
 - [绿茶病秧子骗他说喜欢](https://www.968577.com/book/49qq2n/)
+- [在医院旧楼捡到个外科鼻祖](https://www.968577.com/book/49qpn1/)
 - [把清冷权臣调成荡夫后](https://www.968577.com/book/49qone/)
 - [当恶女捡回高岭之花](https://www.968577.com/book/dp2ct/)
 - [我有一座安全城](https://www.968577.com/book/dp27s/)
