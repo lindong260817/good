@@ -1,7 +1,7 @@
 
 # 笔看阁-最热门的免费小说网 | 玄幻、网游、言情、穿越、都市全本小说在线阅读
 
-更新时间：2026-08-31 03:23:09
+更新时间：2026-09-01 03:23:38
 
 笔看阁是最热门的免费小说网站之一，专注于提供包括玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读服务。本站承诺不设任何弹窗广告，页面简洁易用，为读者创造一个纯净舒适的阅读环境。
 
@@ -10,27 +10,23 @@
 ## 最新小说
 - [阿竹与野桃](https://www.dasenluan.com/book/3jmhjo3/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.dasenluan.com/book/3jmhjns/)
-- [我的烧烤摊超美味[美食]](https://www.dasenluan.com/book/3jmhjm1/)
-- [我有嘉宾](https://www.dasenluan.com/book/3jmh8gl/)
-- [分手后与诱系妻子再度热恋](https://www.dasenluan.com/book/3jmh3ef/)
 - [星际团宠小人鱼](https://www.dasenluan.com/book/3jmh3e1/)
 - [你，后室管理员](https://www.dasenluan.com/book/3jmh3bc/)
 - [高调装神，猥琐发育](https://www.dasenluan.com/book/3jmfoig/)
-- [男朋友买一送一](https://www.dasenluan.com/book/3jmfml8/)
+- [女扮男装科举和皇帝撞脸了！](https://www.dasenluan.com/book/3jmfgr3/)
 - [直男咒术师的限制级游戏](https://www.dasenluan.com/book/3jmfg4k/)
-- [失而复得的白月光[快穿]](https://www.dasenluan.com/book/3jmf9m7/)
 - [如何正确哄睡暴君](https://www.dasenluan.com/book/3jmf8fu/)
 - [寻真](https://www.dasenluan.com/book/3jmf67r/)
-- [我不可能舔一个漂亮捞子](https://www.dasenluan.com/book/3jmeu7c/)
-- [沈助理又在隐藏他的超能力](https://www.dasenluan.com/book/3jmessp/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.dasenluan.com/book/3jmefac/)
-- [他要和我谈恋爱](https://www.dasenluan.com/book/3jmecft/)
-- [被鬼怪宠爱的漂亮书生](https://www.dasenluan.com/book/3jmebkj/)
+- [逝水](https://www.dasenluan.com/book/3jmf3v9/)
+- [多梦你一会儿](https://www.dasenluan.com/book/3jmeaiv/)
 - [微臣怜惜公主](https://www.dasenluan.com/book/3jmea1i/)
 - [拯救世界从扮演反派开始](https://www.dasenluan.com/book/3jme7go/)
+- [炮灰的我该如何上位？](https://www.dasenluan.com/book/3jme73e/)
+- [这谁的沙雕二次元心声！](https://www.dasenluan.com/book/3jme4o2/)
 - [[封神]圣人生欲](https://www.dasenluan.com/book/3jme377/)
-- [某柯学的正义伙伴](https://www.dasenluan.com/book/3jme2fo/)
 - [青空来信](https://www.dasenluan.com/book/3jme28n/)
+- [老公是松散生命体](https://www.dasenluan.com/book/3jme0ts/)
+- [善逸拒绝成为咒术师](https://www.dasenluan.com/book/3jme0bq/)
 - [纯爱宇智波基本恋爱法](https://www.dasenluan.com/book/3jme085/)
 - [[足球]罗蜜第一志愿](https://www.dasenluan.com/book/3jmdtl5/)
 - [井闼山经理每天都被挖墙脚](https://www.dasenluan.com/book/3jmdq4o/)

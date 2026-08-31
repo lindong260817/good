@@ -1,13 +1,14 @@
 
 # 国威御林小说_国威御林小说小说在线阅读
 
-更新时间：2026-08-31 03:24:55
+更新时间：2026-09-01 03:25:26
 
 国威御林小说是拥有海量的完结全本小说作品, 提供热门小说排行榜免费在线阅读, 每日更新言情、都市、穿越、青春、悬疑等作品连载。
 
 - [国威御林小说](https://www.guoweiyulin.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.guoweiyulin.com/book/360q2ck/)
 - [发家致富小夫郎](https://www.guoweiyulin.com/book/360q2cj/)
 - [与亡夫春风一度后](https://www.guoweiyulin.com/book/360q1jc/)
 - [万人嫌女配深陷修罗场](https://www.guoweiyulin.com/book/360q1j6/)
@@ -63,6 +64,7 @@
 - [昼色清明](https://www.guoweiyulin.com/book/360q1ep/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.guoweiyulin.com/book/360ps65/)
 - [我真的只会Ctrl啊！！！](https://www.guoweiyulin.com/book/360poce/)
+- [养父](https://www.guoweiyulin.com/book/360po8b/)
 - [人妻O救赎指南](https://www.guoweiyulin.com/book/360po1t/)
 - [星际团宠小人鱼](https://www.guoweiyulin.com/book/360ph67/)
 - [灭世龙崽有什么错](https://www.guoweiyulin.com/book/360pd4p/)
@@ -70,6 +72,7 @@
 - [神豪文男主是我爸](https://www.guoweiyulin.com/book/360p7id/)
 - [在虫族世界逃命升级](https://www.guoweiyulin.com/book/360p64n/)
 - [趁她之危](https://www.guoweiyulin.com/book/360p421/)
+- [从维多利亚时代开始](https://www.guoweiyulin.com/book/360osiq/)
 - [我有特殊的升官技巧](https://www.guoweiyulin.com/book/360opfv/)
 - [反派人生，易如反掌[快穿]](https://www.guoweiyulin.com/book/360omf3/)
 - [假少爷不想活了](https://www.guoweiyulin.com/book/360om0b/)
@@ -84,7 +87,6 @@
 - [绿叶](https://www.guoweiyulin.com/book/360njes/)
 - [始皇闺女躺平失败的日子](https://www.guoweiyulin.com/book/360njep/)
 - [科学主义魔法学院](https://www.guoweiyulin.com/book/360nj74/)
-- [万人嫌女配过分漂亮](https://www.guoweiyulin.com/book/360nj4l/)
 - [我写小说纯粹为了赚钱](https://www.guoweiyulin.com/book/360ngkv/)
 - [枕边热吻](https://www.guoweiyulin.com/book/360ngi1/)
 - [九零首富的替嫁小媳妇](https://www.guoweiyulin.com/book/360ng1g/)
@@ -148,6 +150,7 @@
 - [我真的没想在选秀炒CP](https://www.guoweiyulin.com/book/360lgd5/)
 - [徐娘子的美食发家日常](https://www.guoweiyulin.com/book/360lfn9/)
 - [把清冷权臣调成荡夫后](https://www.guoweiyulin.com/book/360lefq/)
+- [在医院旧楼捡到个外科鼻祖](https://www.guoweiyulin.com/book/360ld6o/)
 - [[群穿]我在御兽番抢人气](https://www.guoweiyulin.com/book/360lab6/)
 - [六零之成了卷王的妹妹](https://www.guoweiyulin.com/book/360khe8/)
 - [古代种田养娃日常](https://www.guoweiyulin.com/book/360khbu/)

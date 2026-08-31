@@ -1,14 +1,15 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-08-31 03:42:48
+更新时间：2026-09-01 03:43:24
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
 - [阅读小说网](https://www.yuedu687.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.yuedu687.com/book/2bu5iu9/)
+- [宠妃岂敢压我！](https://www.yuedu687.com/book/2bu5iub/)
+- [死遁后，师弟他不哄不停](https://www.yuedu687.com/book/2bu5iua/)
 - [发家致富小夫郎](https://www.yuedu687.com/book/2bu5iu8/)
 - [凤凰男就该窝里下蛋](https://www.yuedu687.com/book/2bu5iu0/)
 - [异种新婚报告](https://www.yuedu687.com/book/2bu5itv/)
@@ -69,7 +70,6 @@
 - [败类游戏](https://www.yuedu687.com/book/2bu5ipd/)
 - [深渊if，从染血骑士迪卢克开始[原神]](https://www.yuedu687.com/book/2bu5ipa/)
 - [我夫君怎会是龙傲天？](https://www.yuedu687.com/book/2bu5ip8/)
-- [养父](https://www.yuedu687.com/book/2bu5ip3/)
 - [九零首富的替嫁小媳妇](https://www.yuedu687.com/book/2bu5iob/)
 - [十九世纪贵族厨房（美食）](https://www.yuedu687.com/book/2bu5ioa/)
 - [星际团宠小人鱼](https://www.yuedu687.com/book/2bu5ink/)
@@ -79,14 +79,15 @@
 - [高嫁之后](https://www.yuedu687.com/book/2bu5ihk/)
 - [满级大佬制霸热血运动番](https://www.yuedu687.com/book/2bu5hal/)
 - [我不是御兽大师](https://www.yuedu687.com/book/2bu5hae/)
+- [绝不会喜欢五条君的！](https://www.yuedu687.com/book/2bu5hac/)
 - [六零之成了卷王的妹妹](https://www.yuedu687.com/book/2bu5ha2/)
 - [古代种田养娃日常](https://www.yuedu687.com/book/2bu4snc/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.yuedu687.com/book/2bu4sae/)
 - [九零重组小家庭](https://www.yuedu687.com/book/2bu43ua/)
+- [假少爷有特殊的算命技巧](https://www.yuedu687.com/book/2bu41km/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.yuedu687.com/book/2bu40v1/)
 - [灭世龙崽有什么错](https://www.yuedu687.com/book/2bu3k30/)
 - [从维多利亚时代开始](https://www.yuedu687.com/book/2bu38ve/)
-- [我有特殊的升官技巧](https://www.yuedu687.com/book/2bu36e8/)
 - [御兽师，我打工养你啊](https://www.yuedu687.com/book/2bu340i/)
 - [反派人生，易如反掌[快穿]](https://www.yuedu687.com/book/2bu32nu/)
 - [啊？我是万人迷？［虫族］](https://www.yuedu687.com/book/2bu2q8u/)
@@ -100,7 +101,6 @@
 - [巨物致富：回乡开钓场](https://www.yuedu687.com/book/2bu2cms/)
 - [第一游侠[全息]](https://www.yuedu687.com/book/2bu25rr/)
 - [趁她之危](https://www.yuedu687.com/book/2bu24gs/)
-- [人妻O救赎指南](https://www.yuedu687.com/book/2bu24gr/)
 - [摄政王家的咸鱼夫郎](https://www.yuedu687.com/book/2bu213o/)
 - [始皇闺女躺平失败的日子](https://www.yuedu687.com/book/2bu1uug/)
 - [寄人篱下](https://www.yuedu687.com/book/2bu1u8r/)
@@ -108,7 +108,6 @@
 - [全球进化，而我保持不变](https://www.yuedu687.com/book/7j2rn1/)
 - [不当救世主就要当人类恶了吗](https://www.yuedu687.com/book/7j2po2/)
 - [枕边热吻](https://www.yuedu687.com/book/7j2nok/)
-- [社恐直播鉴宝，但带球跑](https://www.yuedu687.com/book/7j2mrp/)
 - [[全职高手]霸图老板是叶修](https://www.yuedu687.com/book/7j2m59/)
 - [误标记隔壁阿姨O之后](https://www.yuedu687.com/book/7j2i9e/)
 - [假金丝雀深陷修罗场](https://www.yuedu687.com/book/7j2i4p/)
@@ -157,13 +156,10 @@
 - [把清冷权臣调成荡夫后](https://www.yuedu687.com/book/7j0t1d/)
 - [绿茶病秧子骗他说喜欢](https://www.yuedu687.com/book/7j0s7h/)
 - [搭档，一起来玩求生游戏吧！](https://www.yuedu687.com/book/7j0qv1/)
-- [在医院旧楼捡到个外科鼻祖](https://www.yuedu687.com/book/7j0p62/)
 - [猫猫也要养家糊口](https://www.yuedu687.com/book/o9m07/)
-- [如何扮演源氏重宝](https://www.yuedu687.com/book/o9lpl/)
 - [全民求生:从小木屋到魔法农场](https://www.yuedu687.com/book/o9lib/)
 - [清澈女大的六零年代](https://www.yuedu687.com/book/o9lfu/)
 - [[娱乐圈]过分美丽的她](https://www.yuedu687.com/book/o9lcv/)
-- [警察，但犯罪大师系统[刑侦]](https://www.yuedu687.com/book/o9lcq/)
 - [五十年代港城日常](https://www.yuedu687.com/book/o9l47/)
 - [高门小婢](https://www.yuedu687.com/book/o9kti/)
 - [海岛求生：生活玩家种田囤货](https://www.yuedu687.com/book/o9kof/)
@@ -171,7 +167,6 @@
 - [大瑛弟国](https://www.yuedu687.com/book/o9kft/)
 - [卧底后被港岛大小姐缠上了](https://www.yuedu687.com/book/o9kde/)
 - [当恶女捡回高岭之花](https://www.yuedu687.com/book/o9k9b/)
-- [替嫁后咸鱼继母佛系日常](https://www.yuedu687.com/book/o9k6e/)
 - [我是唯一地上神国](https://www.yuedu687.com/book/o9k11/)
 - [95美国贵族高中模拟](https://www.yuedu687.com/book/o9js1/)
 - [科学主义魔法学院](https://www.yuedu687.com/book/o9jqc/)

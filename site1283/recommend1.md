@@ -1,13 +1,14 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-08-31 03:22:23
+更新时间：2026-09-01 03:22:51
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
 - [书包网](https://www.cialisgs.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.cialisgs.com/book/89ru3o5/)
 - [发家致富小夫郎](https://www.cialisgs.com/book/89ru3o4/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.cialisgs.com/book/89ru3o1/)
 - [当织田作绑定魅魔系统](https://www.cialisgs.com/book/89ru3o0/)
@@ -68,6 +69,7 @@
 - [游戏boss们抢着要当我的猫[全息]](https://www.cialisgs.com/book/89ru3jd/)
 - [始乱终弃高岭之花以后](https://www.cialisgs.com/book/89ru3ja/)
 - [我的烧烤摊超美味[美食]](https://www.cialisgs.com/book/89ru3j4/)
+- [养父](https://www.cialisgs.com/book/89ru3iv/)
 - [星际团宠小人鱼](https://www.cialisgs.com/book/89ru3is/)
 - [九零首富的替嫁小媳妇](https://www.cialisgs.com/book/89ru3ib/)
 - [十九世纪贵族厨房（美食）](https://www.cialisgs.com/book/89ru3eg/)
@@ -83,6 +85,7 @@
 - [九零重组小家庭](https://www.cialisgs.com/book/89rsd06/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.cialisgs.com/book/89rs6tq/)
 - [灭世龙崽有什么错](https://www.cialisgs.com/book/89rs3r8/)
+- [从维多利亚时代开始](https://www.cialisgs.com/book/89rro5u/)
 - [我有特殊的升官技巧](https://www.cialisgs.com/book/89rrlkm/)
 - [御兽师，我打工养你啊](https://www.cialisgs.com/book/89rrjhn/)
 - [反派人生，易如反掌[快穿]](https://www.cialisgs.com/book/89rri20/)
@@ -100,7 +103,6 @@
 - [第一游侠[全息]](https://www.cialisgs.com/book/89rqk0j/)
 - [摄政王家的咸鱼夫郎](https://www.cialisgs.com/book/89rqile/)
 - [始皇闺女躺平失败的日子](https://www.cialisgs.com/book/89rqf5l/)
-- [万人嫌女配过分漂亮](https://www.cialisgs.com/book/89rqeh5/)
 - [寄人篱下](https://www.cialisgs.com/book/89rqe4r/)
 - [全球进化，而我保持不变](https://www.cialisgs.com/book/89rqco9/)
 - [当我穿为龙傲天的情敌](https://www.cialisgs.com/book/qirm1q/)
@@ -154,6 +156,7 @@
 - [徐娘子的美食发家日常](https://www.cialisgs.com/book/qipoch/)
 - [搭档，一起来玩求生游戏吧！](https://www.cialisgs.com/book/qipnob/)
 - [绿茶病秧子骗他说喜欢](https://www.cialisgs.com/book/qipno2/)
+- [在医院旧楼捡到个外科鼻祖](https://www.cialisgs.com/book/qiplci/)
 - [把清冷权臣调成荡夫后](https://www.cialisgs.com/book/qiplc9/)
 - [当恶女捡回高岭之花](https://www.cialisgs.com/book/2l2iaq/)
 - [米花无刁民](https://www.cialisgs.com/book/2l2i9c/)
