@@ -1,13 +1,14 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-08-31 03:28:05
+更新时间：2026-09-01 03:28:39
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
 - [看书小说网](https://www.kanshu666.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.kanshu666.com/book/8jv7ie8/)
 - [发家致富小夫郎](https://www.kanshu666.com/book/8jv7ie7/)
 - [我的烧烤摊超美味[美食]](https://www.kanshu666.com/book/8jv7ie0/)
 - [[娱乐圈]穿进同人文里哦多尅](https://www.kanshu666.com/book/8jv7idr/)
@@ -68,6 +69,7 @@
 - [败类游戏](https://www.kanshu666.com/book/8jv7i99/)
 - [我夫君怎会是龙傲天？](https://www.kanshu666.com/book/8jv7i98/)
 - [猫猫也要被魅魔魅惑吗？](https://www.kanshu666.com/book/8jv7i95/)
+- [养父](https://www.kanshu666.com/book/8jv7i92/)
 - [十九世纪贵族厨房（美食）](https://www.kanshu666.com/book/8jv7i8q/)
 - [九零首富的替嫁小媳妇](https://www.kanshu666.com/book/8jv7i7v/)
 - [星际团宠小人鱼](https://www.kanshu666.com/book/8jv7i7j/)
@@ -83,6 +85,7 @@
 - [九零重组小家庭](https://www.kanshu666.com/book/8jv5trc/)
 - [灭世龙崽有什么错](https://www.kanshu666.com/book/8jv5s9o/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kanshu666.com/book/8jv5l9q/)
+- [从维多利亚时代开始](https://www.kanshu666.com/book/8jv57v9/)
 - [我有特殊的升官技巧](https://www.kanshu666.com/book/8jv554c/)
 - [御兽师，我打工养你啊](https://www.kanshu666.com/book/8jv5382/)
 - [反派人生，易如反掌[快穿]](https://www.kanshu666.com/book/8jv51r2/)
@@ -98,7 +101,6 @@
 - [趁她之危](https://www.kanshu666.com/book/8jv465f/)
 - [第一游侠[全息]](https://www.kanshu666.com/book/8jv45q2/)
 - [人妻O救赎指南](https://www.kanshu666.com/book/8jv44pc/)
-- [万人嫌女配过分漂亮](https://www.kanshu666.com/book/8jv3uf6/)
 - [摄政王家的咸鱼夫郎](https://www.kanshu666.com/book/8jv3u0j/)
 - [始皇闺女躺平失败的日子](https://www.kanshu666.com/book/8jv3tio/)
 - [寄人篱下](https://www.kanshu666.com/book/8jv3t88/)
@@ -155,6 +157,7 @@
 - [今天在伟大航路抽到SSR了吗](https://www.kanshu666.com/book/rj4an7/)
 - [绿茶病秧子骗他说喜欢](https://www.kanshu666.com/book/rj4a4m/)
 - [把清冷权臣调成荡夫后](https://www.kanshu666.com/book/rj49n4/)
+- [在医院旧楼捡到个外科鼻祖](https://www.kanshu666.com/book/rj48nr/)
 - [我有一座安全城](https://www.kanshu666.com/book/2oa0r5/)
 - [95美国贵族高中模拟](https://www.kanshu666.com/book/2oa09b/)
 - [替嫁后咸鱼继母佛系日常](https://www.kanshu666.com/book/2oa02a/)

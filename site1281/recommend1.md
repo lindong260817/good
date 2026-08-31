@@ -1,13 +1,14 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-08-31 03:21:05
+更新时间：2026-09-01 03:21:29
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。
 
 - [忆想小说网](https://www.bianlishihao.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.bianlishihao.com/book/2vr7am3/)
 - [发家致富小夫郎](https://www.bianlishihao.com/book/2vr7am2/)
 - [九十年代从军记](https://www.bianlishihao.com/book/2vr7am1/)
 - [师姐她怎么还不来追求我](https://www.bianlishihao.com/book/2vr7alu/)
@@ -68,6 +69,7 @@
 - [我要当厨修啊[美食]](https://www.bianlishihao.com/book/2vr7ah8/)
 - [我的NPC队友全是火影天花板](https://www.bianlishihao.com/book/2vr7ah6/)
 - [[足球]顶级名帅](https://www.bianlishihao.com/book/2vr7ah5/)
+- [养父](https://www.bianlishihao.com/book/2vr7agt/)
 - [星际团宠小人鱼](https://www.bianlishihao.com/book/2vr7afa/)
 - [九零首富的替嫁小媳妇](https://www.bianlishihao.com/book/2vr7af8/)
 - [高调装神，猥琐发育](https://www.bianlishihao.com/book/2vr7adk/)
@@ -83,6 +85,7 @@
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.bianlishihao.com/book/2vr5cg5/)
 - [灭世龙崽有什么错](https://www.bianlishihao.com/book/2vr5avp/)
 - [九零重组小家庭](https://www.bianlishihao.com/book/2vr59al/)
+- [从维多利亚时代开始](https://www.bianlishihao.com/book/2vr502m/)
 - [我有特殊的升官技巧](https://www.bianlishihao.com/book/2vr4tfa/)
 - [御兽师，我打工养你啊](https://www.bianlishihao.com/book/2vr4rg8/)
 - [反派人生，易如反掌[快穿]](https://www.bianlishihao.com/book/2vr4pui/)
@@ -99,7 +102,6 @@
 - [人妻O救赎指南](https://www.bianlishihao.com/book/2vr3suk/)
 - [趁她之危](https://www.bianlishihao.com/book/2vr3s1u/)
 - [摄政王家的咸鱼夫郎](https://www.bianlishihao.com/book/2vr3oar/)
-- [万人嫌女配过分漂亮](https://www.bianlishihao.com/book/2vr3n3r/)
 - [始皇闺女躺平失败的日子](https://www.bianlishihao.com/book/2vr3mt9/)
 - [寄人篱下](https://www.bianlishihao.com/book/2vr3ljn/)
 - [全球进化，而我保持不变](https://www.bianlishihao.com/book/9ipe38/)
@@ -155,6 +157,7 @@
 - [搭档，一起来玩求生游戏吧！](https://www.bianlishihao.com/book/9infrv/)
 - [绿茶病秧子骗他说喜欢](https://www.bianlishihao.com/book/9inf9c/)
 - [把清冷权臣调成荡夫后](https://www.bianlishihao.com/book/9ine5g/)
+- [在医院旧楼捡到个外科鼻祖](https://www.bianlishihao.com/book/9ind7v/)
 - [全民求生:从小木屋到魔法农场](https://www.bianlishihao.com/book/ulhcl/)
 - [清澈女大的六零年代](https://www.bianlishihao.com/book/ulgse/)
 - [如何扮演源氏重宝](https://www.bianlishihao.com/book/ulgoa/)

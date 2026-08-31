@@ -1,13 +1,14 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-08-31 03:20:38
+更新时间：2026-09-01 03:21:01
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。
 
 - [阿舍岛小说](https://www.ashedao.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.ashedao.com/book/99d3a4k/)
 - [发家致富小夫郎](https://www.ashedao.com/book/99d3a4j/)
 - [和光太郎谈恋爱](https://www.ashedao.com/book/99d39bf/)
 - [与亡夫春风一度后](https://www.ashedao.com/book/99d39b5/)
@@ -63,6 +64,7 @@
 - [重回养父年少时](https://www.ashedao.com/book/99d396n/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.ashedao.com/book/99d33u2/)
 - [我真的只会Ctrl啊！！！](https://www.ashedao.com/book/99d305n/)
+- [养父](https://www.ashedao.com/book/99d2vun/)
 - [人妻O救赎指南](https://www.ashedao.com/book/99d2vo9/)
 - [星际团宠小人鱼](https://www.ashedao.com/book/99d2p2b/)
 - [灭世龙崽有什么错](https://www.ashedao.com/book/99d2kt7/)
@@ -70,6 +72,7 @@
 - [神豪文男主是我爸](https://www.ashedao.com/book/99d2f6k/)
 - [在虫族世界逃命升级](https://www.ashedao.com/book/99d2dvh/)
 - [趁她之危](https://www.ashedao.com/book/99d2bu8/)
+- [从维多利亚时代开始](https://www.ashedao.com/book/99d245p/)
 - [我有特殊的升官技巧](https://www.ashedao.com/book/99d2165/)
 - [反派人生，易如反掌[快穿]](https://www.ashedao.com/book/99d1u39/)
 - [假少爷不想活了](https://www.ashedao.com/book/99d1tn0/)
@@ -84,7 +87,6 @@
 - [科学主义魔法学院](https://www.ashedao.com/book/99d0s8f/)
 - [始皇闺女躺平失败的日子](https://www.ashedao.com/book/99d0qbg/)
 - [绿叶](https://www.ashedao.com/book/99d0qaj/)
-- [万人嫌女配过分漂亮](https://www.ashedao.com/book/99d0q7e/)
 - [我写小说纯粹为了赚钱](https://www.ashedao.com/book/99d0ou4/)
 - [枕边热吻](https://www.ashedao.com/book/99d0oh7/)
 - [九零首富的替嫁小媳妇](https://www.ashedao.com/book/99d0neg/)
@@ -147,6 +149,7 @@
 - [我真的没想在选秀炒CP](https://www.ashedao.com/book/99cun5b/)
 - [绿茶病秧子骗他说喜欢](https://www.ashedao.com/book/99cumkc/)
 - [徐娘子的美食发家日常](https://www.ashedao.com/book/99cumjj/)
+- [在医院旧楼捡到个外科鼻祖](https://www.ashedao.com/book/99culjv/)
 - [把清冷权臣调成荡夫后](https://www.ashedao.com/book/99culb6/)
 - [[群穿]我在御兽番抢人气](https://www.ashedao.com/book/99cuglj/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ashedao.com/book/99ctp5o/)

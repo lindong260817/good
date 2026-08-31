@@ -1,14 +1,15 @@
 
 # 爱阅读-最新优质免费无弹窗小说在线阅读
 
-更新时间：2026-08-31 03:43:06
+更新时间：2026-09-01 03:43:42
 
 爱阅读提供清爽干净、页面整洁没弹窗的网络小说阅读体验。这里有大量的免费小说、完本小说供您选择，包括热门言情小说、玄幻小说、仙侠小说等多种类型。是广大书友必备的纯绿色小说阅读网站。
 
 - [爱阅读小说网](https://www.yuedu788.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.yuedu788.com/book/1on762b/)
+- [宠妃岂敢压我！](https://www.yuedu788.com/book/1on78e4/)
+- [死遁后，师弟他不哄不停](https://www.yuedu788.com/book/1on78cq/)
 - [发家致富小夫郎](https://www.yuedu788.com/book/1on71fq/)
 - [万人嫌女配深陷修罗场](https://www.yuedu788.com/book/1on6v6i/)
 - [折禅（强取豪夺）](https://www.yuedu788.com/book/1on6v6g/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.yuedu788.com/book/1on6sn0/)
 - [灭世龙崽有什么错](https://www.yuedu788.com/book/1on6lpi/)
 - [九零重组小家庭](https://www.yuedu788.com/book/1on6k38/)
-- [养父](https://www.yuedu788.com/book/1on6iso/)
-- [人妻O救赎指南](https://www.yuedu788.com/book/1on6ipr/)
+- [假少爷有特殊的算命技巧](https://www.yuedu788.com/book/1on6ivk/)
 - [在虫族世界逃命升级](https://www.yuedu788.com/book/1on6fd3/)
 - [神豪文男主是我爸](https://www.yuedu788.com/book/1on6ec9/)
 - [从维多利亚时代开始](https://www.yuedu788.com/book/1on65o1/)
-- [我有特殊的升官技巧](https://www.yuedu788.com/book/1on62kr/)
 - [十九世纪贵族厨房（美食）](https://www.yuedu788.com/book/1on5vpf/)
 - [星际团宠小人鱼](https://www.yuedu788.com/book/1on5von/)
 - [反派人生，易如反掌[快穿]](https://www.yuedu788.com/book/1on5v2s/)
@@ -88,7 +87,6 @@
 - [误标记隔壁阿姨O之后](https://www.yuedu788.com/book/1on4r7r/)
 - [为诡异打工，但反封建迷信](https://www.yuedu788.com/book/1on4oie/)
 - [不当救世主就要当人类恶了吗](https://www.yuedu788.com/book/1on4o9b/)
-- [社恐直播鉴宝，但带球跑](https://www.yuedu788.com/book/1on4nuo/)
 - [当我穿为龙傲天的情敌](https://www.yuedu788.com/book/1on4nhn/)
 - [十福晋吃瓜日常(清穿)](https://www.yuedu788.com/book/1on4n8g/)
 - [在民俗惊悚片被诸神庇护](https://www.yuedu788.com/book/1on4mll/)
@@ -97,7 +95,6 @@
 - [当菟丝花要分手后](https://www.yuedu788.com/book/1on4jhh/)
 - [养成游戏，但破解版](https://www.yuedu788.com/book/1on4f2o/)
 - [霓虹夏日](https://www.yuedu788.com/book/1on4cio/)
-- [替嫁后咸鱼继母佛系日常](https://www.yuedu788.com/book/1on48n3/)
 - [[综英美]让我统治哥谭！！！](https://www.yuedu788.com/book/1on45co/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.yuedu788.com/book/1on43tc/)
 - [重力系杀手误入忍界记实录](https://www.yuedu788.com/book/1on43kg/)
@@ -146,10 +143,10 @@
 - [我不是御兽大师](https://www.yuedu788.com/book/1on2sph/)
 - [徐娘子的美食发家日常](https://www.yuedu788.com/book/1on2q28/)
 - [我真的没想在选秀炒CP](https://www.yuedu788.com/book/1on2pmi/)
-- [在医院旧楼捡到个外科鼻祖](https://www.yuedu788.com/book/1on2m2u/)
 - [[群穿]我在御兽番抢人气](https://www.yuedu788.com/book/1on2lkp/)
 - [把清冷权臣调成荡夫后](https://www.yuedu788.com/book/1on2lip/)
 - [大瑛弟国](https://www.yuedu788.com/book/1on1qfs/)
+- [绝不会喜欢五条君的！](https://www.yuedu788.com/book/1on1qes/)
 - [95美国贵族高中模拟](https://www.yuedu788.com/book/1on1qb5/)
 - [卧底后被港岛大小姐缠上了](https://www.yuedu788.com/book/1on1qb3/)
 - [刑部的小衙门](https://www.yuedu788.com/book/1on1q4c/)
@@ -161,10 +158,8 @@
 - [千禧年，拆迁分了十栋楼！](https://www.yuedu788.com/book/1on1pb8/)
 - [海岛求生：生活玩家种田囤货](https://www.yuedu788.com/book/1on1p8r/)
 - [[娱乐圈]过分美丽的她](https://www.yuedu788.com/book/1on1p5i/)
-- [警察，但犯罪大师系统[刑侦]](https://www.yuedu788.com/book/1on1p4o/)
 - [御兽师，我打工养你啊](https://www.yuedu788.com/book/1on1p20/)
 - [巨物致富：回乡开钓场](https://www.yuedu788.com/book/1on1oph/)
-- [如何扮演源氏重宝](https://www.yuedu788.com/book/1on1oo9/)
 - [我是唯一地上神国](https://www.yuedu788.com/book/1on1omb/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.yuedu788.com/book/1on1o0m/)
 - [六零之成了卷王的妹妹](https://www.yuedu788.com/book/1on1nvr/)

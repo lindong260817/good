@@ -1,45 +1,39 @@
 
 # 爱阅读-最新优质免费无弹窗小说在线阅读
 
-更新时间：2026-08-31 03:43:06
+更新时间：2026-09-01 03:43:42
 
 爱阅读提供清爽干净、页面整洁没弹窗的网络小说阅读体验。这里有大量的免费小说、完本小说供您选择，包括热门言情小说、玄幻小说、仙侠小说等多种类型。是广大书友必备的纯绿色小说阅读网站。
 
 - [爱阅读小说网](https://www.yuedu788.com/)
 
 ## 最新小说
-- [我的烧烤摊超美味[美食]](https://www.yuedu788.com/book/1on6v5p/)
 - [阿竹与野桃](https://www.yuedu788.com/book/1on6v3r/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yuedu788.com/book/1on6v27/)
-- [我有嘉宾](https://www.yuedu788.com/book/1on6qff/)
 - [你，后室管理员](https://www.yuedu788.com/book/1on5vqp/)
 - [星际团宠小人鱼](https://www.yuedu788.com/book/1on5von/)
-- [分手后与诱系妻子再度热恋](https://www.yuedu788.com/book/1on5vl7/)
 - [高调装神，猥琐发育](https://www.yuedu788.com/book/1on5om4/)
-- [男朋友买一送一](https://www.yuedu788.com/book/1on5csm/)
-- [失而复得的白月光[快穿]](https://www.yuedu788.com/book/1on594r/)
 - [如何正确哄睡暴君](https://www.yuedu788.com/book/1on54f7/)
-- [我不可能舔一个漂亮捞子](https://www.yuedu788.com/book/1on4sgj/)
+- [逝水](https://www.yuedu788.com/book/1on4te4/)
 - [寻真](https://www.yuedu788.com/book/1on4rvn/)
-- [被鬼怪宠爱的漂亮书生](https://www.yuedu788.com/book/1on4o8o/)
-- [沈助理又在隐藏他的超能力](https://www.yuedu788.com/book/1on4n90/)
+- [老公是松散生命体](https://www.yuedu788.com/book/1on4luj/)
 - [微臣怜惜公主](https://www.yuedu788.com/book/1on4kha/)
-- [他要和我谈恋爱](https://www.yuedu788.com/book/1on4c7c/)
+- [炮灰的我该如何上位？](https://www.yuedu788.com/book/1on46a2/)
+- [多梦你一会儿](https://www.yuedu788.com/book/1on44bq/)
 - [[封神]圣人生欲](https://www.yuedu788.com/book/1on44b3/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.yuedu788.com/book/1on446i/)
-- [某柯学的正义伙伴](https://www.yuedu788.com/book/1on3tsf/)
+- [这谁的沙雕二次元心声！](https://www.yuedu788.com/book/1on438o/)
+- [善逸拒绝成为咒术师](https://www.yuedu788.com/book/1on42d1/)
 - [[足球]罗蜜第一志愿](https://www.yuedu788.com/book/1on3tnn/)
 - [青空来信](https://www.yuedu788.com/book/1on3t0m/)
 - [井闼山经理每天都被挖墙脚](https://www.yuedu788.com/book/1on3opm/)
 - [[足球]小小鸟堂堂来袭](https://www.yuedu788.com/book/1on3fmp/)
-- [侯府打工人](https://www.yuedu788.com/book/1on3a63/)
 - [法外狂猫](https://www.yuedu788.com/book/1on3a4t/)
 - [好兄弟暴富后非要跟我结婚](https://www.yuedu788.com/book/1on39ph/)
-- [契约情人](https://www.yuedu788.com/book/1on38a6/)
 - [关于我虚构了一个男友这件事](https://www.yuedu788.com/book/1on36l1/)
 - [和室友他爸恋爱后](https://www.yuedu788.com/book/1on2vhn/)
 - [拯救世界从扮演反派开始](https://www.yuedu788.com/book/1on1q8j/)
 - [纯爱宇智波基本恋爱法](https://www.yuedu788.com/book/1on1ojk/)
+- [女扮男装科举和皇帝撞脸了！](https://www.yuedu788.com/book/1on1nsq/)
 - [直男咒术师的限制级游戏](https://www.yuedu788.com/book/1on1no0/)
 ## 相关内容
 - [README](/README.md)

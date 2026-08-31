@@ -1,44 +1,42 @@
 
 # 书迷村-免费高质量网络小说阅读网,热门男生女生小说大全
 
-更新时间：2026-08-31 03:20:53
+更新时间：2026-09-01 03:21:17
 
 书迷村是广大书友最值得收藏的网络小说阅读平台，提供最新最全的男生小说、女生小说以及孟静薇等作者的作品。在这里可以免费阅读到高质量的小说章节内容，是小说爱好者的首选网站。
 
 - [书迷村](https://www.aurorawj.com/)
 
 ## 最新小说
-- [被鬼怪宠爱的漂亮书生](https://www.aurorawj.com/book/3beadp2/)
-- [男朋友买一送一](https://www.aurorawj.com/book/3beabr2/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.aurorawj.com/book/3beabfe/)
 - [阿竹与野桃](https://www.aurorawj.com/book/3beaahd/)
 - [如何正确哄睡暴君](https://www.aurorawj.com/book/3bea8g7/)
-- [我不可能舔一个漂亮捞子](https://www.aurorawj.com/book/3bea55l/)
+- [逝水](https://www.aurorawj.com/book/3bea7br/)
+- [老公是松散生命体](https://www.aurorawj.com/book/3be9vlk/)
 - [法外狂猫](https://www.aurorawj.com/book/3be9u7h/)
 - [微臣怜惜公主](https://www.aurorawj.com/book/3be9saq/)
 - [寻真](https://www.aurorawj.com/book/3be9qi4/)
 - [和室友他爸恋爱后](https://www.aurorawj.com/book/3be9l9u/)
-- [沈助理又在隐藏他的超能力](https://www.aurorawj.com/book/3be9k0i/)
+- [就算是龙傲天也不可以[快穿]](https://www.aurorawj.com/book/3be9jqi/)
+- [女扮男装科举和皇帝撞脸了！](https://www.aurorawj.com/book/3be9j1e/)
 - [直男咒术师的限制级游戏](https://www.aurorawj.com/book/3be9adj/)
+- [多梦你一会儿](https://www.aurorawj.com/book/3be99p5/)
+- [这谁的沙雕二次元心声！](https://www.aurorawj.com/book/3be99bp/)
 - [穿为清冷影后的污点A](https://www.aurorawj.com/book/3be99an/)
-- [侯府打工人](https://www.aurorawj.com/book/3be96m9/)
+- [善逸拒绝成为咒术师](https://www.aurorawj.com/book/3be975f/)
+- [炮灰的我该如何上位？](https://www.aurorawj.com/book/3be95un/)
 - [豪门养子怀了大哥的崽](https://www.aurorawj.com/book/3be94l2/)
 - [拯救世界从扮演反派开始](https://www.aurorawj.com/book/3be9465/)
 - [井闼山经理每天都被挖墙脚](https://www.aurorawj.com/book/3be93kr/)
 - [[足球]小小鸟堂堂来袭](https://www.aurorawj.com/book/3be937a/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.aurorawj.com/book/3be92vu/)
 - [[足球]罗蜜第一志愿](https://www.aurorawj.com/book/3be902e/)
-- [某柯学的正义伙伴](https://www.aurorawj.com/book/3be8tpr/)
-- [契约情人](https://www.aurorawj.com/book/3be8tlh/)
 - [青空来信](https://www.aurorawj.com/book/3be8ss9/)
-- [在女仆咖啡店兼职被校草缠上后](https://www.aurorawj.com/book/3be8qqd/)
 - [好兄弟暴富后非要跟我结婚](https://www.aurorawj.com/book/3be8pq5/)
 - [关于我虚构了一个男友这件事](https://www.aurorawj.com/book/3be8p1r/)
 - [[封神]圣人生欲](https://www.aurorawj.com/book/3be6mnk/)
 - [纯爱宇智波基本恋爱法](https://www.aurorawj.com/book/3be6mmn/)
 - [你，后室管理员](https://www.aurorawj.com/book/3be6mg7/)
-- [他要和我谈恋爱](https://www.aurorawj.com/book/3be6m5r/)
 - [星际团宠小人鱼](https://www.aurorawj.com/book/3be6lrh/)
-- [分手后与诱系妻子再度热恋](https://www.aurorawj.com/book/3be6lop/)
 - [高调装神，猥琐发育](https://www.aurorawj.com/book/3be6li2/)
 ## 相关内容
 - [README](/README.md)

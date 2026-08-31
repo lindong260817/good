@@ -1,15 +1,17 @@
 
 # 积家健康小说 - 无弹窗无广告小说在线阅读
 
-更新时间：2026-08-31 03:26:32
+更新时间：2026-09-01 03:27:04
 
 积家健康小说提供一个干净简洁的平台让您享受无弹窗无广告的小说在线阅读体验。无论是在线阅读还是下载小说，都是完全免费的。
 
 - [积家健康小说](https://www.jijiajk.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.jijiajk.com/book/3ab2f1n/)
 - [九零重组小家庭](https://www.jijiajk.com/book/3ab29lp/)
 - [发家致富小夫郎](https://www.jijiajk.com/book/3ab24rp/)
+- [从维多利亚时代开始](https://www.jijiajk.com/book/3ab1tvv/)
 - [游戏角色想和玩家谈恋爱](https://www.jijiajk.com/book/3ab1tum/)
 - [婚后矜持](https://www.jijiajk.com/book/3ab1tuj/)
 - [私恋旧星](https://www.jijiajk.com/book/3ab1tu9/)
@@ -76,7 +78,6 @@
 - [寄人篱下](https://www.jijiajk.com/book/3ab0se9/)
 - [我写小说纯粹为了赚钱](https://www.jijiajk.com/book/3ab0s99/)
 - [第一游侠[全息]](https://www.jijiajk.com/book/3ab0rnr/)
-- [万人嫌女配过分漂亮](https://www.jijiajk.com/book/3ab0qrq/)
 - [始皇闺女躺平失败的日子](https://www.jijiajk.com/book/3ab0pjq/)
 - [误标记隔壁阿姨O之后](https://www.jijiajk.com/book/3ab0l6t/)
 - [假金丝雀深陷修罗场](https://www.jijiajk.com/book/3ab0jbs/)
@@ -139,6 +140,8 @@
 - [我真的没想在选秀炒CP](https://www.jijiajk.com/book/3aaui6t/)
 - [[群穿]我在御兽番抢人气](https://www.jijiajk.com/book/3aaugii/)
 - [欢迎来到纳萨力克丧葬公司](https://www.jijiajk.com/book/3aaugb4/)
+- [在医院旧楼捡到个外科鼻祖](https://www.jijiajk.com/book/3aaueh7/)
+- [养父](https://www.jijiajk.com/book/3aaucuh/)
 - [人妻O救赎指南](https://www.jijiajk.com/book/3aaubgi/)
 - [在民俗惊悚片被诸神庇护](https://www.jijiajk.com/book/3aatj93/)
 - [警察，但犯罪大师系统[刑侦]](https://www.jijiajk.com/book/3aatj63/)
