@@ -1,14 +1,15 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-08-31 03:44:46
+更新时间：2026-09-01 03:45:24
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。
 
 - [作品思路客](https://www.zuopin666.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.zuopin666.com/book/8befhi5/)
+- [宠妃岂敢压我！](https://www.zuopin666.com/book/8befhi7/)
+- [死遁后，师弟他不哄不停](https://www.zuopin666.com/book/8befhi6/)
 - [发家致富小夫郎](https://www.zuopin666.com/book/8befhi4/)
 - [欢迎来到纳萨力克丧葬公司](https://www.zuopin666.com/book/8befhi3/)
 - [私恋旧星](https://www.zuopin666.com/book/8befhi2/)
@@ -69,7 +70,6 @@
 - [我要当厨修啊[美食]](https://www.zuopin666.com/book/8befhd5/)
 - [青城玩家明明超强却过分谨慎](https://www.zuopin666.com/book/8befhd4/)
 - [[群穿]我在御兽番抢人气](https://www.zuopin666.com/book/8befhd2/)
-- [养父](https://www.zuopin666.com/book/8befhcv/)
 - [星际团宠小人鱼](https://www.zuopin666.com/book/8befhcl/)
 - [九零首富的替嫁小媳妇](https://www.zuopin666.com/book/8befhc6/)
 - [十九世纪贵族厨房（美食）](https://www.zuopin666.com/book/8befhbj/)
@@ -80,13 +80,14 @@
 - [我不是御兽大师](https://www.zuopin666.com/book/8beffu6/)
 - [满级大佬制霸热血运动番](https://www.zuopin666.com/book/8befftt/)
 - [六零之成了卷王的妹妹](https://www.zuopin666.com/book/8befftp/)
+- [绝不会喜欢五条君的！](https://www.zuopin666.com/book/8beffth/)
 - [古代种田养娃日常](https://www.zuopin666.com/book/8beer7n/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.zuopin666.com/book/8beeqsd/)
 - [灭世龙崽有什么错](https://www.zuopin666.com/book/8bee08o/)
+- [假少爷有特殊的算命技巧](https://www.zuopin666.com/book/8bedrgu/)
 - [九零重组小家庭](https://www.zuopin666.com/book/8bedltd/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.zuopin666.com/book/8bedh39/)
 - [从维多利亚时代开始](https://www.zuopin666.com/book/8bed7jq/)
-- [我有特殊的升官技巧](https://www.zuopin666.com/book/8bed4ng/)
 - [御兽师，我打工养你啊](https://www.zuopin666.com/book/8bed2nq/)
 - [反派人生，易如反掌[快穿]](https://www.zuopin666.com/book/8bed1ak/)
 - [啊？我是万人迷？［虫族］](https://www.zuopin666.com/book/8becori/)
@@ -99,7 +100,6 @@
 - [日化人生[科研]](https://www.zuopin666.com/book/8beccup/)
 - [巨物致富：回乡开钓场](https://www.zuopin666.com/book/8becbb4/)
 - [第一游侠[全息]](https://www.zuopin666.com/book/8bec4co/)
-- [人妻O救赎指南](https://www.zuopin666.com/book/8bec39v/)
 - [趁她之危](https://www.zuopin666.com/book/8bec2u5/)
 - [始皇闺女躺平失败的日子](https://www.zuopin666.com/book/8bebvm6/)
 - [摄政王家的咸鱼夫郎](https://www.zuopin666.com/book/8bebuk8/)
@@ -107,7 +107,6 @@
 - [当我穿为龙傲天的情敌](https://www.zuopin666.com/book/8bebq2b/)
 - [全球进化，而我保持不变](https://www.zuopin666.com/book/qntg5s/)
 - [不当救世主就要当人类恶了吗](https://www.zuopin666.com/book/qntdib/)
-- [社恐直播鉴宝，但带球跑](https://www.zuopin666.com/book/qntbj4/)
 - [枕边热吻](https://www.zuopin666.com/book/qnt9ie/)
 - [[全职高手]霸图老板是叶修](https://www.zuopin666.com/book/qnt9ci/)
 - [成为养成系练习生后](https://www.zuopin666.com/book/qnt4e5/)
@@ -157,23 +156,19 @@
 - [搭档，一起来玩求生游戏吧！](https://www.zuopin666.com/book/qnrgnu/)
 - [绿茶病秧子骗他说喜欢](https://www.zuopin666.com/book/qnrfq2/)
 - [把清冷权臣调成荡夫后](https://www.zuopin666.com/book/qnregc/)
-- [在医院旧楼捡到个外科鼻祖](https://www.zuopin666.com/book/qnrbfn/)
 - [我是唯一地上神国](https://www.zuopin666.com/book/2linf9/)
 - [全民求生:从小木屋到魔法农场](https://www.zuopin666.com/book/2linbg/)
 - [高门小婢](https://www.zuopin666.com/book/2lin5d/)
-- [警察，但犯罪大师系统[刑侦]](https://www.zuopin666.com/book/2lin4r/)
 - [大瑛弟国](https://www.zuopin666.com/book/2limst/)
 - [[娱乐圈]过分美丽的她](https://www.zuopin666.com/book/2limn2/)
 - [科学主义魔法学院](https://www.zuopin666.com/book/2lim8i/)
 - [清澈女大的六零年代](https://www.zuopin666.com/book/2lim78/)
 - [猫猫也要养家糊口](https://www.zuopin666.com/book/2lilum/)
 - [米花无刁民](https://www.zuopin666.com/book/2lilst/)
-- [替嫁后咸鱼继母佛系日常](https://www.zuopin666.com/book/2lilph/)
 - [我有一座安全城](https://www.zuopin666.com/book/8hsh1/)
 - [海岛求生：生活玩家种田囤货](https://www.zuopin666.com/book/8hsb6/)
 - [卧底后被港岛大小姐缠上了](https://www.zuopin666.com/book/8hs5b/)
 - [五十年代港城日常](https://www.zuopin666.com/book/8hrr3/)
-- [如何扮演源氏重宝](https://www.zuopin666.com/book/rcdg/)
 - [95美国贵族高中模拟](https://www.zuopin666.com/book/rcda/)
 - [当恶女捡回高岭之花](https://www.zuopin666.com/book/rccs/)
 ## 相关内容

@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-08-31 03:23:39
+更新时间：2026-09-01 03:24:09
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -10,23 +10,21 @@
 ## 最新小说
 - [阿竹与野桃](https://www.duzhe888.com/book/2koepdi/)
 - [井闼山经理每天都被挖墙脚](https://www.duzhe888.com/book/2koepbg/)
-- [失而复得的白月光[快穿]](https://www.duzhe888.com/book/2koep9b/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.duzhe888.com/book/2koepal/)
 - [星际团宠小人鱼](https://www.duzhe888.com/book/2koep8p/)
-- [分手后与诱系妻子再度热恋](https://www.duzhe888.com/book/2koep7c/)
-- [他要和我谈恋爱](https://www.duzhe888.com/book/2koep79/)
 - [你，后室管理员](https://www.duzhe888.com/book/2koep6v/)
 - [[封神]圣人生欲](https://www.duzhe888.com/book/2koep6l/)
 - [高调装神，猥琐发育](https://www.duzhe888.com/book/2koep6g/)
+- [女扮男装科举和皇帝撞脸了！](https://www.duzhe888.com/book/2koep5p/)
 - [直男咒术师的限制级游戏](https://www.duzhe888.com/book/2koep4k/)
 - [纯爱宇智波基本恋爱法](https://www.duzhe888.com/book/2koep3s/)
-- [某柯学的正义伙伴](https://www.duzhe888.com/book/2kobv8u/)
-- [男朋友买一送一](https://www.duzhe888.com/book/2kobkku/)
-- [我有嘉宾](https://www.duzhe888.com/book/2kobft7/)
 - [寻真](https://www.duzhe888.com/book/2kob5h6/)
-- [沈助理又在隐藏他的超能力](https://www.duzhe888.com/book/8f9v0q/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.duzhe888.com/book/8f9krh/)
+- [逝水](https://www.duzhe888.com/book/8f9nln/)
+- [这谁的沙雕二次元心声！](https://www.duzhe888.com/book/8f94rd/)
 - [青空来信](https://www.duzhe888.com/book/8f94pr/)
+- [老公是松散生命体](https://www.duzhe888.com/book/8f92ac/)
 - [[足球]罗蜜第一志愿](https://www.duzhe888.com/book/8f8nmm/)
+- [多梦你一会儿](https://www.duzhe888.com/book/8f8mep/)
 - [拯救世界从扮演反派开始](https://www.duzhe888.com/book/8f8kac/)
 ## 相关内容
 - [README](/README.md)

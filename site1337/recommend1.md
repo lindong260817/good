@@ -1,13 +1,14 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-08-31 03:22:55
+更新时间：2026-09-01 03:23:23
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
 - [随梦小说网](https://www.cq082.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.cq082.com/book/1sdfh4k/)
 - [发家致富小夫郎](https://www.cq082.com/book/1sdfh4j/)
 - [[希腊神话]诸神都是我学生](https://www.cq082.com/book/1sdfgbi/)
 - [师姐她怎么还不来追求我](https://www.cq082.com/book/1sdfgbf/)
@@ -63,6 +64,7 @@
 - [万人嫌女配深陷修罗场](https://www.cq082.com/book/1sdfg76/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.cq082.com/book/1sdfauo/)
 - [我真的只会Ctrl啊！！！](https://www.cq082.com/book/1sdf74d/)
+- [养父](https://www.cq082.com/book/1sdf6u1/)
 - [人妻O救赎指南](https://www.cq082.com/book/1sdf6pd/)
 - [星际团宠小人鱼](https://www.cq082.com/book/1sdf00k/)
 - [灭世龙崽有什么错](https://www.cq082.com/book/1sderv0/)
@@ -70,6 +72,7 @@
 - [神豪文男主是我爸](https://www.cq082.com/book/1sdem9u/)
 - [在虫族世界逃命升级](https://www.cq082.com/book/1sdekqo/)
 - [趁她之危](https://www.cq082.com/book/1sdeinv/)
+- [从维多利亚时代开始](https://www.cq082.com/book/1sdeb42/)
 - [我有特殊的升官技巧](https://www.cq082.com/book/1sde8bp/)
 - [反派人生，易如反掌[快穿]](https://www.cq082.com/book/1sde51k/)
 - [假少爷不想活了](https://www.cq082.com/book/1sde4r1/)
@@ -83,7 +86,6 @@
 - [寄人篱下](https://www.cq082.com/book/1sdd58q/)
 - [始皇闺女躺平失败的日子](https://www.cq082.com/book/1sdd37r/)
 - [科学主义魔法学院](https://www.cq082.com/book/1sdd31l/)
-- [万人嫌女配过分漂亮](https://www.cq082.com/book/1sdd0uk/)
 - [绿叶](https://www.cq082.com/book/1sdd0u9/)
 - [我写小说纯粹为了赚钱](https://www.cq082.com/book/1sdcve6/)
 - [枕边热吻](https://www.cq082.com/book/1sdcuvc/)
@@ -148,6 +150,7 @@
 - [绿茶病秧子骗他说喜欢](https://www.cq082.com/book/1sdaue2/)
 - [徐娘子的美食发家日常](https://www.cq082.com/book/1sdau42/)
 - [把清冷权臣调成荡夫后](https://www.cq082.com/book/1sdat35/)
+- [在医院旧楼捡到个外科鼻祖](https://www.cq082.com/book/1sdard4/)
 - [[群穿]我在御兽番抢人气](https://www.cq082.com/book/1sdaobp/)
 - [六零之成了卷王的妹妹](https://www.cq082.com/book/1sda05k/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.cq082.com/book/1sda05e/)

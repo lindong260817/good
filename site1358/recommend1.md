@@ -1,14 +1,15 @@
 
 # 哲理书客吧-全本小说免费阅读及txt下载,最新章节无弹窗
 
-更新时间：2026-08-31 03:43:56
+更新时间：2026-09-01 03:44:32
 
 哲理书客吧提供最快更新的热门网络小说最新章节，支持全本小说在线免费阅读与txt电子书打包下载服务。收录多本经典好看的小说，并承诺无广告弹窗清爽阅读体验，是小说爱好者的理想选择。
 
 - [哲理书客吧](https://www.zheli518.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.zheli518.com/book/4taqh2t/)
+- [死遁后，师弟他不哄不停](https://www.zheli518.com/book/4taqjfp/)
+- [宠妃岂敢压我！](https://www.zheli518.com/book/4taqjdt/)
 - [发家致富小夫郎](https://www.zheli518.com/book/4taqchd/)
 - [无限回档，我把自己刷成了女帝](https://www.zheli518.com/book/4taqa6u/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.zheli518.com/book/4taqa6t/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.zheli518.com/book/4taq7pg/)
 - [灭世龙崽有什么错](https://www.zheli518.com/book/4taq0mn/)
 - [九零重组小家庭](https://www.zheli518.com/book/4tapuui/)
-- [人妻O救赎指南](https://www.zheli518.com/book/4taptu0/)
-- [养父](https://www.zheli518.com/book/4taptrs/)
+- [假少爷有特殊的算命技巧](https://www.zheli518.com/book/4tapu0g/)
 - [在虫族世界逃命升级](https://www.zheli518.com/book/4tapqda/)
 - [神豪文男主是我爸](https://www.zheli518.com/book/4tappkp/)
 - [从维多利亚时代开始](https://www.zheli518.com/book/4tapgq3/)
-- [我有特殊的升官技巧](https://www.zheli518.com/book/4tapdse/)
 - [十九世纪贵族厨房（美食）](https://www.zheli518.com/book/4tapaur/)
 - [星际团宠小人鱼](https://www.zheli518.com/book/4tapaki/)
 - [反派人生，易如反掌[快穿]](https://www.zheli518.com/book/4tapa2b/)
@@ -87,7 +86,6 @@
 - [我写小说纯粹为了赚钱](https://www.zheli518.com/book/4tao9dr/)
 - [误标记隔壁阿姨O之后](https://www.zheli518.com/book/4tao59b/)
 - [为诡异打工，但反封建迷信](https://www.zheli518.com/book/4tao3qa/)
-- [社恐直播鉴宝，但带球跑](https://www.zheli518.com/book/4tao2l1/)
 - [在民俗惊悚片被诸神庇护](https://www.zheli518.com/book/4tao2gi/)
 - [当我穿为龙傲天的情敌](https://www.zheli518.com/book/4tao1os/)
 - [十福晋吃瓜日常(清穿)](https://www.zheli518.com/book/4tao193/)
@@ -97,7 +95,6 @@
 - [[全职高手]霸图老板是叶修](https://www.zheli518.com/book/4tantoq/)
 - [养成游戏，但破解版](https://www.zheli518.com/book/4tanpb8/)
 - [霓虹夏日](https://www.zheli518.com/book/4tanmqg/)
-- [替嫁后咸鱼继母佛系日常](https://www.zheli518.com/book/4tank9d/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.zheli518.com/book/4tanhcv/)
 - [[综英美]让我统治哥谭！！！](https://www.zheli518.com/book/4tanf7e/)
 - [八零恶毒后妈杀疯了](https://www.zheli518.com/book/4tane6s/)
@@ -148,7 +145,6 @@
 - [徐娘子的美食发家日常](https://www.zheli518.com/book/4tam3vu/)
 - [把清冷权臣调成荡夫后](https://www.zheli518.com/book/4tam24l/)
 - [[群穿]我在御兽番抢人气](https://www.zheli518.com/book/4tam23t/)
-- [在医院旧楼捡到个外科鼻祖](https://www.zheli518.com/book/4tam1n5/)
 - [大瑛弟国](https://www.zheli518.com/book/4tal5hb/)
 - [六零之成了卷王的妹妹](https://www.zheli518.com/book/4tal5ff/)
 - [假少爷不想活了](https://www.zheli518.com/book/4tal5ci/)
@@ -157,13 +153,12 @@
 - [全民求生:从小木屋到魔法农场](https://www.zheli518.com/book/4tal534/)
 - [95美国贵族高中模拟](https://www.zheli518.com/book/4tal510/)
 - [五十年代港城日常](https://www.zheli518.com/book/4tal4t0/)
+- [绝不会喜欢五条君的！](https://www.zheli518.com/book/4tal4qk/)
 - [巨物致富：回乡开钓场](https://www.zheli518.com/book/4tal4pn/)
 - [清澈女大的六零年代](https://www.zheli518.com/book/4tal4hb/)
 - [我是唯一地上神国](https://www.zheli518.com/book/4tal4cd/)
-- [如何扮演源氏重宝](https://www.zheli518.com/book/4tal4bv/)
 - [日化人生[科研]](https://www.zheli518.com/book/4tal458/)
 - [成为养成系练习生后](https://www.zheli518.com/book/4tal42q/)
-- [警察，但犯罪大师系统[刑侦]](https://www.zheli518.com/book/4tal42j/)
 - [科学主义魔法学院](https://www.zheli518.com/book/4tal40s/)
 - [卧底后被港岛大小姐缠上了](https://www.zheli518.com/book/4tal3su/)
 - [千禧年，拆迁分了十栋楼！](https://www.zheli518.com/book/4tal3f0/)
