@@ -1,14 +1,15 @@
 
 # 欣怡书屋 - 免费最新章节小说阅读,全本无弹窗
 
-更新时间：2026-08-31 03:44:29
+更新时间：2026-09-01 03:45:05
 
 欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。
 
 - [欣怡书屋](https://www.znenghs.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.znenghs.com/book/5n2k945/)
+- [宠妃岂敢压我！](https://www.znenghs.com/book/5n2k947/)
+- [死遁后，师弟他不哄不停](https://www.znenghs.com/book/5n2k946/)
 - [发家致富小夫郎](https://www.znenghs.com/book/5n2k944/)
 - [无限回档，我把自己刷成了女帝](https://www.znenghs.com/book/5n2k942/)
 - [青城玩家明明超强却过分谨慎](https://www.znenghs.com/book/5n2k940/)
@@ -69,7 +70,6 @@
 - [游戏角色想和玩家谈恋爱](https://www.znenghs.com/book/5n2k8va/)
 - [下潜一万米，海渊求生](https://www.znenghs.com/book/5n2k8v5/)
 - [欢迎来到纳萨力克丧葬公司](https://www.znenghs.com/book/5n2k8v4/)
-- [养父](https://www.znenghs.com/book/5n2k8uv/)
 - [九零首富的替嫁小媳妇](https://www.znenghs.com/book/5n2k8u7/)
 - [星际团宠小人鱼](https://www.znenghs.com/book/5n2k8ss/)
 - [十九世纪贵族厨房（美食）](https://www.znenghs.com/book/5n2k8sj/)
@@ -79,14 +79,15 @@
 - [高嫁之后](https://www.znenghs.com/book/5n2k8pa/)
 - [满级大佬制霸热血运动番](https://www.znenghs.com/book/5n2k7g9/)
 - [我不是御兽大师](https://www.znenghs.com/book/5n2k7g6/)
+- [绝不会喜欢五条君的！](https://www.znenghs.com/book/5n2k7fi/)
 - [六零之成了卷王的妹妹](https://www.znenghs.com/book/5n2k7fh/)
 - [古代种田养娃日常](https://www.znenghs.com/book/5n2j7mo/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.znenghs.com/book/5n2j75i/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.znenghs.com/book/5n2iie5/)
 - [九零重组小家庭](https://www.znenghs.com/book/5n2igll/)
+- [假少爷有特殊的算命技巧](https://www.znenghs.com/book/5n2iand/)
 - [灭世龙崽有什么错](https://www.znenghs.com/book/5n2i9u8/)
 - [从维多利亚时代开始](https://www.znenghs.com/book/5n2hsh7/)
-- [我有特殊的升官技巧](https://www.znenghs.com/book/5n2hq1b/)
 - [御兽师，我打工养你啊](https://www.znenghs.com/book/5n2hns1/)
 - [反派人生，易如反掌[快穿]](https://www.znenghs.com/book/5n2hmcj/)
 - [啊？我是万人迷？［虫族］](https://www.znenghs.com/book/5n2hedt/)
@@ -100,14 +101,12 @@
 - [巨物致富：回乡开钓场](https://www.znenghs.com/book/5n2h3jv/)
 - [趁她之危](https://www.znenghs.com/book/5n2gs9s/)
 - [第一游侠[全息]](https://www.znenghs.com/book/5n2gqlm/)
-- [人妻O救赎指南](https://www.znenghs.com/book/5n2gpii/)
 - [摄政王家的咸鱼夫郎](https://www.znenghs.com/book/5n2glmf/)
 - [始皇闺女躺平失败的日子](https://www.znenghs.com/book/5n2glb6/)
 - [寄人篱下](https://www.znenghs.com/book/5n2gj7j/)
 - [全球进化，而我保持不变](https://www.znenghs.com/book/5n2ghen/)
 - [当我穿为龙傲天的情敌](https://www.znenghs.com/book/5n2ghd5/)
 - [不当救世主就要当人类恶了吗](https://www.znenghs.com/book/i9trv4/)
-- [社恐直播鉴宝，但带球跑](https://www.znenghs.com/book/i9tqvg/)
 - [枕边热吻](https://www.znenghs.com/book/i9ton2/)
 - [[全职高手]霸图老板是叶修](https://www.znenghs.com/book/i9tm43/)
 - [十福晋吃瓜日常(清穿)](https://www.znenghs.com/book/i9tl65/)
@@ -157,10 +156,7 @@
 - [把清冷权臣调成荡夫后](https://www.znenghs.com/book/i9rugk/)
 - [搭档，一起来玩求生游戏吧！](https://www.znenghs.com/book/i9ru2u/)
 - [绿茶病秧子骗他说喜欢](https://www.znenghs.com/book/i9rt2m/)
-- [在医院旧楼捡到个外科鼻祖](https://www.znenghs.com/book/i9rpmq/)
-- [如何扮演源氏重宝](https://www.znenghs.com/book/1qip9m/)
 - [全民求生:从小木屋到魔法农场](https://www.znenghs.com/book/1qip84/)
-- [替嫁后咸鱼继母佛系日常](https://www.znenghs.com/book/1qip6d/)
 - [米花无刁民](https://www.znenghs.com/book/1qip5l/)
 - [我有一座安全城](https://www.znenghs.com/book/1qip3a/)
 - [海岛求生：生活玩家种田囤货](https://www.znenghs.com/book/1qioop/)
@@ -169,7 +165,6 @@
 - [高门小婢](https://www.znenghs.com/book/1qio1t/)
 - [大瑛弟国](https://www.znenghs.com/book/1qine0/)
 - [猫猫也要养家糊口](https://www.znenghs.com/book/1qinbe/)
-- [警察，但犯罪大师系统[刑侦]](https://www.znenghs.com/book/1qin70/)
 - [95美国贵族高中模拟](https://www.znenghs.com/book/5rfun/)
 - [我是唯一地上神国](https://www.znenghs.com/book/5rfri/)
 - [五十年代港城日常](https://www.znenghs.com/book/5rfp6/)

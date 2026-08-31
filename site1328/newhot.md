@@ -1,7 +1,7 @@
 
 # 新乐文小说 - 最热门免费在线阅读平台 | 玄幻、网游、言情、穿越、都市全本小说
 
-更新时间：2026-08-31 03:29:26
+更新时间：2026-09-01 03:30:00
 
 新乐文小说为您提供一个无广告无弹窗的纯净阅读环境，专注于玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读体验。在这里可以找到最新最热的小说章节更新，享受舒适的阅读时光。
 
@@ -10,24 +10,20 @@
 ## 最新小说
 - [井闼山经理每天都被挖墙脚](https://www.ksqinlida.com/book/1svdoi4/)
 - [阿竹与野桃](https://www.ksqinlida.com/book/1svdoh1/)
-- [失而复得的白月光[快穿]](https://www.ksqinlida.com/book/1svdog2/)
-- [我的烧烤摊超美味[美食]](https://www.ksqinlida.com/book/1svdofr/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.ksqinlida.com/book/1svdof3/)
 - [你，后室管理员](https://www.ksqinlida.com/book/1svdocq/)
-- [他要和我谈恋爱](https://www.ksqinlida.com/book/1svdobo/)
 - [[封神]圣人生欲](https://www.ksqinlida.com/book/1svdobm/)
 - [星际团宠小人鱼](https://www.ksqinlida.com/book/1svdob0/)
-- [分手后与诱系妻子再度热恋](https://www.ksqinlida.com/book/1svdoap/)
 - [高调装神，猥琐发育](https://www.ksqinlida.com/book/1svdoah/)
 - [直男咒术师的限制级游戏](https://www.ksqinlida.com/book/1svdo8f/)
 - [纯爱宇智波基本恋爱法](https://www.ksqinlida.com/book/1svdo7f/)
-- [某柯学的正义伙伴](https://www.ksqinlida.com/book/1svavfs/)
-- [男朋友买一送一](https://www.ksqinlida.com/book/1svakm4/)
-- [我有嘉宾](https://www.ksqinlida.com/book/1svacf0/)
+- [女扮男装科举和皇帝撞脸了！](https://www.ksqinlida.com/book/1svdo62/)
 - [寻真](https://www.ksqinlida.com/book/1sva2pr/)
-- [沈助理又在隐藏他的超能力](https://www.ksqinlida.com/book/636mq8/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.ksqinlida.com/book/636alp/)
+- [逝水](https://www.ksqinlida.com/book/636bq9/)
+- [老公是松散生命体](https://www.ksqinlida.com/book/635qo7/)
+- [这谁的沙雕二次元心声！](https://www.ksqinlida.com/book/635pmh/)
 - [青空来信](https://www.ksqinlida.com/book/635pm2/)
+- [多梦你一会儿](https://www.ksqinlida.com/book/635cmb/)
 - [[足球]罗蜜第一志愿](https://www.ksqinlida.com/book/635bun/)
 - [拯救世界从扮演反派开始](https://www.ksqinlida.com/book/635bf7/)
 ## 相关内容

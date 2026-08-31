@@ -1,13 +1,14 @@
 
 # 家家福顶点书包 - 免费TXT小说下载, 手机电子书资源
 
-更新时间：2026-08-31 03:26:46
+更新时间：2026-09-01 03:27:18
 
 家家福顶点书包为您提供最新最全的小说资源，包括但不限于txt电子书、手机txt小说下载等服务，所有内容均支持全本免费下载，是小说爱好者的理想选择。
 
 - [家家福顶点书包](https://www.jjfbaijia.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.jjfbaijia.com/book/8hhvks5/)
 - [发家致富小夫郎](https://www.jjfbaijia.com/book/8hhvks4/)
 - [氪金游戏，从养成林太郎开始](https://www.jjfbaijia.com/book/8hhvks3/)
 - [与亡夫春风一度后](https://www.jjfbaijia.com/book/8hhvkru/)
@@ -68,6 +69,7 @@
 - [昼色清明](https://www.jjfbaijia.com/book/8hhvkne/)
 - [游戏角色想和玩家谈恋爱](https://www.jjfbaijia.com/book/8hhvkn9/)
 - [青城玩家明明超强却过分谨慎](https://www.jjfbaijia.com/book/8hhvkn7/)
+- [养父](https://www.jjfbaijia.com/book/8hhvkmv/)
 - [九零首富的替嫁小媳妇](https://www.jjfbaijia.com/book/8hhvkln/)
 - [星际团宠小人鱼](https://www.jjfbaijia.com/book/8hhvkl5/)
 - [十九世纪贵族厨房（美食）](https://www.jjfbaijia.com/book/8hhvkkl/)
@@ -83,6 +85,7 @@
 - [九零重组小家庭](https://www.jjfbaijia.com/book/8hhu07h/)
 - [灭世龙崽有什么错](https://www.jjfbaijia.com/book/8hhttcj/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.jjfbaijia.com/book/8hhts2v/)
+- [从维多利亚时代开始](https://www.jjfbaijia.com/book/8hhtav0/)
 - [我有特殊的升官技巧](https://www.jjfbaijia.com/book/8hht8bp/)
 - [御兽师，我打工养你啊](https://www.jjfbaijia.com/book/8hht6dn/)
 - [反派人生，易如反掌[快穿]](https://www.jjfbaijia.com/book/8hht4th/)
@@ -100,7 +103,6 @@
 - [人妻O救赎指南](https://www.jjfbaijia.com/book/8hhs5eb/)
 - [摄政王家的咸鱼夫郎](https://www.jjfbaijia.com/book/8hhs275/)
 - [始皇闺女躺平失败的日子](https://www.jjfbaijia.com/book/8hhs0ro/)
-- [万人嫌女配过分漂亮](https://www.jjfbaijia.com/book/8hhru25/)
 - [寄人篱下](https://www.jjfbaijia.com/book/8hhrtvl/)
 - [当我穿为龙傲天的情敌](https://www.jjfbaijia.com/book/8hhrtj0/)
 - [全球进化，而我保持不变](https://www.jjfbaijia.com/book/rbf3e4/)
@@ -154,6 +156,7 @@
 - [我真的没想在选秀炒CP](https://www.jjfbaijia.com/book/rbd4hh/)
 - [绿茶病秧子骗他说喜欢](https://www.jjfbaijia.com/book/rbd3hi/)
 - [搭档，一起来玩求生游戏吧！](https://www.jjfbaijia.com/book/rbd1q3/)
+- [在医院旧楼捡到个外科鼻祖](https://www.jjfbaijia.com/book/rbd1o4/)
 - [把清冷权臣调成荡夫后](https://www.jjfbaijia.com/book/rbd1df/)
 - [清澈女大的六零年代](https://www.jjfbaijia.com/book/2nh9qi/)
 - [95美国贵族高中模拟](https://www.jjfbaijia.com/book/2nh9mr/)

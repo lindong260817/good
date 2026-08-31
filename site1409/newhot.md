@@ -1,36 +1,36 @@
 
 # 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
 
-更新时间：2026-08-31 03:20:09
+更新时间：2026-09-01 03:20:31
 
 瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！
 
 - [瑞文文学网](https://www.49ig.com/)
 
 ## 最新小说
-- [被鬼怪宠爱的漂亮书生](https://www.49ig.com/book/436d0hf/)
-- [男朋友买一送一](https://www.49ig.com/book/436ctj2/)
+- [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.49ig.com/book/436cr8s/)
 - [阿竹与野桃](https://www.49ig.com/book/436cr0k/)
 - [如何正确哄睡暴君](https://www.49ig.com/book/436cntc/)
-- [我不可能舔一个漂亮捞子](https://www.49ig.com/book/436cl3f/)
+- [逝水](https://www.49ig.com/book/436cmg5/)
+- [老公是松散生命体](https://www.49ig.com/book/436chmq/)
 - [微臣怜惜公主](https://www.49ig.com/book/436cen1/)
 - [法外狂猫](https://www.49ig.com/book/436ccqr/)
 - [寻真](https://www.49ig.com/book/436cbj1/)
 - [和室友他爸恋爱后](https://www.49ig.com/book/436c5vf/)
-- [沈助理又在隐藏他的超能力](https://www.49ig.com/book/436c5k5/)
+- [就算是龙傲天也不可以[快穿]](https://www.49ig.com/book/436c48f/)
+- [女扮男装科举和皇帝撞脸了！](https://www.49ig.com/book/436c3f2/)
 - [直男咒术师的限制级游戏](https://www.49ig.com/book/436bt93/)
 - [穿为清冷影后的污点A](https://www.49ig.com/book/436bp45/)
+- [这谁的沙雕二次元心声！](https://www.49ig.com/book/436boel/)
+- [多梦你一会儿](https://www.49ig.com/book/436bnpv/)
 - [豪门养子怀了大哥的崽](https://www.49ig.com/book/436bn8t/)
-- [侯府打工人](https://www.49ig.com/book/436bn0r/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.49ig.com/book/436bk4m/)
+- [善逸拒绝成为咒术师](https://www.49ig.com/book/436bn4r/)
+- [炮灰的我该如何上位？](https://www.49ig.com/book/436bms8/)
 - [拯救世界从扮演反派开始](https://www.49ig.com/book/436bjn2/)
 - [井闼山经理每天都被挖墙脚](https://www.49ig.com/book/436biu0/)
 - [[足球]小小鸟堂堂来袭](https://www.49ig.com/book/436bi2v/)
 - [[足球]罗蜜第一志愿](https://www.49ig.com/book/436bgah/)
 - [青空来信](https://www.49ig.com/book/436bdpf/)
-- [某柯学的正义伙伴](https://www.49ig.com/book/436bcih/)
-- [契约情人](https://www.49ig.com/book/436bc1p/)
-- [在女仆咖啡店兼职被校草缠上后](https://www.49ig.com/book/436bb33/)
 - [好兄弟暴富后非要跟我结婚](https://www.49ig.com/book/436bapo/)
 - [关于我虚构了一个男友这件事](https://www.49ig.com/book/436b9ks/)
 - [纯爱宇智波基本恋爱法](https://www.49ig.com/book/436986d/)
@@ -38,8 +38,6 @@
 - [高调装神，猥琐发育](https://www.49ig.com/book/4369798/)
 - [星际团宠小人鱼](https://www.49ig.com/book/43696p6/)
 - [[封神]圣人生欲](https://www.49ig.com/book/43696e5/)
-- [分手后与诱系妻子再度热恋](https://www.49ig.com/book/43695kh/)
-- [他要和我谈恋爱](https://www.49ig.com/book/43695jr/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1409/index.md)

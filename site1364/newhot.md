@@ -1,7 +1,7 @@
 
 # 科幻读书-免费小说阅读|言情小说|小说排行榜|全本完本小说下载
 
-更新时间：2026-08-31 03:28:38
+更新时间：2026-09-01 03:29:12
 
 科幻读书提供海量完结全本小说在线阅读服务，涵盖言情、都市、耽美、穿越等多种类型，并定期更新连载章节及发布最新小说排行榜单。支持有声小说推荐与下载。
 
@@ -10,37 +10,31 @@
 ## 最新小说
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kehuan918.com/book/1d564uf/)
 - [阿竹与野桃](https://www.kehuan918.com/book/1d564r4/)
-- [我的烧烤摊超美味[美食]](https://www.kehuan918.com/book/1d564qq/)
-- [我有嘉宾](https://www.kehuan918.com/book/1d5608m/)
 - [星际团宠小人鱼](https://www.kehuan918.com/book/1d555km/)
-- [分手后与诱系妻子再度热恋](https://www.kehuan918.com/book/1d555i8/)
 - [你，后室管理员](https://www.kehuan918.com/book/1d555i5/)
 - [高调装神，猥琐发育](https://www.kehuan918.com/book/1d54udq/)
-- [男朋友买一送一](https://www.kehuan918.com/book/1d54jj5/)
-- [失而复得的白月光[快穿]](https://www.kehuan918.com/book/1d54fcv/)
 - [如何正确哄睡暴君](https://www.kehuan918.com/book/1d54cjp/)
+- [逝水](https://www.kehuan918.com/book/1d542na/)
 - [寻真](https://www.kehuan918.com/book/1d542de/)
-- [我不可能舔一个漂亮捞子](https://www.kehuan918.com/book/1d541jp/)
-- [沈助理又在隐藏他的超能力](https://www.kehuan918.com/book/1d53se7/)
-- [被鬼怪宠爱的漂亮书生](https://www.kehuan918.com/book/1d53rdl/)
+- [老公是松散生命体](https://www.kehuan918.com/book/1d53s5q/)
 - [微臣怜惜公主](https://www.kehuan918.com/book/1d53qtl/)
-- [他要和我谈恋爱](https://www.kehuan918.com/book/1d53gfj/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.kehuan918.com/book/1d53cdo/)
+- [多梦你一会儿](https://www.kehuan918.com/book/1d53cao/)
 - [[封神]圣人生欲](https://www.kehuan918.com/book/1d53b3v/)
+- [炮灰的我该如何上位？](https://www.kehuan918.com/book/1d53akt/)
+- [善逸拒绝成为咒术师](https://www.kehuan918.com/book/1d5396c/)
+- [这谁的沙雕二次元心声！](https://www.kehuan918.com/book/1d538ij/)
 - [青空来信](https://www.kehuan918.com/book/1d533ib/)
 - [[足球]罗蜜第一志愿](https://www.kehuan918.com/book/1d532is/)
-- [某柯学的正义伙伴](https://www.kehuan918.com/book/1d531t8/)
 - [井闼山经理每天都被挖墙脚](https://www.kehuan918.com/book/1d52ub8/)
 - [[足球]小小鸟堂堂来袭](https://www.kehuan918.com/book/1d52n2n/)
-- [侯府打工人](https://www.kehuan918.com/book/1d52h9d/)
 - [法外狂猫](https://www.kehuan918.com/book/1d52g6a/)
 - [好兄弟暴富后非要跟我结婚](https://www.kehuan918.com/book/1d52fd5/)
 - [关于我虚构了一个男友这件事](https://www.kehuan918.com/book/1d52efa/)
-- [契约情人](https://www.kehuan918.com/book/1d52cqm/)
 - [和室友他爸恋爱后](https://www.kehuan918.com/book/1d524p8/)
 - [直男咒术师的限制级游戏](https://www.kehuan918.com/book/1d50vp0/)
 - [纯爱宇智波基本恋爱法](https://www.kehuan918.com/book/1d50voa/)
 - [拯救世界从扮演反派开始](https://www.kehuan918.com/book/1d50tm8/)
+- [女扮男装科举和皇帝撞脸了！](https://www.kehuan918.com/book/1d50t2e/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1364/index.md)
