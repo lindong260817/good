@@ -1,13 +1,14 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-08-31 03:25:10
+更新时间：2026-09-01 03:25:41
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
 - [故事文学网](https://www.gushi1314.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.gushi1314.com/book/8m9jua3/)
 - [发家致富小夫郎](https://www.gushi1314.com/book/8m9jua2/)
 - [猫猫也要被魅魔魅惑吗？](https://www.gushi1314.com/book/8m9jua1/)
 - [游戏角色想和玩家谈恋爱](https://www.gushi1314.com/book/8m9ju9s/)
@@ -68,6 +69,7 @@
 - [被怪物女友始乱终弃后[gb]](https://www.gushi1314.com/book/8m9ju54/)
 - [水管工[GB]](https://www.gushi1314.com/book/8m9ju52/)
 - [太子哥哥不想当哥哥](https://www.gushi1314.com/book/8m9ju4v/)
+- [养父](https://www.gushi1314.com/book/8m9ju4t/)
 - [九零首富的替嫁小媳妇](https://www.gushi1314.com/book/8m9ju3k/)
 - [十九世纪贵族厨房（美食）](https://www.gushi1314.com/book/8m9ju2m/)
 - [星际团宠小人鱼](https://www.gushi1314.com/book/8m9ju2l/)
@@ -83,6 +85,7 @@
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.gushi1314.com/book/8m9icev/)
 - [九零重组小家庭](https://www.gushi1314.com/book/8m9i6se/)
 - [灭世龙崽有什么错](https://www.gushi1314.com/book/8m9i66j/)
+- [从维多利亚时代开始](https://www.gushi1314.com/book/8m9hicr/)
 - [我有特殊的升官技巧](https://www.gushi1314.com/book/8m9hfnn/)
 - [御兽师，我打工养你啊](https://www.gushi1314.com/book/8m9hdrb/)
 - [反派人生，易如反掌[快穿]](https://www.gushi1314.com/book/8m9hc90/)
@@ -99,7 +102,6 @@
 - [人妻O救赎指南](https://www.gushi1314.com/book/8m9gffk/)
 - [第一游侠[全息]](https://www.gushi1314.com/book/8m9gebv/)
 - [摄政王家的咸鱼夫郎](https://www.gushi1314.com/book/8m9gcr9/)
-- [万人嫌女配过分漂亮](https://www.gushi1314.com/book/8m9g9oh/)
 - [寄人篱下](https://www.gushi1314.com/book/8m9g98b/)
 - [始皇闺女躺平失败的日子](https://www.gushi1314.com/book/8m9g8gu/)
 - [全球进化，而我保持不变](https://www.gushi1314.com/book/8m9g7m3/)
@@ -155,6 +157,7 @@
 - [搭档，一起来玩求生游戏吧！](https://www.gushi1314.com/book/rqibh8/)
 - [绿茶病秧子骗他说喜欢](https://www.gushi1314.com/book/rqib83/)
 - [把清冷权臣调成荡夫后](https://www.gushi1314.com/book/rqi9e4/)
+- [在医院旧楼捡到个外科鼻祖](https://www.gushi1314.com/book/rqi7mp/)
 - [[娱乐圈]过分美丽的她](https://www.gushi1314.com/book/2p1qis/)
 - [大瑛弟国](https://www.gushi1314.com/book/2p1qb8/)
 - [科学主义魔法学院](https://www.gushi1314.com/book/2p1q8l/)

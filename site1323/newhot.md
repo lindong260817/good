@@ -1,33 +1,29 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-08-31 03:42:48
+更新时间：2026-09-01 03:43:24
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
 - [阅读小说网](https://www.yuedu687.com/)
 
 ## 最新小说
-- [失而复得的白月光[快穿]](https://www.yuedu687.com/book/2bu5itf/)
 - [井闼山经理每天都被挖墙脚](https://www.yuedu687.com/book/2bu5ise/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.yuedu687.com/book/2bu5iri/)
-- [我的烧烤摊超美味[美食]](https://www.yuedu687.com/book/2bu5iqe/)
 - [阿竹与野桃](https://www.yuedu687.com/book/2bu5ipe/)
 - [你，后室管理员](https://www.yuedu687.com/book/2bu5ioo/)
-- [分手后与诱系妻子再度热恋](https://www.yuedu687.com/book/2bu5iol/)
-- [他要和我谈恋爱](https://www.yuedu687.com/book/2bu5io5/)
 - [星际团宠小人鱼](https://www.yuedu687.com/book/2bu5ink/)
 - [[封神]圣人生欲](https://www.yuedu687.com/book/2bu5ine/)
 - [高调装神，猥琐发育](https://www.yuedu687.com/book/2bu5imi/)
+- [女扮男装科举和皇帝撞脸了！](https://www.yuedu687.com/book/2bu5ikt/)
 - [直男咒术师的限制级游戏](https://www.yuedu687.com/book/2bu5iis/)
 - [纯爱宇智波基本恋爱法](https://www.yuedu687.com/book/2bu5iim/)
-- [某柯学的正义伙伴](https://www.yuedu687.com/book/2bu2q4r/)
-- [男朋友买一送一](https://www.yuedu687.com/book/2bu2fg1/)
-- [我有嘉宾](https://www.yuedu687.com/book/2bu27br/)
 - [寻真](https://www.yuedu687.com/book/2bu1tfi/)
-- [沈助理又在隐藏他的超能力](https://www.yuedu687.com/book/7j2na0/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.yuedu687.com/book/7j273p/)
+- [逝水](https://www.yuedu687.com/book/7j2cd1/)
+- [老公是松散生命体](https://www.yuedu687.com/book/7j1qih/)
+- [这谁的沙雕二次元心声！](https://www.yuedu687.com/book/7j1pb9/)
 - [青空来信](https://www.yuedu687.com/book/7j1p49/)
+- [多梦你一会儿](https://www.yuedu687.com/book/7j1ck7/)
 - [[足球]罗蜜第一志愿](https://www.yuedu687.com/book/7j1bi8/)
 - [拯救世界从扮演反派开始](https://www.yuedu687.com/book/7j196g/)
 ## 相关内容
