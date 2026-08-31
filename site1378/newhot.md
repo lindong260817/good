@@ -1,49 +1,43 @@
 
 # 灌南华侨小说网笔趣阁_书友最值得收藏的网络小说阅读网
 
-更新时间：2026-08-31 03:24:40
+更新时间：2026-09-01 03:25:11
 
 灌南华侨小说网笔趣阁海量免费小说在线阅读平台，汇聚玄幻、都市、言情、科幻、悬疑等全品类热门小说，实时更新全网爆款佳作。无广告干扰，支持缓存离线看，让你随时随地沉浸阅读世界，找书看书就来笔趣阁，满足你的所有阅读渴望。
 
 - [灌南华侨小说网](https://www.gnhqbs.com/)
 
 ## 最新小说
-- [我的烧烤摊超美味[美食]](https://www.gnhqbs.com/book/1cqms1a/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.gnhqbs.com/book/1cqms13/)
 - [阿竹与野桃](https://www.gnhqbs.com/book/1cqms0v/)
-- [我有嘉宾](https://www.gnhqbs.com/book/1cqme6v/)
+- [就算是龙傲天也不可以[快穿]](https://www.gnhqbs.com/book/1cqm2c4/)
 - [豪门养子怀了大哥的崽](https://www.gnhqbs.com/book/1cqm1rr/)
-- [失而复得的白月光[快穿]](https://www.gnhqbs.com/book/1cqktgk/)
-- [男朋友买一送一](https://www.gnhqbs.com/book/1cqktea/)
-- [被鬼怪宠爱的漂亮书生](https://www.gnhqbs.com/book/1cqkm91/)
 - [如何正确哄睡暴君](https://www.gnhqbs.com/book/1cqkl0l/)
-- [我不可能舔一个漂亮捞子](https://www.gnhqbs.com/book/1cqkf3j/)
+- [逝水](https://www.gnhqbs.com/book/1cqkg73/)
 - [寻真](https://www.gnhqbs.com/book/1cqkctb/)
+- [老公是松散生命体](https://www.gnhqbs.com/book/1cqkcnb/)
 - [微臣怜惜公主](https://www.gnhqbs.com/book/1cqkadr/)
-- [沈助理又在隐藏他的超能力](https://www.gnhqbs.com/book/1cqk7e2/)
+- [女扮男装科举和皇帝撞脸了！](https://www.gnhqbs.com/book/1cqk47l/)
 - [直男咒术师的限制级游戏](https://www.gnhqbs.com/book/1cqjukk/)
+- [多梦你一会儿](https://www.gnhqbs.com/book/1cqjo6n/)
+- [这谁的沙雕二次元心声！](https://www.gnhqbs.com/book/1cqjo03/)
+- [炮灰的我该如何上位？](https://www.gnhqbs.com/book/1cqjnml/)
 - [穿为清冷影后的污点A](https://www.gnhqbs.com/book/1cqjnlc/)
-- [[综武侠]万人迷小姐想要富贵荣华](https://www.gnhqbs.com/book/1cqjl6e/)
+- [善逸拒绝成为咒术师](https://www.gnhqbs.com/book/1cqjjkn/)
 - [井闼山经理每天都被挖墙脚](https://www.gnhqbs.com/book/1cqji9h/)
 - [拯救世界从扮演反派开始](https://www.gnhqbs.com/book/1cqjhuk/)
 - [[足球]罗蜜第一志愿](https://www.gnhqbs.com/book/1cqje80/)
-- [在女仆咖啡店兼职被校草缠上后](https://www.gnhqbs.com/book/1cqjdde/)
-- [侯府打工人](https://www.gnhqbs.com/book/1cqjcqm/)
 - [青空来信](https://www.gnhqbs.com/book/1cqjc9p/)
-- [某柯学的正义伙伴](https://www.gnhqbs.com/book/1cqjbdr/)
 - [[足球]小小鸟堂堂来袭](https://www.gnhqbs.com/book/1cqj6qd/)
-- [契约情人](https://www.gnhqbs.com/book/1cqj5c9/)
 - [法外狂猫](https://www.gnhqbs.com/book/1cqj2qm/)
 - [好兄弟暴富后非要跟我结婚](https://www.gnhqbs.com/book/1cqj1km/)
 - [关于我虚构了一个男友这件事](https://www.gnhqbs.com/book/1cqite4/)
 - [和室友他爸恋爱后](https://www.gnhqbs.com/book/1cqisn2/)
 - [[封神]圣人生欲](https://www.gnhqbs.com/book/1cqha6t/)
 - [星际团宠小人鱼](https://www.gnhqbs.com/book/1cqh9or/)
-- [分手后与诱系妻子再度热恋](https://www.gnhqbs.com/book/1cqh9lo/)
 - [高调装神，猥琐发育](https://www.gnhqbs.com/book/1cqh9jg/)
 - [纯爱宇智波基本恋爱法](https://www.gnhqbs.com/book/1cqh83r/)
 - [你，后室管理员](https://www.gnhqbs.com/book/1cqh7ij/)
-- [他要和我谈恋爱](https://www.gnhqbs.com/book/1cqh7d2/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1378/index.md)

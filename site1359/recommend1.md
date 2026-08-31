@@ -1,13 +1,14 @@
 
 # 笔架中文小说_书友必备的无弹窗小说阅读网
 
-更新时间：2026-08-31 03:21:22
+更新时间：2026-09-01 03:21:47
 
 笔架中文小说致力于打造国内最权威免费小说阅读网, 提供小说在线阅读, 小说TXT下载, 网站页面清爽简洁是广大网络小说爱好者必备的小说阅读网。
 
 - [笔架中文小说](https://www.bijia188.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.bijia188.com/book/6tolh5t/)
 - [发家致富小夫郎](https://www.bijia188.com/book/6tolcj4/)
 - [[希腊神话]诸神都是我学生](https://www.bijia188.com/book/6tolab1/)
 - [师姐她怎么还不来追求我](https://www.bijia188.com/book/6tolab0/)
@@ -66,8 +67,10 @@
 - [灭世龙崽有什么错](https://www.bijia188.com/book/6tol0tl/)
 - [九零重组小家庭](https://www.bijia188.com/book/6tokv1s/)
 - [人妻O救赎指南](https://www.bijia188.com/book/6toku07/)
+- [养父](https://www.bijia188.com/book/6toktun/)
 - [在虫族世界逃命升级](https://www.bijia188.com/book/6tokqgk/)
 - [神豪文男主是我爸](https://www.bijia188.com/book/6tokpnj/)
+- [从维多利亚时代开始](https://www.bijia188.com/book/6tokgmh/)
 - [我有特殊的升官技巧](https://www.bijia188.com/book/6tokdoh/)
 - [十九世纪贵族厨房（美食）](https://www.bijia188.com/book/6tokb1l/)
 - [星际团宠小人鱼](https://www.bijia188.com/book/6tokb0f/)
@@ -81,7 +84,6 @@
 - [九零首富的替嫁小媳妇](https://www.bijia188.com/book/6tojbm7/)
 - [我写小说纯粹为了赚钱](https://www.bijia188.com/book/6tojber/)
 - [始皇闺女躺平失败的日子](https://www.bijia188.com/book/6toj9p8/)
-- [万人嫌女配过分漂亮](https://www.bijia188.com/book/6toj9p3/)
 - [寄人篱下](https://www.bijia188.com/book/6toj9j6/)
 - [为诡异打工，但反封建迷信](https://www.bijia188.com/book/6toj56f/)
 - [误标记隔壁阿姨O之后](https://www.bijia188.com/book/6toj4a0/)
@@ -144,6 +146,7 @@
 - [我不是御兽大师](https://www.bijia188.com/book/6toh890/)
 - [徐娘子的美食发家日常](https://www.bijia188.com/book/6toh4nf/)
 - [我真的没想在选秀炒CP](https://www.bijia188.com/book/6toh4bu/)
+- [在医院旧楼捡到个外科鼻祖](https://www.bijia188.com/book/6toh22b/)
 - [把清冷权臣调成荡夫后](https://www.bijia188.com/book/6toh1kg/)
 - [[群穿]我在御兽番抢人气](https://www.bijia188.com/book/6toh1ho/)
 - [科学主义魔法学院](https://www.bijia188.com/book/6tog5l2/)

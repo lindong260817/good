@@ -1,13 +1,14 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-08-31 03:29:44
+更新时间：2026-09-01 03:30:17
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
 - [连载小说网](https://www.lianzai007.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.lianzai007.com/book/6g3n1k8/)
 - [发家致富小夫郎](https://www.lianzai007.com/book/6g3n1k7/)
 - [女先生](https://www.lianzai007.com/book/6g3n1k6/)
 - [暴君偏头痛](https://www.lianzai007.com/book/6g3n1k5/)
@@ -68,6 +69,7 @@
 - [始乱终弃高岭之花以后](https://www.lianzai007.com/book/6g3n1fa/)
 - [我的烧烤摊超美味[美食]](https://www.lianzai007.com/book/6g3n1f9/)
 - [撕碎[刑侦]](https://www.lianzai007.com/book/6g3n1f4/)
+- [养父](https://www.lianzai007.com/book/6g3n1f2/)
 - [九零首富的替嫁小媳妇](https://www.lianzai007.com/book/6g3n1et/)
 - [星际团宠小人鱼](https://www.lianzai007.com/book/6g3n1eg/)
 - [十九世纪贵族厨房（美食）](https://www.lianzai007.com/book/6g3n1cl/)
@@ -83,6 +85,7 @@
 - [九零重组小家庭](https://www.lianzai007.com/book/6g3lgrl/)
 - [灭世龙崽有什么错](https://www.lianzai007.com/book/6g3laoq/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.lianzai007.com/book/6g3l7rn/)
+- [从维多利亚时代开始](https://www.lianzai007.com/book/6g3kmss/)
 - [我有特殊的升官技巧](https://www.lianzai007.com/book/6g3kk69/)
 - [御兽师，我打工养你啊](https://www.lianzai007.com/book/6g3ki3u/)
 - [反派人生，易如反掌[快穿]](https://www.lianzai007.com/book/6g3kgp7/)
@@ -98,7 +101,6 @@
 - [趁她之危](https://www.lianzai007.com/book/6g3jl8v/)
 - [第一游侠[全息]](https://www.lianzai007.com/book/6g3jk36/)
 - [人妻O救赎指南](https://www.lianzai007.com/book/6g3jjkk/)
-- [万人嫌女配过分漂亮](https://www.lianzai007.com/book/6g3jf6t/)
 - [始皇闺女躺平失败的日子](https://www.lianzai007.com/book/6g3jec7/)
 - [摄政王家的咸鱼夫郎](https://www.lianzai007.com/book/6g3jcn5/)
 - [寄人篱下](https://www.lianzai007.com/book/kq1f5j/)
@@ -154,6 +156,7 @@
 - [绿茶病秧子骗他说喜欢](https://www.lianzai007.com/book/kpvg1e/)
 - [我真的没想在选秀炒CP](https://www.lianzai007.com/book/kpveje/)
 - [今天在伟大航路抽到SSR了吗](https://www.lianzai007.com/book/kpvej8/)
+- [在医院旧楼捡到个外科鼻祖](https://www.lianzai007.com/book/kpvd2t/)
 - [把清冷权臣调成荡夫后](https://www.lianzai007.com/book/kpvcke/)
 - [替嫁后咸鱼继母佛系日常](https://www.lianzai007.com/book/22j4f8/)
 - [卧底后被港岛大小姐缠上了](https://www.lianzai007.com/book/22j4e1/)

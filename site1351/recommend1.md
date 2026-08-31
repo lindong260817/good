@@ -1,14 +1,15 @@
 
 # 泡泡中文小说-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-08-31 03:41:03
+更新时间：2026-09-01 03:41:37
 
 泡泡中文小说是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
 - [泡泡中文小说](https://www.xiaoshuo288.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.xiaoshuo288.com/book/dm3q43/)
+- [死遁后，师弟他不哄不停](https://www.xiaoshuo288.com/book/dm3sg5/)
+- [宠妃岂敢压我！](https://www.xiaoshuo288.com/book/dm3sf8/)
 - [发家致富小夫郎](https://www.xiaoshuo288.com/book/dm3lgs/)
 - [败类游戏](https://www.xiaoshuo288.com/book/dm3j7l/)
 - [游戏角色想和玩家谈恋爱](https://www.xiaoshuo288.com/book/dm3j7k/)
@@ -66,12 +67,10 @@
 - [我真的只会Ctrl啊！！！](https://www.xiaoshuo288.com/book/dm3gnp/)
 - [灭世龙崽有什么错](https://www.xiaoshuo288.com/book/dm39hf/)
 - [九零重组小家庭](https://www.xiaoshuo288.com/book/dm37lf/)
-- [养父](https://www.xiaoshuo288.com/book/dm373l/)
-- [人妻O救赎指南](https://www.xiaoshuo288.com/book/dm372a/)
+- [假少爷有特殊的算命技巧](https://www.xiaoshuo288.com/book/dm36r0/)
 - [在虫族世界逃命升级](https://www.xiaoshuo288.com/book/dm333m/)
 - [神豪文男主是我爸](https://www.xiaoshuo288.com/book/dm323i/)
 - [从维多利亚时代开始](https://www.xiaoshuo288.com/book/dm2p9s/)
-- [我有特殊的升官技巧](https://www.xiaoshuo288.com/book/dm2mch/)
 - [十九世纪贵族厨房（美食）](https://www.xiaoshuo288.com/book/dm2ken/)
 - [星际团宠小人鱼](https://www.xiaoshuo288.com/book/dm2k9m/)
 - [反派人生，易如反掌[快穿]](https://www.xiaoshuo288.com/book/dm2iug/)
@@ -89,7 +88,6 @@
 - [误标记隔壁阿姨O之后](https://www.xiaoshuo288.com/book/dm1c6s/)
 - [当我穿为龙傲天的情敌](https://www.xiaoshuo288.com/book/dm1bjn/)
 - [十福晋吃瓜日常(清穿)](https://www.xiaoshuo288.com/book/dm1bgh/)
-- [社恐直播鉴宝，但带球跑](https://www.xiaoshuo288.com/book/dm1bap/)
 - [不当救世主就要当人类恶了吗](https://www.xiaoshuo288.com/book/dm1b0e/)
 - [在民俗惊悚片被诸神庇护](https://www.xiaoshuo288.com/book/dm1a5f/)
 - [[全职高手]霸图老板是叶修](https://www.xiaoshuo288.com/book/dm17s2/)
@@ -97,7 +95,6 @@
 - [当菟丝花要分手后](https://www.xiaoshuo288.com/book/dm16e0/)
 - [养成游戏，但破解版](https://www.xiaoshuo288.com/book/dm12pv/)
 - [霓虹夏日](https://www.xiaoshuo288.com/book/dm0ui5/)
-- [替嫁后咸鱼继母佛系日常](https://www.xiaoshuo288.com/book/dm0sh3/)
 - [今天又该给祖宗哭坟了[快穿]](https://www.xiaoshuo288.com/book/dm0pfd/)
 - [[综英美]让我统治哥谭！！！](https://www.xiaoshuo288.com/book/dm0od3/)
 - [米花无刁民](https://www.xiaoshuo288.com/book/dm0ni3/)
@@ -146,7 +143,6 @@
 - [我不是御兽大师](https://www.xiaoshuo288.com/book/dlvenp/)
 - [徐娘子的美食发家日常](https://www.xiaoshuo288.com/book/dlvcne/)
 - [我真的没想在选秀炒CP](https://www.xiaoshuo288.com/book/dlvc3r/)
-- [在医院旧楼捡到个外科鼻祖](https://www.xiaoshuo288.com/book/dlvb23/)
 - [把清冷权臣调成荡夫后](https://www.xiaoshuo288.com/book/dlvale/)
 - [[群穿]我在御兽番抢人气](https://www.xiaoshuo288.com/book/dlvaf1/)
 - [成为养成系练习生后](https://www.xiaoshuo288.com/book/dlue8s/)
@@ -158,13 +154,12 @@
 - [假少爷不想活了](https://www.xiaoshuo288.com/book/dludh6/)
 - [卧底后被港岛大小姐缠上了](https://www.xiaoshuo288.com/book/dludgd/)
 - [大瑛弟国](https://www.xiaoshuo288.com/book/dludfv/)
-- [如何扮演源氏重宝](https://www.xiaoshuo288.com/book/dludfo/)
 - [御兽师，我打工养你啊](https://www.xiaoshuo288.com/book/dlud7n/)
-- [警察，但犯罪大师系统[刑侦]](https://www.xiaoshuo288.com/book/dlud5g/)
 - [全民求生:从小木屋到魔法农场](https://www.xiaoshuo288.com/book/dlucs6/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.xiaoshuo288.com/book/dlucq9/)
 - [95美国贵族高中模拟](https://www.xiaoshuo288.com/book/dlucmf/)
 - [五十年代港城日常](https://www.xiaoshuo288.com/book/dlucdh/)
+- [绝不会喜欢五条君的！](https://www.xiaoshuo288.com/book/dluc2l/)
 - [千禧年，拆迁分了十栋楼！](https://www.xiaoshuo288.com/book/dlubvh/)
 - [巨物致富：回乡开钓场](https://www.xiaoshuo288.com/book/dlubuf/)
 - [高门小婢](https://www.xiaoshuo288.com/book/dlubsg/)

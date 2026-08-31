@@ -1,13 +1,14 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-08-31 03:24:11
+更新时间：2026-09-01 03:24:41
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。
 
 - [笔下文学](https://www.fshxjd.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.fshxjd.com/book/74i3mo5/)
 - [发家致富小夫郎](https://www.fshxjd.com/book/74i3mo4/)
 - [我夫君怎会是龙傲天？](https://www.fshxjd.com/book/74i3lv1/)
 - [猫猫也要被魅魔魅惑吗？](https://www.fshxjd.com/book/74i3luv/)
@@ -63,6 +64,7 @@
 - [下潜一万米，海渊求生](https://www.fshxjd.com/book/74i3lq8/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.fshxjd.com/book/74i3gio/)
 - [我真的只会Ctrl啊！！！](https://www.fshxjd.com/book/74i3co6/)
+- [养父](https://www.fshxjd.com/book/74i3cht/)
 - [人妻O救赎指南](https://www.fshxjd.com/book/74i3ccl/)
 - [星际团宠小人鱼](https://www.fshxjd.com/book/74i35i1/)
 - [灭世龙崽有什么错](https://www.fshxjd.com/book/74i31g6/)
@@ -70,6 +72,7 @@
 - [神豪文男主是我爸](https://www.fshxjd.com/book/74i2rt2/)
 - [在虫族世界逃命升级](https://www.fshxjd.com/book/74i2qgk/)
 - [趁她之危](https://www.fshxjd.com/book/74i2odm/)
+- [从维多利亚时代开始](https://www.fshxjd.com/book/74i2grd/)
 - [我有特殊的升官技巧](https://www.fshxjd.com/book/74i2dvq/)
 - [反派人生，易如反掌[快穿]](https://www.fshxjd.com/book/74i2ao7/)
 - [假少爷不想活了](https://www.fshxjd.com/book/74i2abl/)
@@ -82,7 +85,6 @@
 - [全球进化，而我保持不变](https://www.fshxjd.com/book/74i1dso/)
 - [寄人篱下](https://www.fshxjd.com/book/74i1ats/)
 - [始皇闺女躺平失败的日子](https://www.fshxjd.com/book/74i18te/)
-- [万人嫌女配过分漂亮](https://www.fshxjd.com/book/74i18qo/)
 - [绿叶](https://www.fshxjd.com/book/74i18jk/)
 - [科学主义魔法学院](https://www.fshxjd.com/book/74i17lb/)
 - [我写小说纯粹为了赚钱](https://www.fshxjd.com/book/74i16ad/)
@@ -148,6 +150,7 @@
 - [徐娘子的美食发家日常](https://www.fshxjd.com/book/74hv5ia/)
 - [绿茶病秧子骗他说喜欢](https://www.fshxjd.com/book/74hv5bf/)
 - [把清冷权臣调成荡夫后](https://www.fshxjd.com/book/74hv2rr/)
+- [在医院旧楼捡到个外科鼻祖](https://www.fshxjd.com/book/74hv0o5/)
 - [[群穿]我在御兽番抢人气](https://www.fshxjd.com/book/74huuhi/)
 - [御兽师，我打工养你啊](https://www.fshxjd.com/book/74hu5qi/)
 - [卧底后被港岛大小姐缠上了](https://www.fshxjd.com/book/74hu5p6/)
