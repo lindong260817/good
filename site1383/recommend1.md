@@ -1,15 +1,17 @@
 
 # 紫竹原始小说 - 最新最全的小说文学网站
 
-更新时间：2026-08-31 03:22:41
+更新时间：2026-09-01 03:23:09
 
 紫竹原始小说是一个专注于分享最新、最全的小说文学作品的网站。我们致力于为读者带来全新的阅读体验，欢迎访问我们的网站，尽情享受文学的魅力。
 
 - [紫竹原始小说](https://www.cnysxc.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.cnysxc.com/book/8ee088c/)
 - [九零重组小家庭](https://www.cnysxc.com/book/8ee02lt/)
 - [发家致富小夫郎](https://www.cnysxc.com/book/8edvts1/)
+- [从维多利亚时代开始](https://www.cnysxc.com/book/8edvnav/)
 - [异种新婚报告](https://www.cnysxc.com/book/8edvn2j/)
 - [春归燕](https://www.cnysxc.com/book/8edvn2e/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.cnysxc.com/book/8edvn2d/)
@@ -74,7 +76,6 @@
 - [科学主义魔法学院](https://www.cnysxc.com/book/8eduqgl/)
 - [全球进化，而我保持不变](https://www.cnysxc.com/book/8eduocr/)
 - [我写小说纯粹为了赚钱](https://www.cnysxc.com/book/8edulfn/)
-- [万人嫌女配过分漂亮](https://www.cnysxc.com/book/8edul92/)
 - [寄人篱下](https://www.cnysxc.com/book/8edul5b/)
 - [第一游侠[全息]](https://www.cnysxc.com/book/8edukmu/)
 - [始皇闺女躺平失败的日子](https://www.cnysxc.com/book/8eduit5/)
@@ -139,7 +140,9 @@
 - [我真的没想在选秀炒CP](https://www.cnysxc.com/book/8edscde/)
 - [欢迎来到纳萨力克丧葬公司](https://www.cnysxc.com/book/8eds9ig/)
 - [[群穿]我在御兽番抢人气](https://www.cnysxc.com/book/8eds8hg/)
+- [在医院旧楼捡到个外科鼻祖](https://www.cnysxc.com/book/8eds74d/)
 - [人妻O救赎指南](https://www.cnysxc.com/book/8eds6pp/)
+- [养父](https://www.cnysxc.com/book/8eds4es/)
 - [警察，但犯罪大师系统[刑侦]](https://www.cnysxc.com/book/8edrcb9/)
 - [猫猫也要养家糊口](https://www.cnysxc.com/book/8edrc29/)
 - [在民俗惊悚片被诸神庇护](https://www.cnysxc.com/book/8edrc25/)

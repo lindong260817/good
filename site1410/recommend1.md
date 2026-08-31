@@ -1,18 +1,19 @@
 
 # 新华 MBA雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-08-31 03:40:33
+更新时间：2026-09-01 03:41:05
 
 新华 MBA雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。
 
 - [新华MBA雷火小说网](https://www.xhmba.com/)
 
 ## 最新小说
-- [大师兄他决定入魔[穿书]](https://www.xhmba.com/book/7mj1fn7/)
+- [死遁后，师弟他不哄不停](https://www.xhmba.com/book/7mj1mrt/)
+- [假少爷有特殊的算命技巧](https://www.xhmba.com/book/7mj1mor/)
+- [宠妃岂敢压我！](https://www.xhmba.com/book/7mj1ml9/)
 - [从维多利亚时代开始](https://www.xhmba.com/book/7mj1fli/)
 - [九零重组小家庭](https://www.xhmba.com/book/7mj18id/)
 - [发家致富小夫郎](https://www.xhmba.com/book/7mj0qlj/)
-- [社恐直播鉴宝，但带球跑](https://www.xhmba.com/book/7mj085q/)
 - [萩原警官的咒术大冒险](https://www.xhmba.com/book/7miumgg/)
 - [春归燕](https://www.xhmba.com/book/7miume3/)
 - [重临巅峰[花滑]](https://www.xhmba.com/book/7miumcq/)
@@ -134,15 +135,13 @@
 - [恶犬攻绑定上司的乖狗系统](https://www.xhmba.com/book/7miue2p/)
 - [把清冷权臣调成荡夫后](https://www.xhmba.com/book/7miucr9/)
 - [绿茶病秧子骗他说喜欢](https://www.xhmba.com/book/7miuc8f/)
+- [绝不会喜欢五条君的！](https://www.xhmba.com/book/7miubcc/)
 - [我真的没想在选秀炒CP](https://www.xhmba.com/book/7miu9jq/)
-- [养父](https://www.xhmba.com/book/7miu7gg/)
 - [欢迎来到纳萨力克丧葬公司](https://www.xhmba.com/book/7miu70o/)
-- [在医院旧楼捡到个外科鼻祖](https://www.xhmba.com/book/7miu6om/)
 - [[群穿]我在御兽番抢人气](https://www.xhmba.com/book/7miu631/)
 - [大瑛弟国](https://www.xhmba.com/book/7mitaec/)
 - [御兽师，我打工养你啊](https://www.xhmba.com/book/7mitadu/)
 - [反派人生，易如反掌[快穿]](https://www.xhmba.com/book/7mita54/)
-- [我有特殊的升官技巧](https://www.xhmba.com/book/7mita3i/)
 - [八零恶毒后妈杀疯了](https://www.xhmba.com/book/7mita3d/)
 - [高门小婢](https://www.xhmba.com/book/7mit9nk/)
 - [[娱乐圈]过分美丽的她](https://www.xhmba.com/book/7mit9ld/)
@@ -153,20 +152,16 @@
 - [我真的只会Ctrl啊！！！](https://www.xhmba.com/book/7mit97b/)
 - [十九世纪贵族厨房（美食）](https://www.xhmba.com/book/7mit95e/)
 - [九零首富的替嫁小媳妇](https://www.xhmba.com/book/7mit94a/)
-- [警察，但犯罪大师系统[刑侦]](https://www.xhmba.com/book/7mit92d/)
-- [替嫁后咸鱼继母佛系日常](https://www.xhmba.com/book/7mit91q/)
 - [穿成炮灰后我封神了［快穿］](https://www.xhmba.com/book/7mit91c/)
 - [海岛求生：生活玩家种田囤货](https://www.xhmba.com/book/7mit913/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.xhmba.com/book/7mit90p/)
 - [星际团宠小人鱼](https://www.xhmba.com/book/7mit8o9/)
 - [我是唯一地上神国](https://www.xhmba.com/book/7mit8k3/)
-- [人妻O救赎指南](https://www.xhmba.com/book/7mit8im/)
 - [巨物致富：回乡开钓场](https://www.xhmba.com/book/7mit8ej/)
 - [卧底后被港岛大小姐缠上了](https://www.xhmba.com/book/7mit8d0/)
 - [六零之成了卷王的妹妹](https://www.xhmba.com/book/7mit8cd/)
 - [全民求生:从小木屋到魔法农场](https://www.xhmba.com/book/7mit82n/)
 - [古代种田养娃日常](https://www.xhmba.com/book/7mit82k/)
-- [如何扮演源氏重宝](https://www.xhmba.com/book/7mit81t/)
 - [清澈女大的六零年代](https://www.xhmba.com/book/7mit7vm/)
 - [假少爷不想活了](https://www.xhmba.com/book/7mit7ub/)
 - [猫猫也要养家糊口](https://www.xhmba.com/book/7mit7tl/)

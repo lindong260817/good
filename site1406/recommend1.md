@@ -1,13 +1,15 @@
 
 # 书迷村-免费高质量网络小说阅读网,热门男生女生小说大全
 
-更新时间：2026-08-31 03:20:53
+更新时间：2026-09-01 03:21:17
 
 书迷村是广大书友最值得收藏的网络小说阅读平台，提供最新最全的男生小说、女生小说以及孟静薇等作者的作品。在这里可以免费阅读到高质量的小说章节内容，是小说爱好者的首选网站。
 
 - [书迷村](https://www.aurorawj.com/)
 
 ## 最新小说
+- [大师兄他决定入魔[穿书]](https://www.aurorawj.com/book/3beb4hi/)
+- [从维多利亚时代开始](https://www.aurorawj.com/book/3beb2up/)
 - [九零重组小家庭](https://www.aurorawj.com/book/3beatje/)
 - [发家致富小夫郎](https://www.aurorawj.com/book/3beamtg/)
 - [渡鬼](https://www.aurorawj.com/book/3bead4s/)
@@ -72,7 +74,6 @@
 - [科学主义魔法学院](https://www.aurorawj.com/book/3bea5gq/)
 - [我写小说纯粹为了赚钱](https://www.aurorawj.com/book/3bea25o/)
 - [寄人篱下](https://www.aurorawj.com/book/3bea0h3/)
-- [万人嫌女配过分漂亮](https://www.aurorawj.com/book/3bea0a4/)
 - [第一游侠[全息]](https://www.aurorawj.com/book/3be9vut/)
 - [误标记隔壁阿姨O之后](https://www.aurorawj.com/book/3be9rhk/)
 - [[全职高手]霸图老板是叶修](https://www.aurorawj.com/book/3be9rea/)
@@ -138,7 +139,9 @@
 - [把清冷权臣调成荡夫后](https://www.aurorawj.com/book/3be7qov/)
 - [我真的没想在选秀炒CP](https://www.aurorawj.com/book/3be7na4/)
 - [欢迎来到纳萨力克丧葬公司](https://www.aurorawj.com/book/3be7l8j/)
+- [养父](https://www.aurorawj.com/book/3be7l6t/)
 - [[群穿]我在御兽番抢人气](https://www.aurorawj.com/book/3be7jar/)
+- [在医院旧楼捡到个外科鼻祖](https://www.aurorawj.com/book/3be7ikk/)
 - [趁她之危](https://www.aurorawj.com/book/3be6o1u/)
 - [全民求生:从小木屋到魔法农场](https://www.aurorawj.com/book/3be6o10/)
 - [六零之成了卷王的妹妹](https://www.aurorawj.com/book/3be6nu8/)
