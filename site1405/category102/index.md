@@ -1,11 +1,9 @@
 
 # 耽美小说 - 最新全本免费手机小说阅读推荐
 
-更新时间：2026-09-01 03:35:13
+更新时间：2026-09-08 03:39:46
 
-耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！
-
-- [耽美小说](https://www.shgifts8.com/)
+耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！ https://www.shgifts8.com
 
 ## 武侠小说 
 - [武侠 第1页](/site1405/category102/1.md)
@@ -172,6 +170,36 @@
 - [武侠 第162页](/site1405/category102/162.md)
 - [武侠 第163页](/site1405/category102/163.md)
 - [武侠 第164页](/site1405/category102/164.md)
+- [武侠 第165页](/site1405/category102/165.md)
+- [武侠 第166页](/site1405/category102/166.md)
+- [武侠 第167页](/site1405/category102/167.md)
+- [武侠 第168页](/site1405/category102/168.md)
+- [武侠 第169页](/site1405/category102/169.md)
+- [武侠 第170页](/site1405/category102/170.md)
+- [武侠 第171页](/site1405/category102/171.md)
+- [武侠 第172页](/site1405/category102/172.md)
+- [武侠 第173页](/site1405/category102/173.md)
+- [武侠 第174页](/site1405/category102/174.md)
+- [武侠 第175页](/site1405/category102/175.md)
+- [武侠 第176页](/site1405/category102/176.md)
+- [武侠 第177页](/site1405/category102/177.md)
+- [武侠 第178页](/site1405/category102/178.md)
+- [武侠 第179页](/site1405/category102/179.md)
+- [武侠 第180页](/site1405/category102/180.md)
+- [武侠 第181页](/site1405/category102/181.md)
+- [武侠 第182页](/site1405/category102/182.md)
+- [武侠 第183页](/site1405/category102/183.md)
+- [武侠 第184页](/site1405/category102/184.md)
+- [武侠 第185页](/site1405/category102/185.md)
+- [武侠 第186页](/site1405/category102/186.md)
+- [武侠 第187页](/site1405/category102/187.md)
+- [武侠 第188页](/site1405/category102/188.md)
+- [武侠 第189页](/site1405/category102/189.md)
+- [武侠 第190页](/site1405/category102/190.md)
+- [武侠 第191页](/site1405/category102/191.md)
+- [武侠 第192页](/site1405/category102/192.md)
+- [武侠 第193页](/site1405/category102/193.md)
+- [武侠 第194页](/site1405/category102/194.md)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1405/index.md)

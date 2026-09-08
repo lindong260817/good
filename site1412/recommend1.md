@@ -1,0 +1,184 @@
+
+# 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
+
+更新时间：2026-09-08 03:45:47
+
+瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！ https://www.wxdx2.com
+
+## 最新小说
+- 天幕今天也在直播我搞基建 https://www.wxdx2.com/book/7k6knlm/
+- 热恋过期需重追 https://www.wxdx2.com/book/7k6jtmg/
+- 这个位面归我了！[经营] https://www.wxdx2.com/book/7k6jtm3/
+- 二次分化后他怀了死对头的崽 https://www.wxdx2.com/book/7k6jtl5/
+- 被糟蹋的老实人决定反击 https://www.wxdx2.com/book/7k6jtkp/
+- 五十年代港城日常 https://www.wxdx2.com/book/7k6jtj5/
+- 在魔法贵族学院当白月光 https://www.wxdx2.com/book/7k6jti3/
+- 多梦你一会儿 https://www.wxdx2.com/book/7k6jti1/
+- 乖乖女的杂货铺[八零] https://www.wxdx2.com/book/7k6jthr/
+- [崩铁]请给玩家一个准确的血条！ https://www.wxdx2.com/book/7k6jthc/
+- 清穿女回来后[天幕] https://www.wxdx2.com/book/7k6jth4/
+- [娱乐圈]过分美丽的她 https://www.wxdx2.com/book/7k6jtgs/
+- 我只想上京赶考啊[聊斋] https://www.wxdx2.com/book/7k6jtgn/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.wxdx2.com/book/7k6jtgi/
+- 魔法种田，从退队经营农场开始 https://www.wxdx2.com/book/7k6jtfn/
+- 和山神搭伙开农场的日子 https://www.wxdx2.com/book/7k6jtfk/
+- 我与龙傲天寿命共享 https://www.wxdx2.com/book/7k6jtf5/
+- 十九世纪贵族厨房（美食） https://www.wxdx2.com/book/7k6jteq/
+- 如何正确哄睡暴君 https://www.wxdx2.com/book/7k6jtel/
+- 始乱终弃清冷首辅后 https://www.wxdx2.com/book/7k6jtec/
+- 人，今晚土拨鼠站岗 https://www.wxdx2.com/book/7k6jtea/
+- 正是冬雪沸腾时 https://www.wxdx2.com/book/7k6jte2/
+- 卷王后妈，八零养娃 https://www.wxdx2.com/book/7k6jtdb/
+- 爱情的肯定句 https://www.wxdx2.com/book/7k6jtc8/
+- 开局绑定郭奉孝，谋定三国风云 https://www.wxdx2.com/book/7k6jtbq/
+- 恶犬攻绑定上司的乖狗系统 https://www.wxdx2.com/book/7k6jtat/
+- [综英美]和亲友群穿哥谭以后 https://www.wxdx2.com/book/7k6jta5/
+- 穿咒术，但杀猴现场 https://www.wxdx2.com/book/7k6jta2/
+- [原神]魔法使恋爱指南 https://www.wxdx2.com/book/7k6jt9k/
+- 从1951开始 https://www.wxdx2.com/book/7k6jt99/
+- 在年代文里跑运输 https://www.wxdx2.com/book/7k6jt8t/
+- 上个鬼班[无限] https://www.wxdx2.com/book/7k6jt8i/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.wxdx2.com/book/7k6jt6q/
+- 我有一座安全城 https://www.wxdx2.com/book/7k6jt6d/
+- 谁都不爱的和亲公主 https://www.wxdx2.com/book/7k6jt63/
+- 食明 https://www.wxdx2.com/book/7k6jt5n/
+- 我187了，你敢见我吗？ https://www.wxdx2.com/book/7k6jt56/
+- 原配夫人 https://www.wxdx2.com/book/7k6jt41/
+- 心动嫌疑人 https://www.wxdx2.com/book/7k6jt32/
+- 爱好和平但狂拆机甲 https://www.wxdx2.com/book/7k6jt1p/
+- 苏娘子汴京摆摊日常（美食） https://www.wxdx2.com/book/7k6jt1c/
+- 仙尊心尖宠，但被魔尊抢了 https://www.wxdx2.com/book/7k6jt0u/
+- 暗恋的价格是三万块 https://www.wxdx2.com/book/7k6jt0o/
+- [封神]圣人生欲 https://www.wxdx2.com/book/7k6jt0h/
+- [综英美]哥谭市民，在线抽卡 https://www.wxdx2.com/book/7k6jsul/
+- 魔咒请说普通话[西幻] https://www.wxdx2.com/book/7k6jsui/
+- 等我吃腻了再倒闭可以吗 https://www.wxdx2.com/book/7k6jstg/
+- [足球]小小鸟堂堂来袭 https://www.wxdx2.com/book/7k6jss3/
+- 炮灰的海外亲戚回国啦！ https://www.wxdx2.com/book/7k6jsr7/
+- 九零重组小家庭 https://www.wxdx2.com/book/7k6jsq6/
+- 我们小区穿末世 https://www.wxdx2.com/book/7k6jspu/
+- 漂亮女配是万人迷［快穿］ https://www.wxdx2.com/book/7k6jsoo/
+- 朕也要被强制吗？ https://www.wxdx2.com/book/7k6jsnr/
+- 全世界名为爱的恶意 https://www.wxdx2.com/book/7k6jsms/
+- 在重生文里考科举 https://www.wxdx2.com/book/7k6jsmj/
+- 大唐守军家属 https://www.wxdx2.com/book/7k6jslu/
+- 咦？我爸爸复活啦 https://www.wxdx2.com/book/7k6jslh/
+- 占有欲Daddy是我老公？ https://www.wxdx2.com/book/7k6jsl8/
+- 清澈女大的六零年代 https://www.wxdx2.com/book/7k6jskc/
+- 双生子反派的端水抑郁妈[九零] https://www.wxdx2.com/book/7k6jsk4/
+- 好心的俄罗斯人 https://www.wxdx2.com/book/7k6jsh4/
+- 前妻她肯定会后悔 https://www.wxdx2.com/book/7k6jses/
+- [足球]足坛人生模拟器 https://www.wxdx2.com/book/7k6jseq/
+- 魔尊闭关十年连生十一子？！ https://www.wxdx2.com/book/7k6jse2/
+- 巨物致富：回乡开钓场 https://www.wxdx2.com/book/7k6jsd0/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.wxdx2.com/book/7k6jsc9/
+- 末世八年春，游戏降临 https://www.wxdx2.com/book/7k6js9p/
+- 全民求生:从小木屋到魔法农场 https://www.wxdx2.com/book/7k6js7s/
+- 阴阳师也可以打网球 https://www.wxdx2.com/book/7k6js7g/
+- 村霸非要入赘受气包 https://www.wxdx2.com/book/7k6js52/
+- 欲加之罪 https://www.wxdx2.com/book/7k6js3g/
+- 怨明月不独照 https://www.wxdx2.com/book/7k6js30/
+- 禁止继承限制级雌君 https://www.wxdx2.com/book/7k6js26/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.wxdx2.com/book/7k6js1r/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.wxdx2.com/book/7k6js14/
+- 老实人妻，但顶级魅魔 https://www.wxdx2.com/book/7k6js0d/
+- 谁说踢球就不能成为名侦探[足球] https://www.wxdx2.com/book/7k6jrum/
+- 让暴君Alpha怀崽后 https://www.wxdx2.com/book/7k6jrti/
+- 病美人重生日记 https://www.wxdx2.com/book/7k6jrt2/
+- 欲和离？夫君他目不识丁 https://www.wxdx2.com/book/7k6jrs3/
+- 95美国贵族高中模拟 https://www.wxdx2.com/book/7k6jrre/
+- 老公对不起 https://www.wxdx2.com/book/7k6jrqr/
+- 让你们无剧本可走（快穿） https://www.wxdx2.com/book/7k6jrpm/
+- 国运求生：我的金手指是生命树 https://www.wxdx2.com/book/7k6jrpe/
+- 摄政王家的咸鱼夫郎 https://www.wxdx2.com/book/7k6jrp7/
+- 假意逢承 https://www.wxdx2.com/book/7k6jrou/
+- 在卷王和废物之间选择做吉祥物 https://www.wxdx2.com/book/7k6jrot/
+- 强取师尊后 https://www.wxdx2.com/book/7k6jrod/
+- 沈助理又在隐藏他的超能力 https://www.wxdx2.com/book/7k6jro2/
+- 娘娘扶摇直上 https://www.wxdx2.com/book/7k6jrno/
+- 恶毒男配只想躺平 https://www.wxdx2.com/book/7k6jrlu/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.wxdx2.com/book/7k6jrkm/
+- 同时扮演贵族学院F4和平民校花 https://www.wxdx2.com/book/7k6jrkh/
+- 恐游里的邻居们[万人迷] https://www.wxdx2.com/book/7k6jrk0/
+- 烈火焚身[巴黎圣母院] https://www.wxdx2.com/book/7k6jrjl/
+- 完蛋！被恨孕男包围了！ https://www.wxdx2.com/book/7k6jrin/
+- 在民俗惊悚片被诸神庇护 https://www.wxdx2.com/book/7k6jrih/
+- 昭暮 https://www.wxdx2.com/book/7k6jri6/
+- 我有一座地下城 https://www.wxdx2.com/book/7k6jrhq/
+- 你让魔王组建勇者小队？ https://www.wxdx2.com/book/7k6jrho/
+- 国师 https://www.wxdx2.com/book/7k6jrhg/
+- 直男咒术师的限制级游戏 https://www.wxdx2.com/book/7k6jrgf/
+- 带清冷女主回乡养螃蟹[种田] https://www.wxdx2.com/book/7k6jreq/
+- 日化人生[科研] https://www.wxdx2.com/book/7k6jrd5/
+- 全民求生，但剑三 https://www.wxdx2.com/book/7k6jrcu/
+- 漫画取材所引发的修罗场 https://www.wxdx2.com/book/7k6jrc4/
+- 万人嫌从末世回来了 https://www.wxdx2.com/book/7k6jrb4/
+- 和姐姐的前女友欢愉后 https://www.wxdx2.com/book/7k6jrb2/
+- 在中世纪做奴隶 https://www.wxdx2.com/book/7k6jrav/
+- 清冷丞相怀了死对头的崽 https://www.wxdx2.com/book/7k6jrah/
+- 从童星开始杀穿港娱 https://www.wxdx2.com/book/7k6jra4/
+- 从维多利亚时代开始 https://www.wxdx2.com/book/7k6jr8d/
+- 寡妇美人模拟器 https://www.wxdx2.com/book/7k6jr7j/
+- 妻主风流（女尊） https://www.wxdx2.com/book/7k6jr6u/
+- 海岛求生：生活玩家种田囤货 https://www.wxdx2.com/book/7k6jr67/
+- 趁她之危 https://www.wxdx2.com/book/7k6jr65/
+- 成为养成系练习生后 https://www.wxdx2.com/book/7k6jr4r/
+- 夫人每天都在伪装 https://www.wxdx2.com/book/7k6jr4b/
+- 诡话第一boss https://www.wxdx2.com/book/7k6jr46/
+- 世界伏于她刀下[无限] https://www.wxdx2.com/book/7k6jr3g/
+- 和治君只是饭搭子的关系 https://www.wxdx2.com/book/7k6jr3d/
+- 五条老师与他的封建妻子 https://www.wxdx2.com/book/7k6jr2f/
+- 星露谷，但日本战国 https://www.wxdx2.com/book/7k6jr10/
+- [足球]雏鸟 https://www.wxdx2.com/book/7k6jr0h/
+- [足球]我的游戏存档成真了？！ https://www.wxdx2.com/book/7k6jqvp/
+- 魔改剧本后我爆火了[娱乐圈] https://www.wxdx2.com/book/7k6jqva/
+- 八零法医，带全家致富 https://www.wxdx2.com/book/7k6jqub/
+- [全职高手]治疗什么的不干了！ https://www.wxdx2.com/book/7k6jqu3/
+- 恐游作精女配求生指南 https://www.wxdx2.com/book/7k6jqu0/
+- 我骗家里的钱养你啊 https://www.wxdx2.com/book/7k6jqtr/
+- 韩团绿卡不想忍了 https://www.wxdx2.com/book/7k6jqth/
+- 如何嫁给当朝首辅 https://www.wxdx2.com/book/7k6jqsf/
+- 死遁的亡夫们都回来了 https://www.wxdx2.com/book/7k6jqse/
+- 仙门透明人被迫万人迷 https://www.wxdx2.com/book/7k6jqri/
+- 死对头又在挑衅我 https://www.wxdx2.com/book/7k6jqqk/
+- 和贵志君是世界第一的好朋友 https://www.wxdx2.com/book/7k6jqqh/
+- 被天使之王骗婚后[诡秘之主] https://www.wxdx2.com/book/7k6jqqc/
+- [洪荒]成为太清妹妹后 https://www.wxdx2.com/book/7k6jqq1/
+- 康熙宠妃日常 https://www.wxdx2.com/book/7k6jqpb/
+- 专业女配的自我修养（快穿） https://www.wxdx2.com/book/7k6jqp3/
+- 死遁APP https://www.wxdx2.com/book/7k6jqo1/
+- 死亡悖论[无限流] https://www.wxdx2.com/book/7k6jqmu/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.wxdx2.com/book/7k6jqms/
+- 失忆后和死对头有了崽 https://www.wxdx2.com/book/7k6jqmg/
+- 起初，我只是想找个冤大头 https://www.wxdx2.com/book/7k6jqme/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.wxdx2.com/book/7k6jqkn/
+- 六零之成了卷王的妹妹 https://www.wxdx2.com/book/7k6jqk0/
+- 路人攻了主角攻［快穿］ https://www.wxdx2.com/book/7k6jqj7/
+- SSS级异种都是我前任 https://www.wxdx2.com/book/7k6jqiu/
+- 我是唯一地上神国 https://www.wxdx2.com/book/7k6jqi7/
+- 穿为龙傲天发妻后 https://www.wxdx2.com/book/7k6jqfp/
+- 高调装神，猥琐发育 https://www.wxdx2.com/book/7k6jqdv/
+- 星际团宠小人鱼 https://www.wxdx2.com/book/7k6jqde/
+- 权宋一只统 https://www.wxdx2.com/book/7k6jqd7/
+- 大瑛弟国 https://www.wxdx2.com/book/7k6jqck/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.wxdx2.com/book/7k6jqbt/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1412/index.md)
+- [最新热点小说](/site1412/newhot.md)
+- [人气小说](/site1412/b111.md)
+- [推荐小说](/site1412/recommend1.md)
+- [推荐小说列表](/site1412/recommend/index.md)
+- [热点小说](/site1412/hot/index.md)
+- [全本小说](/site1412/quanben/index.md)
+- [网站地图](/site1412/sitemap/index.md)
+- [标签](/site1412/tag/index.md)
+- [爱情小说](/site1412/category101/index.md)
+- [武侠小说](/site1412/category102/index.md)
+- [奇幻小说](/site1412/category103/index.md)
+- [仙侠小说](/site1412/category104/index.md)
+- [游戏小说](/site1412/category105/index.md)
+- [传奇小说](/site1412/category106/index.md)
+- [科幻小说](/site1412/category107/index.md)
+- [惊悚小说](/site1412/category109/index.md)
+- [悬疑小说](/site1412/category110/index.md)
