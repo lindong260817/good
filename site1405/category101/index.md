@@ -1,11 +1,9 @@
 
 # 耽美小说 - 最新全本免费手机小说阅读推荐
 
-更新时间：2026-09-01 03:35:13
+更新时间：2026-09-08 03:39:46
 
-耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！
-
-- [耽美小说](https://www.shgifts8.com/)
+耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！ https://www.shgifts8.com
 
 ## 爱情小说 
 - [爱情 第1页](/site1405/category101/1.md)
@@ -172,6 +170,36 @@
 - [爱情 第162页](/site1405/category101/162.md)
 - [爱情 第163页](/site1405/category101/163.md)
 - [爱情 第164页](/site1405/category101/164.md)
+- [爱情 第165页](/site1405/category101/165.md)
+- [爱情 第166页](/site1405/category101/166.md)
+- [爱情 第167页](/site1405/category101/167.md)
+- [爱情 第168页](/site1405/category101/168.md)
+- [爱情 第169页](/site1405/category101/169.md)
+- [爱情 第170页](/site1405/category101/170.md)
+- [爱情 第171页](/site1405/category101/171.md)
+- [爱情 第172页](/site1405/category101/172.md)
+- [爱情 第173页](/site1405/category101/173.md)
+- [爱情 第174页](/site1405/category101/174.md)
+- [爱情 第175页](/site1405/category101/175.md)
+- [爱情 第176页](/site1405/category101/176.md)
+- [爱情 第177页](/site1405/category101/177.md)
+- [爱情 第178页](/site1405/category101/178.md)
+- [爱情 第179页](/site1405/category101/179.md)
+- [爱情 第180页](/site1405/category101/180.md)
+- [爱情 第181页](/site1405/category101/181.md)
+- [爱情 第182页](/site1405/category101/182.md)
+- [爱情 第183页](/site1405/category101/183.md)
+- [爱情 第184页](/site1405/category101/184.md)
+- [爱情 第185页](/site1405/category101/185.md)
+- [爱情 第186页](/site1405/category101/186.md)
+- [爱情 第187页](/site1405/category101/187.md)
+- [爱情 第188页](/site1405/category101/188.md)
+- [爱情 第189页](/site1405/category101/189.md)
+- [爱情 第190页](/site1405/category101/190.md)
+- [爱情 第191页](/site1405/category101/191.md)
+- [爱情 第192页](/site1405/category101/192.md)
+- [爱情 第193页](/site1405/category101/193.md)
+- [爱情 第194页](/site1405/category101/194.md)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1405/index.md)
