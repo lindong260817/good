@@ -1,175 +1,167 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-09-07 03:28:14
+更新时间：2026-09-08 03:29:10
 
-笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。
-
-- [笔下文学](https://www.fshxjd.com/)
+笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。 https://www.fshxjd.com
 
 ## 最新小说
-- [和八个男人在极寒游戏求生](https://www.fshxjd.com/book/74i3mti/)
-- [烈火焚身[巴黎圣母院]](https://www.fshxjd.com/book/74i3mtc/)
-- [世界伏于她刀下[无限]](https://www.fshxjd.com/book/74i3mtb/)
-- [占有欲Daddy是我老公？](https://www.fshxjd.com/book/74i3mt8/)
-- [[综英美]哥谭市民，在线抽卡](https://www.fshxjd.com/book/74i3mt3/)
-- [从1951开始](https://www.fshxjd.com/book/74i3msv/)
-- [［综英美］蝙蝠崽？我不是啊！](https://www.fshxjd.com/book/74i3msu/)
-- [八零法医，带全家致富](https://www.fshxjd.com/book/74i3mss/)
-- [星露谷，但日本战国](https://www.fshxjd.com/book/74i3msq/)
-- [欲加之罪](https://www.fshxjd.com/book/74i3msp/)
-- [谁都不爱的和亲公主](https://www.fshxjd.com/book/74i3mso/)
-- [全民求生，但剑三](https://www.fshxjd.com/book/74i3msk/)
-- [暗恋的价格是三万块](https://www.fshxjd.com/book/74i3msj/)
-- [［西幻］RPG就不要谈恋爱了吧！](https://www.fshxjd.com/book/74i3msi/)
-- [国运求生：我的金手指是生命树](https://www.fshxjd.com/book/74i3msh/)
-- [双生子反派的端水抑郁妈[九零]](https://www.fshxjd.com/book/74i3msc/)
-- [全世界名为爱的恶意](https://www.fshxjd.com/book/74i3ms9/)
-- [[全职高手]治疗什么的不干了！](https://www.fshxjd.com/book/74i3ms8/)
-- [失忆后和死对头有了崽](https://www.fshxjd.com/book/74i3ms4/)
-- [魔咒请说普通话[西幻]](https://www.fshxjd.com/book/74i3ms3/)
-- [恐游作精女配求生指南](https://www.fshxjd.com/book/74i3mru/)
-- [你让魔王组建勇者小队？](https://www.fshxjd.com/book/74i3mrs/)
-- [我只想上京赶考啊[聊斋]](https://www.fshxjd.com/book/74i3mrr/)
-- [[原神]魔法使恋爱指南](https://www.fshxjd.com/book/74i3mrq/)
-- [漫画取材所引发的修罗场](https://www.fshxjd.com/book/74i3mro/)
-- [[洪荒]成为太清妹妹后](https://www.fshxjd.com/book/74i3mrn/)
-- [穿咒术，但杀猴现场](https://www.fshxjd.com/book/74i3mrm/)
-- [万人嫌从末世回来了](https://www.fshxjd.com/book/74i3mrl/)
-- [大佬的漂亮老婆回来带崽了[八零]](https://www.fshxjd.com/book/74i3mrk/)
-- [前妻她肯定会后悔](https://www.fshxjd.com/book/74i3mrh/)
-- [病美人重生日记](https://www.fshxjd.com/book/74i3mrf/)
-- [二次分化后他怀了死对头的崽](https://www.fshxjd.com/book/74i3mrc/)
-- [爱情的肯定句](https://www.fshxjd.com/book/74i3mr8/)
-- [国师](https://www.fshxjd.com/book/74i3mr4/)
-- [恐游里的邻居们[万人迷]](https://www.fshxjd.com/book/74i3mr3/)
-- [强取师尊后](https://www.fshxjd.com/book/74i3mqu/)
-- [魔尊闭关十年连生十一子？！](https://www.fshxjd.com/book/74i3mqs/)
-- [[综英美]和亲友群穿哥谭以后](https://www.fshxjd.com/book/74i3mqq/)
-- [乖乖女的杂货铺[八零]](https://www.fshxjd.com/book/74i3mql/)
-- [在中世纪做奴隶](https://www.fshxjd.com/book/74i3mqi/)
-- [魔改剧本后我爆火了[娱乐圈]](https://www.fshxjd.com/book/74i3mqh/)
-- [[足球]小小鸟堂堂来袭](https://www.fshxjd.com/book/74i3mqd/)
-- [穿为龙傲天发妻后](https://www.fshxjd.com/book/74i3mqc/)
-- [康熙宠妃日常](https://www.fshxjd.com/book/74i3mq3/)
-- [好心的俄罗斯人](https://www.fshxjd.com/book/74i3mq1/)
-- [禁止继承限制级雌君](https://www.fshxjd.com/book/74i3mpt/)
-- [仙尊心尖宠，但被魔尊抢了](https://www.fshxjd.com/book/74i3mpr/)
-- [清穿女回来后[天幕]](https://www.fshxjd.com/book/74i3mpo/)
-- [等我吃腻了再倒闭可以吗](https://www.fshxjd.com/book/74i3mpl/)
-- [咦？我爸爸复活啦](https://www.fshxjd.com/book/74i3mpk/)
-- [夫人每天都在伪装](https://www.fshxjd.com/book/74i3mpj/)
-- [热恋过期需重追](https://www.fshxjd.com/book/74i3mph/)
-- [在年代文里跑运输](https://www.fshxjd.com/book/74i3mpf/)
-- [娘娘扶摇直上](https://www.fshxjd.com/book/74i3mpb/)
-- [恶毒男配只想躺平](https://www.fshxjd.com/book/74i3mpa/)
-- [[足球]雏鸟](https://www.fshxjd.com/book/74i3mp7/)
-- [正是冬雪沸腾时](https://www.fshxjd.com/book/74i3mp2/)
-- [SSS级异种都是我前任](https://www.fshxjd.com/book/74i3mou/)
-- [魔法种田，从退队经营农场开始](https://www.fshxjd.com/book/74i3mot/)
-- [欲和离？夫君他目不识丁](https://www.fshxjd.com/book/74i3mos/)
-- [[崩铁]请给玩家一个准确的血条！](https://www.fshxjd.com/book/74i3mon/)
-- [谁说踢球就不能成为名侦探[足球]](https://www.fshxjd.com/book/74i3mol/)
-- [我们小区穿末世](https://www.fshxjd.com/book/74i3mok/)
-- [死遁APP](https://www.fshxjd.com/book/74i3moj/)
-- [炮灰的海外亲戚回国啦！](https://www.fshxjd.com/book/74i3mog/)
-- [末世八年春，游戏降临](https://www.fshxjd.com/book/74i3moe/)
-- [怨明月不独照](https://www.fshxjd.com/book/74i3mod/)
-- [人，今晚土拨鼠站岗](https://www.fshxjd.com/book/74i3mo9/)
-- [我们生活玩家是这样的](https://www.fshxjd.com/book/74i3ltn/)
-- [[足球]拥有分身系统的我靠踢足球建设国家](https://www.fshxjd.com/book/74i3gio/)
-- [上个鬼班[无限]](https://www.fshxjd.com/book/74i36j6/)
-- [始乱终弃清冷首辅后](https://www.fshxjd.com/book/74i35j2/)
-- [原配夫人](https://www.fshxjd.com/book/74i35i7/)
-- [星际团宠小人鱼](https://www.fshxjd.com/book/74i35i1/)
-- [让暴君Alpha怀崽后](https://www.fshxjd.com/book/74i343c/)
-- [华夏神明震撼星际](https://www.fshxjd.com/book/74i30cu/)
-- [[足球]足坛人生模拟器](https://www.fshxjd.com/book/74i2uak/)
-- [神豪文男主是我爸](https://www.fshxjd.com/book/74i2rt2/)
-- [趁她之危](https://www.fshxjd.com/book/74i2odm/)
-- [在卷王和废物之间选择做吉祥物](https://www.fshxjd.com/book/74i2kpo/)
-- [完蛋！被恨孕男包围了！](https://www.fshxjd.com/book/74i2kha/)
-- [昭暮](https://www.fshxjd.com/book/74i2hg5/)
-- [从维多利亚时代开始](https://www.fshxjd.com/book/74i2grd/)
-- [假少爷离开后](https://www.fshxjd.com/book/74i2abl/)
-- [食明](https://www.fshxjd.com/book/74i21vs/)
-- [诡话第一boss](https://www.fshxjd.com/book/74i1up6/)
-- [十九世纪贵族厨房（美食）](https://www.fshxjd.com/book/74i1tu2/)
-- [专业女配的自我修养（快穿）](https://www.fshxjd.com/book/74i1r2b/)
-- [高调装神，猥琐发育](https://www.fshxjd.com/book/74i1qt1/)
-- [起初，我只是想找个冤大头](https://www.fshxjd.com/book/74i1qp7/)
-- [社畜Beta也能被顶A觊觎吗](https://www.fshxjd.com/book/74i1kne/)
-- [直男咒术师的限制级游戏](https://www.fshxjd.com/book/74i1j0m/)
-- [[足球]我的游戏存档成真了？！](https://www.fshxjd.com/book/74i1ils/)
-- [让你们无剧本可走（快穿）](https://www.fshxjd.com/book/74i1iit/)
-- [浣熊市蝙蝠崽的哥谭居住指南](https://www.fshxjd.com/book/74i1ibd/)
-- [摄政王家的咸鱼夫郎](https://www.fshxjd.com/book/74i1hig/)
-- [我与龙傲天寿命共享](https://www.fshxjd.com/book/74i1dtl/)
-- [如何正确哄睡暴君](https://www.fshxjd.com/book/74i19fl/)
-- [怀了前任大哥的崽后](https://www.fshxjd.com/book/74i14u8/)
-- [阴郁残疾炮灰被万人迷后[快穿]](https://www.fshxjd.com/book/74i12fe/)
-- [被天使之王骗婚后[诡秘之主]](https://www.fshxjd.com/book/74i0upr/)
-- [沈助理又在隐藏他的超能力](https://www.fshxjd.com/book/74i0uov/)
-- [死对头又在挑衅我](https://www.fshxjd.com/book/74i0tq0/)
-- [假金丝雀深陷修罗场](https://www.fshxjd.com/book/74i0raj/)
-- [在民俗惊悚片被诸神庇护](https://www.fshxjd.com/book/74i0pok/)
-- [美貌单出，杀穿港娱［八零］](https://www.fshxjd.com/book/74i0pk1/)
-- [我有一座地下城](https://www.fshxjd.com/book/74i0lun/)
-- [漂亮女配是万人迷［快穿］](https://www.fshxjd.com/book/74i0lb5/)
-- [开局绑定郭奉孝，谋定三国风云](https://www.fshxjd.com/book/74i0jfn/)
-- [阴阳师也可以打网球](https://www.fshxjd.com/book/74i0hvp/)
-- [我骗家里的钱养你啊](https://www.fshxjd.com/book/74i0hvm/)
-- [同时扮演贵族学院F4和平民校花](https://www.fshxjd.com/book/74i0fg2/)
-- [和治君只是饭搭子的关系](https://www.fshxjd.com/book/74i0ehq/)
-- [如何嫁给当朝首辅](https://www.fshxjd.com/book/74i0ed4/)
-- [和贵志君是世界第一的好朋友](https://www.fshxjd.com/book/74i0dul/)
-- [在魔法贵族学院当白月光](https://www.fshxjd.com/book/74i0cl3/)
-- [多梦你一会儿](https://www.fshxjd.com/book/74i0cip/)
-- [苏娘子汴京摆摊日常（美食）](https://www.fshxjd.com/book/74i0c7u/)
-- [五条老师与他的封建妻子](https://www.fshxjd.com/book/74i0act/)
-- [我187了，你敢见我吗？](https://www.fshxjd.com/book/74i0a9q/)
-- [卷王后妈，八零养娃](https://www.fshxjd.com/book/74i08g8/)
-- [和姐姐的前女友欢愉后](https://www.fshxjd.com/book/74i07f3/)
-- [[封神]圣人生欲](https://www.fshxjd.com/book/74i053h/)
-- [我司艺人永不塌房](https://www.fshxjd.com/book/74i04gl/)
-- [朕也要被强制吗？](https://www.fshxjd.com/book/74hvv41/)
-- [大唐守军家属](https://www.fshxjd.com/book/74hvulv/)
-- [在重生文里考科举](https://www.fshxjd.com/book/74hvqrc/)
-- [妻主风流（女尊）](https://www.fshxjd.com/book/74hvo18/)
-- [韩团绿卡不想忍了](https://www.fshxjd.com/book/74hvnqo/)
-- [死亡悖论[无限流]](https://www.fshxjd.com/book/74hvn4b/)
-- [心动嫌疑人](https://www.fshxjd.com/book/74hvl43/)
-- [这个位面归我了！[经营]](https://www.fshxjd.com/book/74hvkp3/)
-- [逃出金丝笼，我力挽山河开国称帝](https://www.fshxjd.com/book/74hvioi/)
-- [让霸刀山庄重回忍界之巅[综剑三]](https://www.fshxjd.com/book/74hvih0/)
-- [带清冷女主回乡养螃蟹[种田]](https://www.fshxjd.com/book/74hvi48/)
-- [死遁的亡夫们都回来了](https://www.fshxjd.com/book/74hvh08/)
-- [清冷丞相怀了死对头的崽](https://www.fshxjd.com/book/74hvh06/)
-- [被糟蹋的老实人决定反击](https://www.fshxjd.com/book/74hvgts/)
-- [村霸非要入赘受气包](https://www.fshxjd.com/book/74hvf8b/)
-- [和山神搭伙开农场的日子](https://www.fshxjd.com/book/74hve90/)
-- [假意逢承](https://www.fshxjd.com/book/74hvd7r/)
-- [恶犬攻绑定上司的乖狗系统](https://www.fshxjd.com/book/74hvbnl/)
-- [权宋一只统](https://www.fshxjd.com/book/74hv78f/)
-- [爱好和平但狂拆机甲](https://www.fshxjd.com/book/74hv1oj/)
-- [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.fshxjd.com/book/74hu5nj/)
-- [老实人妻，但顶级魅魔](https://www.fshxjd.com/book/74hu5bq/)
-- [[娱乐圈]过分美丽的她](https://www.fshxjd.com/book/74hu53j/)
-- [成为养成系练习生后](https://www.fshxjd.com/book/74hu51p/)
-- [大瑛弟国](https://www.fshxjd.com/book/74hu4v1/)
-- [巨物致富：回乡开钓场](https://www.fshxjd.com/book/74hu4l3/)
-- [五十年代港城日常](https://www.fshxjd.com/book/74hu4g9/)
-- [海岛求生：生活玩家种田囤货](https://www.fshxjd.com/book/74hu48i/)
-- [日化人生[科研]](https://www.fshxjd.com/book/74hu43o/)
-- [95美国贵族高中模拟](https://www.fshxjd.com/book/74hu41o/)
-- [我有一座安全城](https://www.fshxjd.com/book/74hu3rs/)
-- [老公对不起](https://www.fshxjd.com/book/74hu3no/)
-- [六零之成了卷王的妹妹](https://www.fshxjd.com/book/74hu3kj/)
-- [全民求生:从小木屋到魔法农场](https://www.fshxjd.com/book/74hu3ha/)
-- [我是唯一地上神国](https://www.fshxjd.com/book/74hu3fj/)
-- [路人攻了主角攻［快穿］](https://www.fshxjd.com/book/74hu386/)
-- [高门小婢](https://www.fshxjd.com/book/74hu37m/)
-- [清澈女大的六零年代](https://www.fshxjd.com/book/74hu2vm/)
+- 烈火焚身[巴黎圣母院] https://www.fshxjd.com/book/74i3mtc/
+- 世界伏于她刀下[无限] https://www.fshxjd.com/book/74i3mtb/
+- 占有欲Daddy是我老公？ https://www.fshxjd.com/book/74i3mt8/
+- [综英美]哥谭市民，在线抽卡 https://www.fshxjd.com/book/74i3mt3/
+- 从1951开始 https://www.fshxjd.com/book/74i3msv/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.fshxjd.com/book/74i3msu/
+- 八零法医，带全家致富 https://www.fshxjd.com/book/74i3mss/
+- 星露谷，但日本战国 https://www.fshxjd.com/book/74i3msq/
+- 欲加之罪 https://www.fshxjd.com/book/74i3msp/
+- 谁都不爱的和亲公主 https://www.fshxjd.com/book/74i3mso/
+- 全民求生，但剑三 https://www.fshxjd.com/book/74i3msk/
+- 暗恋的价格是三万块 https://www.fshxjd.com/book/74i3msj/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.fshxjd.com/book/74i3msi/
+- 国运求生：我的金手指是生命树 https://www.fshxjd.com/book/74i3msh/
+- 双生子反派的端水抑郁妈[九零] https://www.fshxjd.com/book/74i3msc/
+- 全世界名为爱的恶意 https://www.fshxjd.com/book/74i3ms9/
+- [全职高手]治疗什么的不干了！ https://www.fshxjd.com/book/74i3ms8/
+- 失忆后和死对头有了崽 https://www.fshxjd.com/book/74i3ms4/
+- 魔咒请说普通话[西幻] https://www.fshxjd.com/book/74i3ms3/
+- 恐游作精女配求生指南 https://www.fshxjd.com/book/74i3mru/
+- 你让魔王组建勇者小队？ https://www.fshxjd.com/book/74i3mrs/
+- 我只想上京赶考啊[聊斋] https://www.fshxjd.com/book/74i3mrr/
+- [原神]魔法使恋爱指南 https://www.fshxjd.com/book/74i3mrq/
+- 漫画取材所引发的修罗场 https://www.fshxjd.com/book/74i3mro/
+- [洪荒]成为太清妹妹后 https://www.fshxjd.com/book/74i3mrn/
+- 穿咒术，但杀猴现场 https://www.fshxjd.com/book/74i3mrm/
+- 万人嫌从末世回来了 https://www.fshxjd.com/book/74i3mrl/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.fshxjd.com/book/74i3mrk/
+- 前妻她肯定会后悔 https://www.fshxjd.com/book/74i3mrh/
+- 病美人重生日记 https://www.fshxjd.com/book/74i3mrf/
+- 二次分化后他怀了死对头的崽 https://www.fshxjd.com/book/74i3mrc/
+- 爱情的肯定句 https://www.fshxjd.com/book/74i3mr8/
+- 国师 https://www.fshxjd.com/book/74i3mr4/
+- 恐游里的邻居们[万人迷] https://www.fshxjd.com/book/74i3mr3/
+- 强取师尊后 https://www.fshxjd.com/book/74i3mqu/
+- 魔尊闭关十年连生十一子？！ https://www.fshxjd.com/book/74i3mqs/
+- [综英美]和亲友群穿哥谭以后 https://www.fshxjd.com/book/74i3mqq/
+- 乖乖女的杂货铺[八零] https://www.fshxjd.com/book/74i3mql/
+- 在中世纪做奴隶 https://www.fshxjd.com/book/74i3mqi/
+- 魔改剧本后我爆火了[娱乐圈] https://www.fshxjd.com/book/74i3mqh/
+- [足球]小小鸟堂堂来袭 https://www.fshxjd.com/book/74i3mqd/
+- 穿为龙傲天发妻后 https://www.fshxjd.com/book/74i3mqc/
+- 康熙宠妃日常 https://www.fshxjd.com/book/74i3mq3/
+- 好心的俄罗斯人 https://www.fshxjd.com/book/74i3mq1/
+- 禁止继承限制级雌君 https://www.fshxjd.com/book/74i3mpt/
+- 仙尊心尖宠，但被魔尊抢了 https://www.fshxjd.com/book/74i3mpr/
+- 清穿女回来后[天幕] https://www.fshxjd.com/book/74i3mpo/
+- 等我吃腻了再倒闭可以吗 https://www.fshxjd.com/book/74i3mpl/
+- 咦？我爸爸复活啦 https://www.fshxjd.com/book/74i3mpk/
+- 夫人每天都在伪装 https://www.fshxjd.com/book/74i3mpj/
+- 热恋过期需重追 https://www.fshxjd.com/book/74i3mph/
+- 在年代文里跑运输 https://www.fshxjd.com/book/74i3mpf/
+- 娘娘扶摇直上 https://www.fshxjd.com/book/74i3mpb/
+- 恶毒男配只想躺平 https://www.fshxjd.com/book/74i3mpa/
+- [足球]雏鸟 https://www.fshxjd.com/book/74i3mp7/
+- 正是冬雪沸腾时 https://www.fshxjd.com/book/74i3mp2/
+- SSS级异种都是我前任 https://www.fshxjd.com/book/74i3mou/
+- 魔法种田，从退队经营农场开始 https://www.fshxjd.com/book/74i3mot/
+- 欲和离？夫君他目不识丁 https://www.fshxjd.com/book/74i3mos/
+- [崩铁]请给玩家一个准确的血条！ https://www.fshxjd.com/book/74i3mon/
+- 谁说踢球就不能成为名侦探[足球] https://www.fshxjd.com/book/74i3mol/
+- 我们小区穿末世 https://www.fshxjd.com/book/74i3mok/
+- 死遁APP https://www.fshxjd.com/book/74i3moj/
+- 炮灰的海外亲戚回国啦！ https://www.fshxjd.com/book/74i3mog/
+- 末世八年春，游戏降临 https://www.fshxjd.com/book/74i3moe/
+- 怨明月不独照 https://www.fshxjd.com/book/74i3mod/
+- 人，今晚土拨鼠站岗 https://www.fshxjd.com/book/74i3mo9/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.fshxjd.com/book/74i3gio/
+- 上个鬼班[无限] https://www.fshxjd.com/book/74i36j6/
+- 始乱终弃清冷首辅后 https://www.fshxjd.com/book/74i35j2/
+- 原配夫人 https://www.fshxjd.com/book/74i35i7/
+- 星际团宠小人鱼 https://www.fshxjd.com/book/74i35i1/
+- 让暴君Alpha怀崽后 https://www.fshxjd.com/book/74i343c/
+- 九零重组小家庭 https://www.fshxjd.com/book/74i316e/
+- [足球]足坛人生模拟器 https://www.fshxjd.com/book/74i2uak/
+- 趁她之危 https://www.fshxjd.com/book/74i2odm/
+- 在卷王和废物之间选择做吉祥物 https://www.fshxjd.com/book/74i2kpo/
+- 完蛋！被恨孕男包围了！ https://www.fshxjd.com/book/74i2kha/
+- 昭暮 https://www.fshxjd.com/book/74i2hg5/
+- 从维多利亚时代开始 https://www.fshxjd.com/book/74i2grd/
+- 食明 https://www.fshxjd.com/book/74i21vs/
+- 诡话第一boss https://www.fshxjd.com/book/74i1up6/
+- 十九世纪贵族厨房（美食） https://www.fshxjd.com/book/74i1tu2/
+- 专业女配的自我修养（快穿） https://www.fshxjd.com/book/74i1r2b/
+- 高调装神，猥琐发育 https://www.fshxjd.com/book/74i1qt1/
+- 起初，我只是想找个冤大头 https://www.fshxjd.com/book/74i1qp7/
+- 直男咒术师的限制级游戏 https://www.fshxjd.com/book/74i1j0m/
+- 寡妇美人模拟器 https://www.fshxjd.com/book/74i1j0a/
+- [足球]我的游戏存档成真了？！ https://www.fshxjd.com/book/74i1ils/
+- 仙门透明人被迫万人迷 https://www.fshxjd.com/book/74i1ika/
+- 让你们无剧本可走（快穿） https://www.fshxjd.com/book/74i1iit/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.fshxjd.com/book/74i1ibd/
+- 摄政王家的咸鱼夫郎 https://www.fshxjd.com/book/74i1hig/
+- 我与龙傲天寿命共享 https://www.fshxjd.com/book/74i1dtl/
+- 如何正确哄睡暴君 https://www.fshxjd.com/book/74i19fl/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.fshxjd.com/book/74i12fe/
+- 被天使之王骗婚后[诡秘之主] https://www.fshxjd.com/book/74i0upr/
+- 沈助理又在隐藏他的超能力 https://www.fshxjd.com/book/74i0uov/
+- 死对头又在挑衅我 https://www.fshxjd.com/book/74i0tq0/
+- 在民俗惊悚片被诸神庇护 https://www.fshxjd.com/book/74i0pok/
+- 从童星开始杀穿港娱 https://www.fshxjd.com/book/74i0pk1/
+- 我有一座地下城 https://www.fshxjd.com/book/74i0lun/
+- 漂亮女配是万人迷［快穿］ https://www.fshxjd.com/book/74i0lb5/
+- 开局绑定郭奉孝，谋定三国风云 https://www.fshxjd.com/book/74i0jfn/
+- 阴阳师也可以打网球 https://www.fshxjd.com/book/74i0hvp/
+- 我骗家里的钱养你啊 https://www.fshxjd.com/book/74i0hvm/
+- 同时扮演贵族学院F4和平民校花 https://www.fshxjd.com/book/74i0fg2/
+- 和治君只是饭搭子的关系 https://www.fshxjd.com/book/74i0ehq/
+- 如何嫁给当朝首辅 https://www.fshxjd.com/book/74i0ed4/
+- 和贵志君是世界第一的好朋友 https://www.fshxjd.com/book/74i0dul/
+- 在魔法贵族学院当白月光 https://www.fshxjd.com/book/74i0cl3/
+- 多梦你一会儿 https://www.fshxjd.com/book/74i0cip/
+- 苏娘子汴京摆摊日常（美食） https://www.fshxjd.com/book/74i0c7u/
+- 五条老师与他的封建妻子 https://www.fshxjd.com/book/74i0act/
+- 我187了，你敢见我吗？ https://www.fshxjd.com/book/74i0a9q/
+- 卷王后妈，八零养娃 https://www.fshxjd.com/book/74i08g8/
+- 和姐姐的前女友欢愉后 https://www.fshxjd.com/book/74i07f3/
+- [封神]圣人生欲 https://www.fshxjd.com/book/74i053h/
+- 朕也要被强制吗？ https://www.fshxjd.com/book/74hvv41/
+- 大唐守军家属 https://www.fshxjd.com/book/74hvulv/
+- 在重生文里考科举 https://www.fshxjd.com/book/74hvqrc/
+- 妻主风流（女尊） https://www.fshxjd.com/book/74hvo18/
+- 韩团绿卡不想忍了 https://www.fshxjd.com/book/74hvnqo/
+- 死亡悖论[无限流] https://www.fshxjd.com/book/74hvn4b/
+- 心动嫌疑人 https://www.fshxjd.com/book/74hvl43/
+- 这个位面归我了！[经营] https://www.fshxjd.com/book/74hvkp3/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.fshxjd.com/book/74hvioi/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.fshxjd.com/book/74hvih0/
+- 带清冷女主回乡养螃蟹[种田] https://www.fshxjd.com/book/74hvi48/
+- 死遁的亡夫们都回来了 https://www.fshxjd.com/book/74hvh08/
+- 清冷丞相怀了死对头的崽 https://www.fshxjd.com/book/74hvh06/
+- 被糟蹋的老实人决定反击 https://www.fshxjd.com/book/74hvgts/
+- 村霸非要入赘受气包 https://www.fshxjd.com/book/74hvf8b/
+- 和山神搭伙开农场的日子 https://www.fshxjd.com/book/74hve90/
+- 假意逢承 https://www.fshxjd.com/book/74hvd7r/
+- 恶犬攻绑定上司的乖狗系统 https://www.fshxjd.com/book/74hvbnl/
+- 权宋一只统 https://www.fshxjd.com/book/74hv78f/
+- 爱好和平但狂拆机甲 https://www.fshxjd.com/book/74hv1oj/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.fshxjd.com/book/74hu5nj/
+- 老实人妻，但顶级魅魔 https://www.fshxjd.com/book/74hu5bq/
+- 天幕今天也在直播我搞基建 https://www.fshxjd.com/book/74hu59o/
+- [娱乐圈]过分美丽的她 https://www.fshxjd.com/book/74hu53j/
+- 成为养成系练习生后 https://www.fshxjd.com/book/74hu51p/
+- 大瑛弟国 https://www.fshxjd.com/book/74hu4v1/
+- 巨物致富：回乡开钓场 https://www.fshxjd.com/book/74hu4l3/
+- 五十年代港城日常 https://www.fshxjd.com/book/74hu4g9/
+- 海岛求生：生活玩家种田囤货 https://www.fshxjd.com/book/74hu48i/
+- 日化人生[科研] https://www.fshxjd.com/book/74hu43o/
+- 95美国贵族高中模拟 https://www.fshxjd.com/book/74hu41o/
+- 我有一座安全城 https://www.fshxjd.com/book/74hu3rs/
+- 老公对不起 https://www.fshxjd.com/book/74hu3no/
+- 六零之成了卷王的妹妹 https://www.fshxjd.com/book/74hu3kj/
+- 全民求生:从小木屋到魔法农场 https://www.fshxjd.com/book/74hu3ha/
+- 我是唯一地上神国 https://www.fshxjd.com/book/74hu3fj/
+- 路人攻了主角攻［快穿］ https://www.fshxjd.com/book/74hu386/
+- 清澈女大的六零年代 https://www.fshxjd.com/book/74hu2vm/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1338/index.md)

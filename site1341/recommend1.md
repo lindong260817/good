@@ -1,175 +1,167 @@
 
 # 春日书屋-免费热门小说在线阅读平台|晋江文学|全本免费畅读
 
-更新时间：2026-09-07 03:38:45
+更新时间：2026-09-08 03:39:30
 
-春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！
-
-- [春日书屋小说](https://www.shenyuanhg.com/)
+春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！ https://www.shenyuanhg.com
 
 ## 最新小说
-- [和八个男人在极寒游戏求生](https://www.shenyuanhg.com/book/7gie9j9/)
-- [魔改剧本后我爆火了[娱乐圈]](https://www.shenyuanhg.com/book/7gie9j8/)
-- [前妻她肯定会后悔](https://www.shenyuanhg.com/book/7gie9j5/)
-- [好心的俄罗斯人](https://www.shenyuanhg.com/book/7gie9j4/)
-- [谁说踢球就不能成为名侦探[足球]](https://www.shenyuanhg.com/book/7gie9j3/)
-- [爱情的肯定句](https://www.shenyuanhg.com/book/7gie9iu/)
-- [欲加之罪](https://www.shenyuanhg.com/book/7gie9it/)
-- [病美人重生日记](https://www.shenyuanhg.com/book/7gie9iq/)
-- [清穿女回来后[天幕]](https://www.shenyuanhg.com/book/7gie9il/)
-- [谁都不爱的和亲公主](https://www.shenyuanhg.com/book/7gie9ii/)
-- [［西幻］RPG就不要谈恋爱了吧！](https://www.shenyuanhg.com/book/7gie9ig/)
-- [乖乖女的杂货铺[八零]](https://www.shenyuanhg.com/book/7gie9id/)
-- [恐游作精女配求生指南](https://www.shenyuanhg.com/book/7gie9i9/)
-- [在中世纪做奴隶](https://www.shenyuanhg.com/book/7gie9i7/)
-- [热恋过期需重追](https://www.shenyuanhg.com/book/7gie9i2/)
-- [魔咒请说普通话[西幻]](https://www.shenyuanhg.com/book/7gie9i1/)
-- [仙尊心尖宠，但被魔尊抢了](https://www.shenyuanhg.com/book/7gie9i0/)
-- [康熙宠妃日常](https://www.shenyuanhg.com/book/7gie9hv/)
-- [怨明月不独照](https://www.shenyuanhg.com/book/7gie9ht/)
-- [SSS级异种都是我前任](https://www.shenyuanhg.com/book/7gie9hj/)
-- [占有欲Daddy是我老公？](https://www.shenyuanhg.com/book/7gie9hg/)
-- [强取师尊后](https://www.shenyuanhg.com/book/7gie9hc/)
-- [暗恋的价格是三万块](https://www.shenyuanhg.com/book/7gie9hb/)
-- [穿咒术，但杀猴现场](https://www.shenyuanhg.com/book/7gie9h8/)
-- [从1951开始](https://www.shenyuanhg.com/book/7gie9h7/)
-- [[综英美]和亲友群穿哥谭以后](https://www.shenyuanhg.com/book/7gie9h6/)
-- [恐游里的邻居们[万人迷]](https://www.shenyuanhg.com/book/7gie9gv/)
-- [我只想上京赶考啊[聊斋]](https://www.shenyuanhg.com/book/7gie9gt/)
-- [魔法种田，从退队经营农场开始](https://www.shenyuanhg.com/book/7gie9gk/)
-- [正是冬雪沸腾时](https://www.shenyuanhg.com/book/7gie9gg/)
-- [国运求生：我的金手指是生命树](https://www.shenyuanhg.com/book/7gie9gf/)
-- [我们小区穿末世](https://www.shenyuanhg.com/book/7gie9ge/)
-- [星露谷，但日本战国](https://www.shenyuanhg.com/book/7gie9gd/)
-- [炮灰的海外亲戚回国啦！](https://www.shenyuanhg.com/book/7gie9gc/)
-- [万人嫌从末世回来了](https://www.shenyuanhg.com/book/7gie9ga/)
-- [末世八年春，游戏降临](https://www.shenyuanhg.com/book/7gie9g8/)
-- [娘娘扶摇直上](https://www.shenyuanhg.com/book/7gie9g7/)
-- [双生子反派的端水抑郁妈[九零]](https://www.shenyuanhg.com/book/7gie9g5/)
-- [国师](https://www.shenyuanhg.com/book/7gie9g4/)
-- [欲和离？夫君他目不识丁](https://www.shenyuanhg.com/book/7gie9g3/)
-- [[足球]雏鸟](https://www.shenyuanhg.com/book/7gie9g2/)
-- [[综英美]哥谭市民，在线抽卡](https://www.shenyuanhg.com/book/7gie9g1/)
-- [漫画取材所引发的修罗场](https://www.shenyuanhg.com/book/7gie9g0/)
-- [世界伏于她刀下[无限]](https://www.shenyuanhg.com/book/7gie9fv/)
-- [全民求生，但剑三](https://www.shenyuanhg.com/book/7gie9fu/)
-- [你让魔王组建勇者小队？](https://www.shenyuanhg.com/book/7gie9fr/)
-- [在年代文里跑运输](https://www.shenyuanhg.com/book/7gie9fq/)
-- [二次分化后他怀了死对头的崽](https://www.shenyuanhg.com/book/7gie9fm/)
-- [全世界名为爱的恶意](https://www.shenyuanhg.com/book/7gie9fk/)
-- [烈火焚身[巴黎圣母院]](https://www.shenyuanhg.com/book/7gie9fh/)
-- [[全职高手]治疗什么的不干了！](https://www.shenyuanhg.com/book/7gie9fc/)
-- [魔尊闭关十年连生十一子？！](https://www.shenyuanhg.com/book/7gie9fa/)
-- [八零法医，带全家致富](https://www.shenyuanhg.com/book/7gie9f7/)
-- [失忆后和死对头有了崽](https://www.shenyuanhg.com/book/7gie9f6/)
-- [禁止继承限制级雌君](https://www.shenyuanhg.com/book/7gie9f4/)
-- [[原神]魔法使恋爱指南](https://www.shenyuanhg.com/book/7gie9eu/)
-- [大佬的漂亮老婆回来带崽了[八零]](https://www.shenyuanhg.com/book/7gie9eq/)
-- [夫人每天都在伪装](https://www.shenyuanhg.com/book/7gie9ep/)
-- [死遁APP](https://www.shenyuanhg.com/book/7gie9ek/)
-- [咦？我爸爸复活啦](https://www.shenyuanhg.com/book/7gie9ej/)
-- [穿为龙傲天发妻后](https://www.shenyuanhg.com/book/7gie9ef/)
-- [恶毒男配只想躺平](https://www.shenyuanhg.com/book/7gie9ee/)
-- [等我吃腻了再倒闭可以吗](https://www.shenyuanhg.com/book/7gie9ec/)
-- [人，今晚土拨鼠站岗](https://www.shenyuanhg.com/book/7gie9eb/)
-- [[足球]小小鸟堂堂来袭](https://www.shenyuanhg.com/book/7gie9ea/)
-- [[洪荒]成为太清妹妹后](https://www.shenyuanhg.com/book/7gie9e9/)
-- [[崩铁]请给玩家一个准确的血条！](https://www.shenyuanhg.com/book/7gie9e7/)
-- [［综英美］蝙蝠崽？我不是啊！](https://www.shenyuanhg.com/book/7gie9e5/)
-- [我们生活玩家是这样的](https://www.shenyuanhg.com/book/7gie8id/)
-- [[足球]拥有分身系统的我靠踢足球建设国家](https://www.shenyuanhg.com/book/7gie38u/)
-- [上个鬼班[无限]](https://www.shenyuanhg.com/book/7gidpa7/)
-- [星际团宠小人鱼](https://www.shenyuanhg.com/book/7gido92/)
-- [始乱终弃清冷首辅后](https://www.shenyuanhg.com/book/7gido8d/)
-- [原配夫人](https://www.shenyuanhg.com/book/7gido6v/)
-- [让暴君Alpha怀崽后](https://www.shenyuanhg.com/book/7gidmqc/)
-- [华夏神明震撼星际](https://www.shenyuanhg.com/book/7gidj3v/)
-- [[足球]足坛人生模拟器](https://www.shenyuanhg.com/book/7gidh1c/)
-- [神豪文男主是我爸](https://www.shenyuanhg.com/book/7gideh3/)
-- [趁她之危](https://www.shenyuanhg.com/book/7gidb53/)
-- [在卷王和废物之间选择做吉祥物](https://www.shenyuanhg.com/book/7gid7fn/)
-- [完蛋！被恨孕男包围了！](https://www.shenyuanhg.com/book/7gid7dp/)
-- [昭暮](https://www.shenyuanhg.com/book/7gid43p/)
-- [从维多利亚时代开始](https://www.shenyuanhg.com/book/7gid3gl/)
-- [假少爷离开后](https://www.shenyuanhg.com/book/7gict1j/)
-- [食明](https://www.shenyuanhg.com/book/7gickgh/)
-- [诡话第一boss](https://www.shenyuanhg.com/book/7gichfp/)
-- [专业女配的自我修养（快穿）](https://www.shenyuanhg.com/book/7gicgko/)
-- [十九世纪贵族厨房（美食）](https://www.shenyuanhg.com/book/7gicen4/)
-- [起初，我只是想找个冤大头](https://www.shenyuanhg.com/book/7gicctd/)
-- [高调装神，猥琐发育](https://www.shenyuanhg.com/book/7giccbi/)
-- [让你们无剧本可走（快穿）](https://www.shenyuanhg.com/book/7gic70d/)
-- [[足球]我的游戏存档成真了？！](https://www.shenyuanhg.com/book/7gic6uh/)
-- [社畜Beta也能被顶A觊觎吗](https://www.shenyuanhg.com/book/7gic6os/)
-- [浣熊市蝙蝠崽的哥谭居住指南](https://www.shenyuanhg.com/book/7gic6cb/)
-- [直男咒术师的限制级游戏](https://www.shenyuanhg.com/book/7gic5ii/)
-- [摄政王家的咸鱼夫郎](https://www.shenyuanhg.com/book/7gic2k7/)
-- [我与龙傲天寿命共享](https://www.shenyuanhg.com/book/7gibvks/)
-- [如何正确哄睡暴君](https://www.shenyuanhg.com/book/7gibt0n/)
-- [怀了前任大哥的崽后](https://www.shenyuanhg.com/book/7gibmap/)
-- [阴郁残疾炮灰被万人迷后[快穿]](https://www.shenyuanhg.com/book/7gibkrv/)
-- [沈助理又在隐藏他的超能力](https://www.shenyuanhg.com/book/7gibj48/)
-- [死对头又在挑衅我](https://www.shenyuanhg.com/book/7gibj2j/)
-- [被天使之王骗婚后[诡秘之主]](https://www.shenyuanhg.com/book/7gibgfs/)
-- [假金丝雀深陷修罗场](https://www.shenyuanhg.com/book/7gibdtr/)
-- [在民俗惊悚片被诸神庇护](https://www.shenyuanhg.com/book/7gibccb/)
-- [美貌单出，杀穿港娱［八零］](https://www.shenyuanhg.com/book/7gibai0/)
-- [我有一座地下城](https://www.shenyuanhg.com/book/7gib8vj/)
-- [漂亮女配是万人迷［快穿］](https://www.shenyuanhg.com/book/7gib8lq/)
-- [开局绑定郭奉孝，谋定三国风云](https://www.shenyuanhg.com/book/7gib5id/)
-- [阴阳师也可以打网球](https://www.shenyuanhg.com/book/7gib4bf/)
-- [同时扮演贵族学院F4和平民校花](https://www.shenyuanhg.com/book/7gib3s6/)
-- [我骗家里的钱养你啊](https://www.shenyuanhg.com/book/7gib3ir/)
-- [苏娘子汴京摆摊日常（美食）](https://www.shenyuanhg.com/book/7gib1mn/)
-- [和治君只是饭搭子的关系](https://www.shenyuanhg.com/book/7gib14u/)
-- [在魔法贵族学院当白月光](https://www.shenyuanhg.com/book/7gib0od/)
-- [多梦你一会儿](https://www.shenyuanhg.com/book/7gib09f/)
-- [和贵志君是世界第一的好朋友](https://www.shenyuanhg.com/book/7giavro/)
-- [如何嫁给当朝首辅](https://www.shenyuanhg.com/book/7giavbe/)
-- [五条老师与他的封建妻子](https://www.shenyuanhg.com/book/7giat86/)
-- [我187了，你敢见我吗？](https://www.shenyuanhg.com/book/7giaska/)
-- [卷王后妈，八零养娃](https://www.shenyuanhg.com/book/7giar0t/)
-- [和姐姐的前女友欢愉后](https://www.shenyuanhg.com/book/7giaqvd/)
-- [我司艺人永不塌房](https://www.shenyuanhg.com/book/7giaopv/)
-- [[封神]圣人生欲](https://www.shenyuanhg.com/book/7giambt/)
-- [大唐守军家属](https://www.shenyuanhg.com/book/7giah38/)
-- [朕也要被强制吗？](https://www.shenyuanhg.com/book/7giagnf/)
-- [在重生文里考科举](https://www.shenyuanhg.com/book/7giag30/)
-- [妻主风流（女尊）](https://www.shenyuanhg.com/book/7giacih/)
-- [韩团绿卡不想忍了](https://www.shenyuanhg.com/book/7giabok/)
-- [死亡悖论[无限流]](https://www.shenyuanhg.com/book/7gia9mv/)
-- [心动嫌疑人](https://www.shenyuanhg.com/book/7gia7du/)
-- [这个位面归我了！[经营]](https://www.shenyuanhg.com/book/7gia7dd/)
-- [让霸刀山庄重回忍界之巅[综剑三]](https://www.shenyuanhg.com/book/7gia6p4/)
-- [逃出金丝笼，我力挽山河开国称帝](https://www.shenyuanhg.com/book/7gia6f2/)
-- [带清冷女主回乡养螃蟹[种田]](https://www.shenyuanhg.com/book/7gia5p6/)
-- [死遁的亡夫们都回来了](https://www.shenyuanhg.com/book/7gia3bc/)
-- [村霸非要入赘受气包](https://www.shenyuanhg.com/book/7gia2pu/)
-- [被糟蹋的老实人决定反击](https://www.shenyuanhg.com/book/7gia2nf/)
-- [清冷丞相怀了死对头的崽](https://www.shenyuanhg.com/book/7gia25s/)
-- [和山神搭伙开农场的日子](https://www.shenyuanhg.com/book/7gia024/)
-- [假意逢承](https://www.shenyuanhg.com/book/7gi9vgs/)
-- [恶犬攻绑定上司的乖狗系统](https://www.shenyuanhg.com/book/7gi9t43/)
-- [权宋一只统](https://www.shenyuanhg.com/book/7gi9r7m/)
-- [爱好和平但狂拆机甲](https://www.shenyuanhg.com/book/7gi9l6v/)
-- [路人攻了主角攻［快穿］](https://www.shenyuanhg.com/book/7gi8ofo/)
-- [日化人生[科研]](https://www.shenyuanhg.com/book/7gi8oc6/)
-- [五十年代港城日常](https://www.shenyuanhg.com/book/7gi8o7t/)
-- [95美国贵族高中模拟](https://www.shenyuanhg.com/book/7gi8o3e/)
-- [[娱乐圈]过分美丽的她](https://www.shenyuanhg.com/book/7gi8nuu/)
-- [我有一座安全城](https://www.shenyuanhg.com/book/7gi8nsa/)
-- [巨物致富：回乡开钓场](https://www.shenyuanhg.com/book/7gi8n56/)
-- [全民求生:从小木屋到魔法农场](https://www.shenyuanhg.com/book/7gi8n4d/)
-- [清澈女大的六零年代](https://www.shenyuanhg.com/book/7gi8mv3/)
-- [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shenyuanhg.com/book/7gi8mm1/)
-- [海岛求生：生活玩家种田囤货](https://www.shenyuanhg.com/book/7gi8mlr/)
-- [六零之成了卷王的妹妹](https://www.shenyuanhg.com/book/7gi8mkk/)
-- [高门小婢](https://www.shenyuanhg.com/book/7gi8mbh/)
-- [我是唯一地上神国](https://www.shenyuanhg.com/book/7gi8mac/)
-- [成为养成系练习生后](https://www.shenyuanhg.com/book/7gi8m6o/)
-- [老公对不起](https://www.shenyuanhg.com/book/7gi8m4f/)
-- [大瑛弟国](https://www.shenyuanhg.com/book/7gi8lpk/)
-- [老实人妻，但顶级魅魔](https://www.shenyuanhg.com/book/7gi8liq/)
+- 魔改剧本后我爆火了[娱乐圈] https://www.shenyuanhg.com/book/7gie9j8/
+- 前妻她肯定会后悔 https://www.shenyuanhg.com/book/7gie9j5/
+- 好心的俄罗斯人 https://www.shenyuanhg.com/book/7gie9j4/
+- 谁说踢球就不能成为名侦探[足球] https://www.shenyuanhg.com/book/7gie9j3/
+- 爱情的肯定句 https://www.shenyuanhg.com/book/7gie9iu/
+- 欲加之罪 https://www.shenyuanhg.com/book/7gie9it/
+- 病美人重生日记 https://www.shenyuanhg.com/book/7gie9iq/
+- 清穿女回来后[天幕] https://www.shenyuanhg.com/book/7gie9il/
+- 谁都不爱的和亲公主 https://www.shenyuanhg.com/book/7gie9ii/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.shenyuanhg.com/book/7gie9ig/
+- 乖乖女的杂货铺[八零] https://www.shenyuanhg.com/book/7gie9id/
+- 恐游作精女配求生指南 https://www.shenyuanhg.com/book/7gie9i9/
+- 在中世纪做奴隶 https://www.shenyuanhg.com/book/7gie9i7/
+- 热恋过期需重追 https://www.shenyuanhg.com/book/7gie9i2/
+- 魔咒请说普通话[西幻] https://www.shenyuanhg.com/book/7gie9i1/
+- 仙尊心尖宠，但被魔尊抢了 https://www.shenyuanhg.com/book/7gie9i0/
+- 康熙宠妃日常 https://www.shenyuanhg.com/book/7gie9hv/
+- 怨明月不独照 https://www.shenyuanhg.com/book/7gie9ht/
+- SSS级异种都是我前任 https://www.shenyuanhg.com/book/7gie9hj/
+- 占有欲Daddy是我老公？ https://www.shenyuanhg.com/book/7gie9hg/
+- 强取师尊后 https://www.shenyuanhg.com/book/7gie9hc/
+- 暗恋的价格是三万块 https://www.shenyuanhg.com/book/7gie9hb/
+- 穿咒术，但杀猴现场 https://www.shenyuanhg.com/book/7gie9h8/
+- 从1951开始 https://www.shenyuanhg.com/book/7gie9h7/
+- [综英美]和亲友群穿哥谭以后 https://www.shenyuanhg.com/book/7gie9h6/
+- 恐游里的邻居们[万人迷] https://www.shenyuanhg.com/book/7gie9gv/
+- 我只想上京赶考啊[聊斋] https://www.shenyuanhg.com/book/7gie9gt/
+- 魔法种田，从退队经营农场开始 https://www.shenyuanhg.com/book/7gie9gk/
+- 正是冬雪沸腾时 https://www.shenyuanhg.com/book/7gie9gg/
+- 国运求生：我的金手指是生命树 https://www.shenyuanhg.com/book/7gie9gf/
+- 我们小区穿末世 https://www.shenyuanhg.com/book/7gie9ge/
+- 星露谷，但日本战国 https://www.shenyuanhg.com/book/7gie9gd/
+- 炮灰的海外亲戚回国啦！ https://www.shenyuanhg.com/book/7gie9gc/
+- 万人嫌从末世回来了 https://www.shenyuanhg.com/book/7gie9ga/
+- 末世八年春，游戏降临 https://www.shenyuanhg.com/book/7gie9g8/
+- 娘娘扶摇直上 https://www.shenyuanhg.com/book/7gie9g7/
+- 双生子反派的端水抑郁妈[九零] https://www.shenyuanhg.com/book/7gie9g5/
+- 国师 https://www.shenyuanhg.com/book/7gie9g4/
+- 欲和离？夫君他目不识丁 https://www.shenyuanhg.com/book/7gie9g3/
+- [足球]雏鸟 https://www.shenyuanhg.com/book/7gie9g2/
+- [综英美]哥谭市民，在线抽卡 https://www.shenyuanhg.com/book/7gie9g1/
+- 漫画取材所引发的修罗场 https://www.shenyuanhg.com/book/7gie9g0/
+- 世界伏于她刀下[无限] https://www.shenyuanhg.com/book/7gie9fv/
+- 全民求生，但剑三 https://www.shenyuanhg.com/book/7gie9fu/
+- 你让魔王组建勇者小队？ https://www.shenyuanhg.com/book/7gie9fr/
+- 在年代文里跑运输 https://www.shenyuanhg.com/book/7gie9fq/
+- 二次分化后他怀了死对头的崽 https://www.shenyuanhg.com/book/7gie9fm/
+- 全世界名为爱的恶意 https://www.shenyuanhg.com/book/7gie9fk/
+- 烈火焚身[巴黎圣母院] https://www.shenyuanhg.com/book/7gie9fh/
+- [全职高手]治疗什么的不干了！ https://www.shenyuanhg.com/book/7gie9fc/
+- 魔尊闭关十年连生十一子？！ https://www.shenyuanhg.com/book/7gie9fa/
+- 八零法医，带全家致富 https://www.shenyuanhg.com/book/7gie9f7/
+- 失忆后和死对头有了崽 https://www.shenyuanhg.com/book/7gie9f6/
+- 禁止继承限制级雌君 https://www.shenyuanhg.com/book/7gie9f4/
+- [原神]魔法使恋爱指南 https://www.shenyuanhg.com/book/7gie9eu/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.shenyuanhg.com/book/7gie9eq/
+- 夫人每天都在伪装 https://www.shenyuanhg.com/book/7gie9ep/
+- 死遁APP https://www.shenyuanhg.com/book/7gie9ek/
+- 咦？我爸爸复活啦 https://www.shenyuanhg.com/book/7gie9ej/
+- 穿为龙傲天发妻后 https://www.shenyuanhg.com/book/7gie9ef/
+- 恶毒男配只想躺平 https://www.shenyuanhg.com/book/7gie9ee/
+- 等我吃腻了再倒闭可以吗 https://www.shenyuanhg.com/book/7gie9ec/
+- 人，今晚土拨鼠站岗 https://www.shenyuanhg.com/book/7gie9eb/
+- [足球]小小鸟堂堂来袭 https://www.shenyuanhg.com/book/7gie9ea/
+- [洪荒]成为太清妹妹后 https://www.shenyuanhg.com/book/7gie9e9/
+- [崩铁]请给玩家一个准确的血条！ https://www.shenyuanhg.com/book/7gie9e7/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.shenyuanhg.com/book/7gie9e5/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.shenyuanhg.com/book/7gie38u/
+- 上个鬼班[无限] https://www.shenyuanhg.com/book/7gidpa7/
+- 星际团宠小人鱼 https://www.shenyuanhg.com/book/7gido92/
+- 始乱终弃清冷首辅后 https://www.shenyuanhg.com/book/7gido8d/
+- 原配夫人 https://www.shenyuanhg.com/book/7gido6v/
+- 让暴君Alpha怀崽后 https://www.shenyuanhg.com/book/7gidmqc/
+- 九零重组小家庭 https://www.shenyuanhg.com/book/7gidjpq/
+- [足球]足坛人生模拟器 https://www.shenyuanhg.com/book/7gidh1c/
+- 趁她之危 https://www.shenyuanhg.com/book/7gidb53/
+- 在卷王和废物之间选择做吉祥物 https://www.shenyuanhg.com/book/7gid7fn/
+- 完蛋！被恨孕男包围了！ https://www.shenyuanhg.com/book/7gid7dp/
+- 昭暮 https://www.shenyuanhg.com/book/7gid43p/
+- 从维多利亚时代开始 https://www.shenyuanhg.com/book/7gid3gl/
+- 食明 https://www.shenyuanhg.com/book/7gickgh/
+- 诡话第一boss https://www.shenyuanhg.com/book/7gichfp/
+- 专业女配的自我修养（快穿） https://www.shenyuanhg.com/book/7gicgko/
+- 十九世纪贵族厨房（美食） https://www.shenyuanhg.com/book/7gicen4/
+- 起初，我只是想找个冤大头 https://www.shenyuanhg.com/book/7gicctd/
+- 高调装神，猥琐发育 https://www.shenyuanhg.com/book/7giccbi/
+- 寡妇美人模拟器 https://www.shenyuanhg.com/book/7gic7ld/
+- 让你们无剧本可走（快穿） https://www.shenyuanhg.com/book/7gic70d/
+- [足球]我的游戏存档成真了？！ https://www.shenyuanhg.com/book/7gic6uh/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.shenyuanhg.com/book/7gic6cb/
+- 仙门透明人被迫万人迷 https://www.shenyuanhg.com/book/7gic5oe/
+- 直男咒术师的限制级游戏 https://www.shenyuanhg.com/book/7gic5ii/
+- 摄政王家的咸鱼夫郎 https://www.shenyuanhg.com/book/7gic2k7/
+- 我与龙傲天寿命共享 https://www.shenyuanhg.com/book/7gibvks/
+- 如何正确哄睡暴君 https://www.shenyuanhg.com/book/7gibt0n/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.shenyuanhg.com/book/7gibkrv/
+- 沈助理又在隐藏他的超能力 https://www.shenyuanhg.com/book/7gibj48/
+- 死对头又在挑衅我 https://www.shenyuanhg.com/book/7gibj2j/
+- 被天使之王骗婚后[诡秘之主] https://www.shenyuanhg.com/book/7gibgfs/
+- 在民俗惊悚片被诸神庇护 https://www.shenyuanhg.com/book/7gibccb/
+- 从童星开始杀穿港娱 https://www.shenyuanhg.com/book/7gibai0/
+- 我有一座地下城 https://www.shenyuanhg.com/book/7gib8vj/
+- 漂亮女配是万人迷［快穿］ https://www.shenyuanhg.com/book/7gib8lq/
+- 开局绑定郭奉孝，谋定三国风云 https://www.shenyuanhg.com/book/7gib5id/
+- 阴阳师也可以打网球 https://www.shenyuanhg.com/book/7gib4bf/
+- 同时扮演贵族学院F4和平民校花 https://www.shenyuanhg.com/book/7gib3s6/
+- 我骗家里的钱养你啊 https://www.shenyuanhg.com/book/7gib3ir/
+- 苏娘子汴京摆摊日常（美食） https://www.shenyuanhg.com/book/7gib1mn/
+- 和治君只是饭搭子的关系 https://www.shenyuanhg.com/book/7gib14u/
+- 在魔法贵族学院当白月光 https://www.shenyuanhg.com/book/7gib0od/
+- 多梦你一会儿 https://www.shenyuanhg.com/book/7gib09f/
+- 和贵志君是世界第一的好朋友 https://www.shenyuanhg.com/book/7giavro/
+- 如何嫁给当朝首辅 https://www.shenyuanhg.com/book/7giavbe/
+- 五条老师与他的封建妻子 https://www.shenyuanhg.com/book/7giat86/
+- 我187了，你敢见我吗？ https://www.shenyuanhg.com/book/7giaska/
+- 卷王后妈，八零养娃 https://www.shenyuanhg.com/book/7giar0t/
+- 和姐姐的前女友欢愉后 https://www.shenyuanhg.com/book/7giaqvd/
+- [封神]圣人生欲 https://www.shenyuanhg.com/book/7giambt/
+- 大唐守军家属 https://www.shenyuanhg.com/book/7giah38/
+- 朕也要被强制吗？ https://www.shenyuanhg.com/book/7giagnf/
+- 在重生文里考科举 https://www.shenyuanhg.com/book/7giag30/
+- 妻主风流（女尊） https://www.shenyuanhg.com/book/7giacih/
+- 韩团绿卡不想忍了 https://www.shenyuanhg.com/book/7giabok/
+- 死亡悖论[无限流] https://www.shenyuanhg.com/book/7gia9mv/
+- 心动嫌疑人 https://www.shenyuanhg.com/book/7gia7du/
+- 这个位面归我了！[经营] https://www.shenyuanhg.com/book/7gia7dd/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.shenyuanhg.com/book/7gia6p4/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.shenyuanhg.com/book/7gia6f2/
+- 带清冷女主回乡养螃蟹[种田] https://www.shenyuanhg.com/book/7gia5p6/
+- 死遁的亡夫们都回来了 https://www.shenyuanhg.com/book/7gia3bc/
+- 村霸非要入赘受气包 https://www.shenyuanhg.com/book/7gia2pu/
+- 被糟蹋的老实人决定反击 https://www.shenyuanhg.com/book/7gia2nf/
+- 清冷丞相怀了死对头的崽 https://www.shenyuanhg.com/book/7gia25s/
+- 和山神搭伙开农场的日子 https://www.shenyuanhg.com/book/7gia024/
+- 假意逢承 https://www.shenyuanhg.com/book/7gi9vgs/
+- 恶犬攻绑定上司的乖狗系统 https://www.shenyuanhg.com/book/7gi9t43/
+- 权宋一只统 https://www.shenyuanhg.com/book/7gi9r7m/
+- 爱好和平但狂拆机甲 https://www.shenyuanhg.com/book/7gi9l6v/
+- 路人攻了主角攻［快穿］ https://www.shenyuanhg.com/book/7gi8ofo/
+- 日化人生[科研] https://www.shenyuanhg.com/book/7gi8oc6/
+- 五十年代港城日常 https://www.shenyuanhg.com/book/7gi8o7t/
+- 95美国贵族高中模拟 https://www.shenyuanhg.com/book/7gi8o3e/
+- [娱乐圈]过分美丽的她 https://www.shenyuanhg.com/book/7gi8nuu/
+- 我有一座安全城 https://www.shenyuanhg.com/book/7gi8nsa/
+- 巨物致富：回乡开钓场 https://www.shenyuanhg.com/book/7gi8n56/
+- 全民求生:从小木屋到魔法农场 https://www.shenyuanhg.com/book/7gi8n4d/
+- 清澈女大的六零年代 https://www.shenyuanhg.com/book/7gi8mv3/
+- 天幕今天也在直播我搞基建 https://www.shenyuanhg.com/book/7gi8mn0/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.shenyuanhg.com/book/7gi8mm1/
+- 海岛求生：生活玩家种田囤货 https://www.shenyuanhg.com/book/7gi8mlr/
+- 六零之成了卷王的妹妹 https://www.shenyuanhg.com/book/7gi8mkk/
+- 我是唯一地上神国 https://www.shenyuanhg.com/book/7gi8mac/
+- 成为养成系练习生后 https://www.shenyuanhg.com/book/7gi8m6o/
+- 老公对不起 https://www.shenyuanhg.com/book/7gi8m4f/
+- 大瑛弟国 https://www.shenyuanhg.com/book/7gi8lpk/
+- 老实人妻，但顶级魅魔 https://www.shenyuanhg.com/book/7gi8liq/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1341/index.md)

@@ -1,175 +1,167 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-07 03:37:53
+更新时间：2026-09-08 03:38:39
 
-七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
-
-- [七步阁](https://www.revwarny.com/)
+七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。 https://www.revwarny.com
 
 ## 最新小说
-- [和八个男人在极寒游戏求生](https://www.revwarny.com/book/3sgl7sk/)
-- [占有欲Daddy是我老公？](https://www.revwarny.com/book/3sgl7sj/)
-- [你让魔王组建勇者小队？](https://www.revwarny.com/book/3sgl7si/)
-- [[崩铁]请给玩家一个准确的血条！](https://www.revwarny.com/book/3sgl7sh/)
-- [好心的俄罗斯人](https://www.revwarny.com/book/3sgl7sg/)
-- [全世界名为爱的恶意](https://www.revwarny.com/book/3sgl7sf/)
-- [同时扮演贵族学院F4和平民校花](https://www.revwarny.com/book/3sgl7se/)
-- [[足球]雏鸟](https://www.revwarny.com/book/3sgl7sd/)
-- [谁都不爱的和亲公主](https://www.revwarny.com/book/3sgl7sc/)
-- [[全职高手]治疗什么的不干了！](https://www.revwarny.com/book/3sgl7sb/)
-- [爱情的肯定句](https://www.revwarny.com/book/3sgl7sa/)
-- [欲和离？夫君他目不识丁](https://www.revwarny.com/book/3sgl7s9/)
-- [在中世纪做奴隶](https://www.revwarny.com/book/3sgl7s8/)
-- [我只想上京赶考啊[聊斋]](https://www.revwarny.com/book/3sgl7s7/)
-- [［综英美］蝙蝠崽？我不是啊！](https://www.revwarny.com/book/3sgl7s6/)
-- [我们小区穿末世](https://www.revwarny.com/book/3sgl7s5/)
-- [魔法种田，从退队经营农场开始](https://www.revwarny.com/book/3sgl7s4/)
-- [国师](https://www.revwarny.com/book/3sgl7s3/)
-- [魔尊闭关十年连生十一子？！](https://www.revwarny.com/book/3sgl7s2/)
-- [［西幻］RPG就不要谈恋爱了吧！](https://www.revwarny.com/book/3sgl7s1/)
-- [和治君只是饭搭子的关系](https://www.revwarny.com/book/3sgl7s0/)
-- [前妻她肯定会后悔](https://www.revwarny.com/book/3sgl7rv/)
-- [[综英美]和亲友群穿哥谭以后](https://www.revwarny.com/book/3sgl7ru/)
-- [人，今晚土拨鼠站岗](https://www.revwarny.com/book/3sgl7rt/)
-- [双生子反派的端水抑郁妈[九零]](https://www.revwarny.com/book/3sgl7rs/)
-- [娘娘扶摇直上](https://www.revwarny.com/book/3sgl7rr/)
-- [[原神]魔法使恋爱指南](https://www.revwarny.com/book/3sgl7rq/)
-- [等我吃腻了再倒闭可以吗](https://www.revwarny.com/book/3sgl7rp/)
-- [强取师尊后](https://www.revwarny.com/book/3sgl7ro/)
-- [恶毒男配只想躺平](https://www.revwarny.com/book/3sgl7rm/)
-- [全民求生，但剑三](https://www.revwarny.com/book/3sgl7rl/)
-- [穿咒术，但杀猴现场](https://www.revwarny.com/book/3sgl7rk/)
-- [阴郁残疾炮灰被万人迷后[快穿]](https://www.revwarny.com/book/3sgl7rj/)
-- [在年代文里跑运输](https://www.revwarny.com/book/3sgl7ri/)
-- [夫人每天都在伪装](https://www.revwarny.com/book/3sgl7rg/)
-- [八零法医，带全家致富](https://www.revwarny.com/book/3sgl7rf/)
-- [大佬的漂亮老婆回来带崽了[八零]](https://www.revwarny.com/book/3sgl7re/)
-- [乖乖女的杂货铺[八零]](https://www.revwarny.com/book/3sgl7rd/)
-- [禁止继承限制级雌君](https://www.revwarny.com/book/3sgl7rc/)
-- [世界伏于她刀下[无限]](https://www.revwarny.com/book/3sgl7rb/)
-- [炮灰的海外亲戚回国啦！](https://www.revwarny.com/book/3sgl7ra/)
-- [仙尊心尖宠，但被魔尊抢了](https://www.revwarny.com/book/3sgl7r9/)
-- [从1951开始](https://www.revwarny.com/book/3sgl7r8/)
-- [谁说踢球就不能成为名侦探[足球]](https://www.revwarny.com/book/3sgl7r7/)
-- [SSS级异种都是我前任](https://www.revwarny.com/book/3sgl7r6/)
-- [康熙宠妃日常](https://www.revwarny.com/book/3sgl7r5/)
-- [恐游里的邻居们[万人迷]](https://www.revwarny.com/book/3sgl7r4/)
-- [末世八年春，游戏降临](https://www.revwarny.com/book/3sgl7r3/)
-- [欲加之罪](https://www.revwarny.com/book/3sgl7r2/)
-- [病美人重生日记](https://www.revwarny.com/book/3sgl7r1/)
-- [恐游作精女配求生指南](https://www.revwarny.com/book/3sgl7r0/)
-- [[足球]小小鸟堂堂来袭](https://www.revwarny.com/book/3sgl7qv/)
-- [失忆后和死对头有了崽](https://www.revwarny.com/book/3sgl7qu/)
-- [暗恋的价格是三万块](https://www.revwarny.com/book/3sgl7qt/)
-- [怨明月不独照](https://www.revwarny.com/book/3sgl7qs/)
-- [魔咒请说普通话[西幻]](https://www.revwarny.com/book/3sgl7qr/)
-- [如何正确哄睡暴君](https://www.revwarny.com/book/3sgl7qq/)
-- [[综英美]哥谭市民，在线抽卡](https://www.revwarny.com/book/3sgl7qp/)
-- [二次分化后他怀了死对头的崽](https://www.revwarny.com/book/3sgl7qo/)
-- [清穿女回来后[天幕]](https://www.revwarny.com/book/3sgl7qn/)
-- [正是冬雪沸腾时](https://www.revwarny.com/book/3sgl7qm/)
-- [死遁APP](https://www.revwarny.com/book/3sgl7ql/)
-- [穿为龙傲天发妻后](https://www.revwarny.com/book/3sgl7qk/)
-- [热恋过期需重追](https://www.revwarny.com/book/3sgl7qj/)
-- [[洪荒]成为太清妹妹后](https://www.revwarny.com/book/3sgl7qi/)
-- [星露谷，但日本战国](https://www.revwarny.com/book/3sgl7qh/)
-- [万人嫌从末世回来了](https://www.revwarny.com/book/3sgl7qg/)
-- [咦？我爸爸复活啦](https://www.revwarny.com/book/3sgl7qf/)
-- [我骗家里的钱养你啊](https://www.revwarny.com/book/3sgl7qe/)
-- [烈火焚身[巴黎圣母院]](https://www.revwarny.com/book/3sgl7qd/)
-- [国运求生：我的金手指是生命树](https://www.revwarny.com/book/3sgl7qc/)
-- [漫画取材所引发的修罗场](https://www.revwarny.com/book/3sgl7qb/)
-- [魔改剧本后我爆火了[娱乐圈]](https://www.revwarny.com/book/3sgl7qa/)
-- [我司艺人永不塌房](https://www.revwarny.com/book/3sgl7nn/)
-- [我们生活玩家是这样的](https://www.revwarny.com/book/3sgl7mm/)
-- [星际团宠小人鱼](https://www.revwarny.com/book/3sgl7kn/)
-- [十九世纪贵族厨房（美食）](https://www.revwarny.com/book/3sgl7kk/)
-- [[封神]圣人生欲](https://www.revwarny.com/book/3sgl7k8/)
-- [原配夫人](https://www.revwarny.com/book/3sgl7k6/)
-- [始乱终弃清冷首辅后](https://www.revwarny.com/book/3sgl7j9/)
-- [高调装神，猥琐发育](https://www.revwarny.com/book/3sgl7ih/)
-- [假少爷离开后](https://www.revwarny.com/book/3sgl7ie/)
-- [直男咒术师的限制级游戏](https://www.revwarny.com/book/3sgl7hr/)
-- [浣熊市蝙蝠崽的哥谭居住指南](https://www.revwarny.com/book/3sgl7h0/)
-- [六零之成了卷王的妹妹](https://www.revwarny.com/book/3sgl65m/)
-- [路人攻了主角攻［快穿］](https://www.revwarny.com/book/3sgl64a/)
-- [昭暮](https://www.revwarny.com/book/3sgksji/)
-- [[足球]拥有分身系统的我靠踢足球建设国家](https://www.revwarny.com/book/3sgkga2/)
-- [老公对不起](https://www.revwarny.com/book/3sgjpi3/)
-- [[足球]足坛人生模拟器](https://www.revwarny.com/book/3sgjnma/)
-- [上个鬼班[无限]](https://www.revwarny.com/book/3sgjfst/)
-- [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.revwarny.com/book/3sgj6el/)
-- [在卷王和废物之间选择做吉祥物](https://www.revwarny.com/book/3sgj3qf/)
-- [从维多利亚时代开始](https://www.revwarny.com/book/3sgist4/)
-- [如何嫁给当朝首辅](https://www.revwarny.com/book/3sgief1/)
-- [神豪文男主是我爸](https://www.revwarny.com/book/3sgiedr/)
-- [食明](https://www.revwarny.com/book/3sgie3c/)
-- [诡话第一boss](https://www.revwarny.com/book/3sgiaph/)
-- [让暴君Alpha怀崽后](https://www.revwarny.com/book/3sgi5p4/)
-- [专业女配的自我修养（快穿）](https://www.revwarny.com/book/3sgi3p0/)
-- [老实人妻，但顶级魅魔](https://www.revwarny.com/book/3sgi3nu/)
-- [日化人生[科研]](https://www.revwarny.com/book/3sgi25i/)
-- [巨物致富：回乡开钓场](https://www.revwarny.com/book/3sghv1q/)
-- [让你们无剧本可走（快穿）](https://www.revwarny.com/book/3sghsf9/)
-- [趁她之危](https://www.revwarny.com/book/3sghs6r/)
-- [[足球]我的游戏存档成真了？！](https://www.revwarny.com/book/3sghrbo/)
-- [社畜Beta也能被顶A觊觎吗](https://www.revwarny.com/book/3sghr8u/)
-- [起初，我只是想找个冤大头](https://www.revwarny.com/book/3sghm3c/)
-- [摄政王家的咸鱼夫郎](https://www.revwarny.com/book/3sghkq1/)
-- [死遁的亡夫们都回来了](https://www.revwarny.com/book/ceh5lc/)
-- [怀了前任大哥的崽后](https://www.revwarny.com/book/ceh2ed/)
-- [沈助理又在隐藏他的超能力](https://www.revwarny.com/book/ceh0li/)
-- [美貌单出，杀穿港娱［八零］](https://www.revwarny.com/book/cegsls/)
-- [假金丝雀深陷修罗场](https://www.revwarny.com/book/cegsk0/)
-- [成为养成系练习生后](https://www.revwarny.com/book/cegr0t/)
-- [死对头又在挑衅我](https://www.revwarny.com/book/cegr0q/)
-- [被天使之王骗婚后[诡秘之主]](https://www.revwarny.com/book/cegnv4/)
-- [我有一座地下城](https://www.revwarny.com/book/cegnqq/)
-- [漂亮女配是万人迷［快穿］](https://www.revwarny.com/book/cegnqa/)
-- [和贵志君是世界第一的好朋友](https://www.revwarny.com/book/cegdh1/)
-- [我187了，你敢见我吗？](https://www.revwarny.com/book/cegcnp/)
-- [阴阳师也可以打网球](https://www.revwarny.com/book/cegb2u/)
-- [五条老师与他的封建妻子](https://www.revwarny.com/book/cegaea/)
-- [和姐姐的前女友欢愉后](https://www.revwarny.com/book/ceg9q5/)
-- [我与龙傲天寿命共享](https://www.revwarny.com/book/ceg6pa/)
-- [大唐守军家属](https://www.revwarny.com/book/ceg60k/)
-- [在重生文里考科举](https://www.revwarny.com/book/ceg14i/)
-- [朕也要被强制吗？](https://www.revwarny.com/book/ceg0cs/)
-- [妻主风流（女尊）](https://www.revwarny.com/book/cefqnm/)
-- [逃出金丝笼，我力挽山河开国称帝](https://www.revwarny.com/book/cefq6s/)
-- [多梦你一会儿](https://www.revwarny.com/book/cefnl1/)
-- [韩团绿卡不想忍了](https://www.revwarny.com/book/cefl2f/)
-- [被糟蹋的老实人决定反击](https://www.revwarny.com/book/cefkr4/)
-- [让霸刀山庄重回忍界之巅[综剑三]](https://www.revwarny.com/book/cefkad/)
-- [卷王后妈，八零养娃](https://www.revwarny.com/book/cefjko/)
-- [清冷丞相怀了死对头的崽](https://www.revwarny.com/book/cefj26/)
-- [这个位面归我了！[经营]](https://www.revwarny.com/book/cefiu6/)
-- [村霸非要入赘受气包](https://www.revwarny.com/book/cefi81/)
-- [和山神搭伙开农场的日子](https://www.revwarny.com/book/cefg5b/)
-- [恶犬攻绑定上司的乖狗系统](https://www.revwarny.com/book/cefdl0/)
-- [心动嫌疑人](https://www.revwarny.com/book/cefc5t/)
-- [在民俗惊悚片被诸神庇护](https://www.revwarny.com/book/cefc5k/)
-- [假意逢承](https://www.revwarny.com/book/cefb6u/)
-- [死亡悖论[无限流]](https://www.revwarny.com/book/cefagb/)
-- [带清冷女主回乡养螃蟹[种田]](https://www.revwarny.com/book/cef9c3/)
-- [爱好和平但狂拆机甲](https://www.revwarny.com/book/cef75r/)
-- [权宋一只统](https://www.revwarny.com/book/cef6ak/)
-- [清澈女大的六零年代](https://www.revwarny.com/book/17r3v0/)
-- [95美国贵族高中模拟](https://www.revwarny.com/book/17r3rh/)
-- [全民求生:从小木屋到魔法农场](https://www.revwarny.com/book/17r37s/)
-- [开局绑定郭奉孝，谋定三国风云](https://www.revwarny.com/book/17r331/)
-- [大瑛弟国](https://www.revwarny.com/book/17r330/)
-- [完蛋！被恨孕男包围了！](https://www.revwarny.com/book/17r2td/)
-- [苏娘子汴京摆摊日常（美食）](https://www.revwarny.com/book/17r2lt/)
-- [海岛求生：生活玩家种田囤货](https://www.revwarny.com/book/17r2la/)
-- [[娱乐圈]过分美丽的她](https://www.revwarny.com/book/17r26l/)
-- [我有一座安全城](https://www.revwarny.com/book/17r257/)
-- [在魔法贵族学院当白月光](https://www.revwarny.com/book/3vgsn/)
-- [华夏神明震撼星际](https://www.revwarny.com/book/3vgsk/)
-- [五十年代港城日常](https://www.revwarny.com/book/3vgbd/)
-- [高门小婢](https://www.revwarny.com/book/3vgac/)
-- [我是唯一地上神国](https://www.revwarny.com/book/co2k/)
+- 占有欲Daddy是我老公？ https://www.revwarny.com/book/3sgl7sj/
+- 你让魔王组建勇者小队？ https://www.revwarny.com/book/3sgl7si/
+- [崩铁]请给玩家一个准确的血条！ https://www.revwarny.com/book/3sgl7sh/
+- 好心的俄罗斯人 https://www.revwarny.com/book/3sgl7sg/
+- 全世界名为爱的恶意 https://www.revwarny.com/book/3sgl7sf/
+- 同时扮演贵族学院F4和平民校花 https://www.revwarny.com/book/3sgl7se/
+- [足球]雏鸟 https://www.revwarny.com/book/3sgl7sd/
+- 谁都不爱的和亲公主 https://www.revwarny.com/book/3sgl7sc/
+- [全职高手]治疗什么的不干了！ https://www.revwarny.com/book/3sgl7sb/
+- 爱情的肯定句 https://www.revwarny.com/book/3sgl7sa/
+- 欲和离？夫君他目不识丁 https://www.revwarny.com/book/3sgl7s9/
+- 在中世纪做奴隶 https://www.revwarny.com/book/3sgl7s8/
+- 我只想上京赶考啊[聊斋] https://www.revwarny.com/book/3sgl7s7/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.revwarny.com/book/3sgl7s6/
+- 我们小区穿末世 https://www.revwarny.com/book/3sgl7s5/
+- 魔法种田，从退队经营农场开始 https://www.revwarny.com/book/3sgl7s4/
+- 国师 https://www.revwarny.com/book/3sgl7s3/
+- 魔尊闭关十年连生十一子？！ https://www.revwarny.com/book/3sgl7s2/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.revwarny.com/book/3sgl7s1/
+- 和治君只是饭搭子的关系 https://www.revwarny.com/book/3sgl7s0/
+- 前妻她肯定会后悔 https://www.revwarny.com/book/3sgl7rv/
+- [综英美]和亲友群穿哥谭以后 https://www.revwarny.com/book/3sgl7ru/
+- 人，今晚土拨鼠站岗 https://www.revwarny.com/book/3sgl7rt/
+- 双生子反派的端水抑郁妈[九零] https://www.revwarny.com/book/3sgl7rs/
+- 娘娘扶摇直上 https://www.revwarny.com/book/3sgl7rr/
+- [原神]魔法使恋爱指南 https://www.revwarny.com/book/3sgl7rq/
+- 等我吃腻了再倒闭可以吗 https://www.revwarny.com/book/3sgl7rp/
+- 强取师尊后 https://www.revwarny.com/book/3sgl7ro/
+- 恶毒男配只想躺平 https://www.revwarny.com/book/3sgl7rm/
+- 全民求生，但剑三 https://www.revwarny.com/book/3sgl7rl/
+- 穿咒术，但杀猴现场 https://www.revwarny.com/book/3sgl7rk/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.revwarny.com/book/3sgl7rj/
+- 在年代文里跑运输 https://www.revwarny.com/book/3sgl7ri/
+- 夫人每天都在伪装 https://www.revwarny.com/book/3sgl7rg/
+- 八零法医，带全家致富 https://www.revwarny.com/book/3sgl7rf/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.revwarny.com/book/3sgl7re/
+- 乖乖女的杂货铺[八零] https://www.revwarny.com/book/3sgl7rd/
+- 禁止继承限制级雌君 https://www.revwarny.com/book/3sgl7rc/
+- 世界伏于她刀下[无限] https://www.revwarny.com/book/3sgl7rb/
+- 炮灰的海外亲戚回国啦！ https://www.revwarny.com/book/3sgl7ra/
+- 仙尊心尖宠，但被魔尊抢了 https://www.revwarny.com/book/3sgl7r9/
+- 从1951开始 https://www.revwarny.com/book/3sgl7r8/
+- 谁说踢球就不能成为名侦探[足球] https://www.revwarny.com/book/3sgl7r7/
+- SSS级异种都是我前任 https://www.revwarny.com/book/3sgl7r6/
+- 康熙宠妃日常 https://www.revwarny.com/book/3sgl7r5/
+- 恐游里的邻居们[万人迷] https://www.revwarny.com/book/3sgl7r4/
+- 末世八年春，游戏降临 https://www.revwarny.com/book/3sgl7r3/
+- 欲加之罪 https://www.revwarny.com/book/3sgl7r2/
+- 病美人重生日记 https://www.revwarny.com/book/3sgl7r1/
+- 恐游作精女配求生指南 https://www.revwarny.com/book/3sgl7r0/
+- [足球]小小鸟堂堂来袭 https://www.revwarny.com/book/3sgl7qv/
+- 失忆后和死对头有了崽 https://www.revwarny.com/book/3sgl7qu/
+- 暗恋的价格是三万块 https://www.revwarny.com/book/3sgl7qt/
+- 怨明月不独照 https://www.revwarny.com/book/3sgl7qs/
+- 魔咒请说普通话[西幻] https://www.revwarny.com/book/3sgl7qr/
+- 如何正确哄睡暴君 https://www.revwarny.com/book/3sgl7qq/
+- [综英美]哥谭市民，在线抽卡 https://www.revwarny.com/book/3sgl7qp/
+- 二次分化后他怀了死对头的崽 https://www.revwarny.com/book/3sgl7qo/
+- 清穿女回来后[天幕] https://www.revwarny.com/book/3sgl7qn/
+- 正是冬雪沸腾时 https://www.revwarny.com/book/3sgl7qm/
+- 死遁APP https://www.revwarny.com/book/3sgl7ql/
+- 穿为龙傲天发妻后 https://www.revwarny.com/book/3sgl7qk/
+- 热恋过期需重追 https://www.revwarny.com/book/3sgl7qj/
+- [洪荒]成为太清妹妹后 https://www.revwarny.com/book/3sgl7qi/
+- 星露谷，但日本战国 https://www.revwarny.com/book/3sgl7qh/
+- 万人嫌从末世回来了 https://www.revwarny.com/book/3sgl7qg/
+- 咦？我爸爸复活啦 https://www.revwarny.com/book/3sgl7qf/
+- 我骗家里的钱养你啊 https://www.revwarny.com/book/3sgl7qe/
+- 烈火焚身[巴黎圣母院] https://www.revwarny.com/book/3sgl7qd/
+- 国运求生：我的金手指是生命树 https://www.revwarny.com/book/3sgl7qc/
+- 漫画取材所引发的修罗场 https://www.revwarny.com/book/3sgl7qb/
+- 魔改剧本后我爆火了[娱乐圈] https://www.revwarny.com/book/3sgl7qa/
+- 星际团宠小人鱼 https://www.revwarny.com/book/3sgl7kn/
+- 十九世纪贵族厨房（美食） https://www.revwarny.com/book/3sgl7kk/
+- [封神]圣人生欲 https://www.revwarny.com/book/3sgl7k8/
+- 原配夫人 https://www.revwarny.com/book/3sgl7k6/
+- 始乱终弃清冷首辅后 https://www.revwarny.com/book/3sgl7j9/
+- 高调装神，猥琐发育 https://www.revwarny.com/book/3sgl7ih/
+- 直男咒术师的限制级游戏 https://www.revwarny.com/book/3sgl7hr/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.revwarny.com/book/3sgl7h0/
+- 六零之成了卷王的妹妹 https://www.revwarny.com/book/3sgl65m/
+- 路人攻了主角攻［快穿］ https://www.revwarny.com/book/3sgl64a/
+- 昭暮 https://www.revwarny.com/book/3sgksji/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.revwarny.com/book/3sgkga2/
+- 老公对不起 https://www.revwarny.com/book/3sgjpi3/
+- [足球]足坛人生模拟器 https://www.revwarny.com/book/3sgjnma/
+- 上个鬼班[无限] https://www.revwarny.com/book/3sgjfst/
+- 九零重组小家庭 https://www.revwarny.com/book/3sgj9lh/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.revwarny.com/book/3sgj6el/
+- 在卷王和废物之间选择做吉祥物 https://www.revwarny.com/book/3sgj3qf/
+- 从维多利亚时代开始 https://www.revwarny.com/book/3sgist4/
+- 如何嫁给当朝首辅 https://www.revwarny.com/book/3sgief1/
+- 食明 https://www.revwarny.com/book/3sgie3c/
+- 诡话第一boss https://www.revwarny.com/book/3sgiaph/
+- 仙门透明人被迫万人迷 https://www.revwarny.com/book/3sgi7be/
+- 让暴君Alpha怀崽后 https://www.revwarny.com/book/3sgi5p4/
+- 专业女配的自我修养（快穿） https://www.revwarny.com/book/3sgi3p0/
+- 老实人妻，但顶级魅魔 https://www.revwarny.com/book/3sgi3nu/
+- 日化人生[科研] https://www.revwarny.com/book/3sgi25i/
+- 巨物致富：回乡开钓场 https://www.revwarny.com/book/3sghv1q/
+- 让你们无剧本可走（快穿） https://www.revwarny.com/book/3sghsf9/
+- 趁她之危 https://www.revwarny.com/book/3sghs6r/
+- 寡妇美人模拟器 https://www.revwarny.com/book/3sghrce/
+- [足球]我的游戏存档成真了？！ https://www.revwarny.com/book/3sghrbo/
+- 起初，我只是想找个冤大头 https://www.revwarny.com/book/3sghm3c/
+- 摄政王家的咸鱼夫郎 https://www.revwarny.com/book/3sghkq1/
+- 天幕今天也在直播我搞基建 https://www.revwarny.com/book/ceh5rf/
+- 死遁的亡夫们都回来了 https://www.revwarny.com/book/ceh5lc/
+- 沈助理又在隐藏他的超能力 https://www.revwarny.com/book/ceh0li/
+- 从童星开始杀穿港娱 https://www.revwarny.com/book/cegsls/
+- 成为养成系练习生后 https://www.revwarny.com/book/cegr0t/
+- 死对头又在挑衅我 https://www.revwarny.com/book/cegr0q/
+- 被天使之王骗婚后[诡秘之主] https://www.revwarny.com/book/cegnv4/
+- 我有一座地下城 https://www.revwarny.com/book/cegnqq/
+- 漂亮女配是万人迷［快穿］ https://www.revwarny.com/book/cegnqa/
+- 和贵志君是世界第一的好朋友 https://www.revwarny.com/book/cegdh1/
+- 我187了，你敢见我吗？ https://www.revwarny.com/book/cegcnp/
+- 阴阳师也可以打网球 https://www.revwarny.com/book/cegb2u/
+- 五条老师与他的封建妻子 https://www.revwarny.com/book/cegaea/
+- 和姐姐的前女友欢愉后 https://www.revwarny.com/book/ceg9q5/
+- 我与龙傲天寿命共享 https://www.revwarny.com/book/ceg6pa/
+- 大唐守军家属 https://www.revwarny.com/book/ceg60k/
+- 在重生文里考科举 https://www.revwarny.com/book/ceg14i/
+- 朕也要被强制吗？ https://www.revwarny.com/book/ceg0cs/
+- 妻主风流（女尊） https://www.revwarny.com/book/cefqnm/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.revwarny.com/book/cefq6s/
+- 多梦你一会儿 https://www.revwarny.com/book/cefnl1/
+- 韩团绿卡不想忍了 https://www.revwarny.com/book/cefl2f/
+- 被糟蹋的老实人决定反击 https://www.revwarny.com/book/cefkr4/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.revwarny.com/book/cefkad/
+- 卷王后妈，八零养娃 https://www.revwarny.com/book/cefjko/
+- 清冷丞相怀了死对头的崽 https://www.revwarny.com/book/cefj26/
+- 这个位面归我了！[经营] https://www.revwarny.com/book/cefiu6/
+- 村霸非要入赘受气包 https://www.revwarny.com/book/cefi81/
+- 和山神搭伙开农场的日子 https://www.revwarny.com/book/cefg5b/
+- 恶犬攻绑定上司的乖狗系统 https://www.revwarny.com/book/cefdl0/
+- 心动嫌疑人 https://www.revwarny.com/book/cefc5t/
+- 在民俗惊悚片被诸神庇护 https://www.revwarny.com/book/cefc5k/
+- 假意逢承 https://www.revwarny.com/book/cefb6u/
+- 死亡悖论[无限流] https://www.revwarny.com/book/cefagb/
+- 带清冷女主回乡养螃蟹[种田] https://www.revwarny.com/book/cef9c3/
+- 爱好和平但狂拆机甲 https://www.revwarny.com/book/cef75r/
+- 权宋一只统 https://www.revwarny.com/book/cef6ak/
+- 清澈女大的六零年代 https://www.revwarny.com/book/17r3v0/
+- 95美国贵族高中模拟 https://www.revwarny.com/book/17r3rh/
+- 全民求生:从小木屋到魔法农场 https://www.revwarny.com/book/17r37s/
+- 开局绑定郭奉孝，谋定三国风云 https://www.revwarny.com/book/17r331/
+- 大瑛弟国 https://www.revwarny.com/book/17r330/
+- 完蛋！被恨孕男包围了！ https://www.revwarny.com/book/17r2td/
+- 苏娘子汴京摆摊日常（美食） https://www.revwarny.com/book/17r2lt/
+- 海岛求生：生活玩家种田囤货 https://www.revwarny.com/book/17r2la/
+- [娱乐圈]过分美丽的她 https://www.revwarny.com/book/17r26l/
+- 我有一座安全城 https://www.revwarny.com/book/17r257/
+- 在魔法贵族学院当白月光 https://www.revwarny.com/book/3vgsn/
+- 五十年代港城日常 https://www.revwarny.com/book/3vgbd/
+- 我是唯一地上神国 https://www.revwarny.com/book/co2k/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1302/index.md)

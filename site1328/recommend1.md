@@ -1,175 +1,167 @@
 
 # 新乐文小说 - 最热门免费在线阅读平台 | 玄幻、网游、言情、穿越、都市全本小说
 
-更新时间：2026-09-07 03:33:38
+更新时间：2026-09-08 03:34:20
 
-新乐文小说为您提供一个无广告无弹窗的纯净阅读环境，专注于玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读体验。在这里可以找到最新最热的小说章节更新，享受舒适的阅读时光。
-
-- [新乐文小说](https://www.ksqinlida.com/)
+新乐文小说为您提供一个无广告无弹窗的纯净阅读环境，专注于玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读体验。在这里可以找到最新最热的小说章节更新，享受舒适的阅读时光。 https://www.ksqinlida.com
 
 ## 最新小说
-- [和八个男人在极寒游戏求生](https://www.ksqinlida.com/book/1svdokl/)
-- [万人嫌从末世回来了](https://www.ksqinlida.com/book/1svdokj/)
-- [[足球]小小鸟堂堂来袭](https://www.ksqinlida.com/book/1svdoki/)
-- [强取师尊后](https://www.ksqinlida.com/book/1svdokh/)
-- [大佬的漂亮老婆回来带崽了[八零]](https://www.ksqinlida.com/book/1svdokg/)
-- [[足球]雏鸟](https://www.ksqinlida.com/book/1svdokf/)
-- [八零法医，带全家致富](https://www.ksqinlida.com/book/1svdoke/)
-- [夫人每天都在伪装](https://www.ksqinlida.com/book/1svdokd/)
-- [如何正确哄睡暴君](https://www.ksqinlida.com/book/1svdokc/)
-- [魔尊闭关十年连生十一子？！](https://www.ksqinlida.com/book/1svdokb/)
-- [穿咒术，但杀猴现场](https://www.ksqinlida.com/book/1svdoka/)
-- [你让魔王组建勇者小队？](https://www.ksqinlida.com/book/1svdok9/)
-- [[原神]魔法使恋爱指南](https://www.ksqinlida.com/book/1svdok8/)
-- [在中世纪做奴隶](https://www.ksqinlida.com/book/1svdok7/)
-- [[洪荒]成为太清妹妹后](https://www.ksqinlida.com/book/1svdok6/)
-- [死遁APP](https://www.ksqinlida.com/book/1svdok5/)
-- [世界伏于她刀下[无限]](https://www.ksqinlida.com/book/1svdok4/)
-- [占有欲Daddy是我老公？](https://www.ksqinlida.com/book/1svdok3/)
-- [正是冬雪沸腾时](https://www.ksqinlida.com/book/1svdok2/)
-- [咦？我爸爸复活啦](https://www.ksqinlida.com/book/1svdok1/)
-- [怨明月不独照](https://www.ksqinlida.com/book/1svdok0/)
-- [禁止继承限制级雌君](https://www.ksqinlida.com/book/1svdojv/)
-- [二次分化后他怀了死对头的崽](https://www.ksqinlida.com/book/1svdoju/)
-- [失忆后和死对头有了崽](https://www.ksqinlida.com/book/1svdojt/)
-- [从1951开始](https://www.ksqinlida.com/book/1svdojs/)
-- [恐游作精女配求生指南](https://www.ksqinlida.com/book/1svdojr/)
-- [康熙宠妃日常](https://www.ksqinlida.com/book/1svdojq/)
-- [SSS级异种都是我前任](https://www.ksqinlida.com/book/1svdojp/)
-- [欲加之罪](https://www.ksqinlida.com/book/1svdojo/)
-- [［西幻］RPG就不要谈恋爱了吧！](https://www.ksqinlida.com/book/1svdojn/)
-- [漫画取材所引发的修罗场](https://www.ksqinlida.com/book/1svdojm/)
-- [阴郁残疾炮灰被万人迷后[快穿]](https://www.ksqinlida.com/book/1svdojl/)
-- [我们小区穿末世](https://www.ksqinlida.com/book/1svdojk/)
-- [前妻她肯定会后悔](https://www.ksqinlida.com/book/1svdojj/)
-- [魔改剧本后我爆火了[娱乐圈]](https://www.ksqinlida.com/book/1svdoji/)
-- [在年代文里跑运输](https://www.ksqinlida.com/book/1svdojh/)
-- [乖乖女的杂货铺[八零]](https://www.ksqinlida.com/book/1svdojg/)
-- [星露谷，但日本战国](https://www.ksqinlida.com/book/1svdojf/)
-- [等我吃腻了再倒闭可以吗](https://www.ksqinlida.com/book/1svdoje/)
-- [[综英美]哥谭市民，在线抽卡](https://www.ksqinlida.com/book/1svdojd/)
-- [炮灰的海外亲戚回国啦！](https://www.ksqinlida.com/book/1svdojc/)
-- [娘娘扶摇直上](https://www.ksqinlida.com/book/1svdojb/)
-- [欲和离？夫君他目不识丁](https://www.ksqinlida.com/book/1svdoja/)
-- [双生子反派的端水抑郁妈[九零]](https://www.ksqinlida.com/book/1svdoj9/)
-- [暗恋的价格是三万块](https://www.ksqinlida.com/book/1svdoj8/)
-- [[综英美]和亲友群穿哥谭以后](https://www.ksqinlida.com/book/1svdoj7/)
-- [谁都不爱的和亲公主](https://www.ksqinlida.com/book/1svdoj6/)
-- [国师](https://www.ksqinlida.com/book/1svdoj5/)
-- [魔法种田，从退队经营农场开始](https://www.ksqinlida.com/book/1svdoj4/)
-- [[崩铁]请给玩家一个准确的血条！](https://www.ksqinlida.com/book/1svdoj3/)
-- [病美人重生日记](https://www.ksqinlida.com/book/1svdoj2/)
-- [恶毒男配只想躺平](https://www.ksqinlida.com/book/1svdoj1/)
-- [全世界名为爱的恶意](https://www.ksqinlida.com/book/1svdoj0/)
-- [穿为龙傲天发妻后](https://www.ksqinlida.com/book/1svdoiv/)
-- [好心的俄罗斯人](https://www.ksqinlida.com/book/1svdoiu/)
-- [末世八年春，游戏降临](https://www.ksqinlida.com/book/1svdoit/)
-- [我骗家里的钱养你啊](https://www.ksqinlida.com/book/1svdois/)
-- [[全职高手]治疗什么的不干了！](https://www.ksqinlida.com/book/1svdoir/)
-- [谁说踢球就不能成为名侦探[足球]](https://www.ksqinlida.com/book/1svdoiq/)
-- [全民求生，但剑三](https://www.ksqinlida.com/book/1svdoio/)
-- [魔咒请说普通话[西幻]](https://www.ksqinlida.com/book/1svdoin/)
-- [烈火焚身[巴黎圣母院]](https://www.ksqinlida.com/book/1svdoil/)
-- [我只想上京赶考啊[聊斋]](https://www.ksqinlida.com/book/1svdoik/)
-- [［综英美］蝙蝠崽？我不是啊！](https://www.ksqinlida.com/book/1svdoij/)
-- [人，今晚土拨鼠站岗](https://www.ksqinlida.com/book/1svdoii/)
-- [和治君只是饭搭子的关系](https://www.ksqinlida.com/book/1svdoih/)
-- [恐游里的邻居们[万人迷]](https://www.ksqinlida.com/book/1svdoig/)
-- [热恋过期需重追](https://www.ksqinlida.com/book/1svdoif/)
-- [仙尊心尖宠，但被魔尊抢了](https://www.ksqinlida.com/book/1svdoie/)
-- [爱情的肯定句](https://www.ksqinlida.com/book/1svdoid/)
-- [清穿女回来后[天幕]](https://www.ksqinlida.com/book/1svdoic/)
-- [国运求生：我的金手指是生命树](https://www.ksqinlida.com/book/1svdoib/)
-- [同时扮演贵族学院F4和平民校花](https://www.ksqinlida.com/book/1svdoia/)
-- [我司艺人永不塌房](https://www.ksqinlida.com/book/1svdof7/)
-- [我们生活玩家是这样的](https://www.ksqinlida.com/book/1svdodb/)
-- [十九世纪贵族厨房（美食）](https://www.ksqinlida.com/book/1svdoca/)
-- [原配夫人](https://www.ksqinlida.com/book/1svdoc4/)
-- [[封神]圣人生欲](https://www.ksqinlida.com/book/1svdobm/)
-- [始乱终弃清冷首辅后](https://www.ksqinlida.com/book/1svdobk/)
-- [星际团宠小人鱼](https://www.ksqinlida.com/book/1svdob0/)
-- [高调装神，猥琐发育](https://www.ksqinlida.com/book/1svdoah/)
-- [假少爷离开后](https://www.ksqinlida.com/book/1svdoae/)
-- [直男咒术师的限制级游戏](https://www.ksqinlida.com/book/1svdo8f/)
-- [浣熊市蝙蝠崽的哥谭居住指南](https://www.ksqinlida.com/book/1svdo74/)
-- [六零之成了卷王的妹妹](https://www.ksqinlida.com/book/1svdmtv/)
-- [路人攻了主角攻［快穿］](https://www.ksqinlida.com/book/1svdmrd/)
-- [昭暮](https://www.ksqinlida.com/book/1svddb9/)
-- [[足球]拥有分身系统的我靠踢足球建设国家](https://www.ksqinlida.com/book/1svd14c/)
-- [老公对不起](https://www.ksqinlida.com/book/1svcacb/)
-- [上个鬼班[无限]](https://www.ksqinlida.com/book/1svc3oa/)
-- [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ksqinlida.com/book/1svc2q3/)
-- [[足球]足坛人生模拟器](https://www.ksqinlida.com/book/1svbp90/)
-- [在卷王和废物之间选择做吉祥物](https://www.ksqinlida.com/book/1svbkh4/)
-- [从维多利亚时代开始](https://www.ksqinlida.com/book/1svbdne/)
-- [神豪文男主是我爸](https://www.ksqinlida.com/book/1svavd5/)
-- [如何嫁给当朝首辅](https://www.ksqinlida.com/book/1svavb7/)
-- [食明](https://www.ksqinlida.com/book/1svautn/)
-- [诡话第一boss](https://www.ksqinlida.com/book/1svario/)
-- [让暴君Alpha怀崽后](https://www.ksqinlida.com/book/1svanpl/)
-- [日化人生[科研]](https://www.ksqinlida.com/book/1svaj3k/)
-- [老实人妻，但顶级魅魔](https://www.ksqinlida.com/book/1svait2/)
-- [专业女配的自我修养（快穿）](https://www.ksqinlida.com/book/1svaijb/)
-- [巨物致富：回乡开钓场](https://www.ksqinlida.com/book/1svahg7/)
-- [让你们无剧本可走（快穿）](https://www.ksqinlida.com/book/1svaeu1/)
-- [[足球]我的游戏存档成真了？！](https://www.ksqinlida.com/book/1svae7v/)
-- [趁她之危](https://www.ksqinlida.com/book/1svaccr/)
-- [社畜Beta也能被顶A觊觎吗](https://www.ksqinlida.com/book/1sva9na/)
-- [起初，我只是想找个冤大头](https://www.ksqinlida.com/book/1sva8g3/)
-- [摄政王家的咸鱼夫郎](https://www.ksqinlida.com/book/1sva5o3/)
-- [死遁的亡夫们都回来了](https://www.ksqinlida.com/book/636ot3/)
-- [沈助理又在隐藏他的超能力](https://www.ksqinlida.com/book/636mq8/)
-- [怀了前任大哥的崽后](https://www.ksqinlida.com/book/636mkb/)
-- [假金丝雀深陷修罗场](https://www.ksqinlida.com/book/636ics/)
-- [成为养成系练习生后](https://www.ksqinlida.com/book/636h49/)
-- [美貌单出，杀穿港娱［八零］](https://www.ksqinlida.com/book/636h1p/)
-- [死对头又在挑衅我](https://www.ksqinlida.com/book/636gr3/)
-- [漂亮女配是万人迷［快穿］](https://www.ksqinlida.com/book/636f3i/)
-- [被天使之王骗婚后[诡秘之主]](https://www.ksqinlida.com/book/636ejh/)
-- [我有一座地下城](https://www.ksqinlida.com/book/636ctr/)
-- [我187了，你敢见我吗？](https://www.ksqinlida.com/book/6362d8/)
-- [和贵志君是世界第一的好朋友](https://www.ksqinlida.com/book/6361ia/)
-- [和姐姐的前女友欢愉后](https://www.ksqinlida.com/book/635vh6/)
-- [五条老师与他的封建妻子](https://www.ksqinlida.com/book/635v5e/)
-- [阴阳师也可以打网球](https://www.ksqinlida.com/book/635ufp/)
-- [我与龙傲天寿命共享](https://www.ksqinlida.com/book/635rjc/)
-- [大唐守军家属](https://www.ksqinlida.com/book/635p5n/)
-- [朕也要被强制吗？](https://www.ksqinlida.com/book/635mqm/)
-- [在重生文里考科举](https://www.ksqinlida.com/book/635mil/)
-- [妻主风流（女尊）](https://www.ksqinlida.com/book/635fpb/)
-- [逃出金丝笼，我力挽山河开国称帝](https://www.ksqinlida.com/book/635d53/)
-- [多梦你一会儿](https://www.ksqinlida.com/book/635cmb/)
-- [被糟蹋的老实人决定反击](https://www.ksqinlida.com/book/635bd6/)
-- [韩团绿卡不想忍了](https://www.ksqinlida.com/book/635b5q/)
-- [这个位面归我了！[经营]](https://www.ksqinlida.com/book/6357pn/)
-- [村霸非要入赘受气包](https://www.ksqinlida.com/book/6357ad/)
-- [卷王后妈，八零养娃](https://www.ksqinlida.com/book/6356r2/)
-- [清冷丞相怀了死对头的崽](https://www.ksqinlida.com/book/6356hs/)
-- [和山神搭伙开农场的日子](https://www.ksqinlida.com/book/635502/)
-- [让霸刀山庄重回忍界之巅[综剑三]](https://www.ksqinlida.com/book/63541h/)
-- [在民俗惊悚片被诸神庇护](https://www.ksqinlida.com/book/63539f/)
-- [心动嫌疑人](https://www.ksqinlida.com/book/6352e0/)
-- [恶犬攻绑定上司的乖狗系统](https://www.ksqinlida.com/book/6351kt/)
-- [带清冷女主回乡养螃蟹[种田]](https://www.ksqinlida.com/book/635074/)
-- [死亡悖论[无限流]](https://www.ksqinlida.com/book/634upi/)
-- [假意逢承](https://www.ksqinlida.com/book/634uff/)
-- [爱好和平但狂拆机甲](https://www.ksqinlida.com/book/634t86/)
-- [权宋一只统](https://www.ksqinlida.com/book/634s41/)
-- [95美国贵族高中模拟](https://www.ksqinlida.com/book/jgfgf/)
-- [清澈女大的六零年代](https://www.ksqinlida.com/book/jgf86/)
-- [[娱乐圈]过分美丽的她](https://www.ksqinlida.com/book/jgf3h/)
-- [在魔法贵族学院当白月光](https://www.ksqinlida.com/book/jgf1v/)
-- [全民求生:从小木屋到魔法农场](https://www.ksqinlida.com/book/jgerr/)
-- [开局绑定郭奉孝，谋定三国风云](https://www.ksqinlida.com/book/jgeqc/)
-- [高门小婢](https://www.ksqinlida.com/book/jge1d/)
-- [海岛求生：生活玩家种田囤货](https://www.ksqinlida.com/book/jgdn4/)
-- [五十年代港城日常](https://www.ksqinlida.com/book/jgdgh/)
-- [大瑛弟国](https://www.ksqinlida.com/book/jgdfo/)
-- [我有一座安全城](https://www.ksqinlida.com/book/1uev1/)
-- [苏娘子汴京摆摊日常（美食）](https://www.ksqinlida.com/book/1ueqr/)
-- [华夏神明震撼星际](https://www.ksqinlida.com/book/1uek8/)
-- [完蛋！被恨孕男包围了！](https://www.ksqinlida.com/book/1ueie/)
-- [我是唯一地上神国](https://www.ksqinlida.com/book/67rr/)
+- 万人嫌从末世回来了 https://www.ksqinlida.com/book/1svdokj/
+- [足球]小小鸟堂堂来袭 https://www.ksqinlida.com/book/1svdoki/
+- 强取师尊后 https://www.ksqinlida.com/book/1svdokh/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.ksqinlida.com/book/1svdokg/
+- [足球]雏鸟 https://www.ksqinlida.com/book/1svdokf/
+- 八零法医，带全家致富 https://www.ksqinlida.com/book/1svdoke/
+- 夫人每天都在伪装 https://www.ksqinlida.com/book/1svdokd/
+- 如何正确哄睡暴君 https://www.ksqinlida.com/book/1svdokc/
+- 魔尊闭关十年连生十一子？！ https://www.ksqinlida.com/book/1svdokb/
+- 穿咒术，但杀猴现场 https://www.ksqinlida.com/book/1svdoka/
+- 你让魔王组建勇者小队？ https://www.ksqinlida.com/book/1svdok9/
+- [原神]魔法使恋爱指南 https://www.ksqinlida.com/book/1svdok8/
+- 在中世纪做奴隶 https://www.ksqinlida.com/book/1svdok7/
+- [洪荒]成为太清妹妹后 https://www.ksqinlida.com/book/1svdok6/
+- 死遁APP https://www.ksqinlida.com/book/1svdok5/
+- 世界伏于她刀下[无限] https://www.ksqinlida.com/book/1svdok4/
+- 占有欲Daddy是我老公？ https://www.ksqinlida.com/book/1svdok3/
+- 正是冬雪沸腾时 https://www.ksqinlida.com/book/1svdok2/
+- 咦？我爸爸复活啦 https://www.ksqinlida.com/book/1svdok1/
+- 怨明月不独照 https://www.ksqinlida.com/book/1svdok0/
+- 禁止继承限制级雌君 https://www.ksqinlida.com/book/1svdojv/
+- 二次分化后他怀了死对头的崽 https://www.ksqinlida.com/book/1svdoju/
+- 失忆后和死对头有了崽 https://www.ksqinlida.com/book/1svdojt/
+- 从1951开始 https://www.ksqinlida.com/book/1svdojs/
+- 恐游作精女配求生指南 https://www.ksqinlida.com/book/1svdojr/
+- 康熙宠妃日常 https://www.ksqinlida.com/book/1svdojq/
+- SSS级异种都是我前任 https://www.ksqinlida.com/book/1svdojp/
+- 欲加之罪 https://www.ksqinlida.com/book/1svdojo/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.ksqinlida.com/book/1svdojn/
+- 漫画取材所引发的修罗场 https://www.ksqinlida.com/book/1svdojm/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.ksqinlida.com/book/1svdojl/
+- 我们小区穿末世 https://www.ksqinlida.com/book/1svdojk/
+- 前妻她肯定会后悔 https://www.ksqinlida.com/book/1svdojj/
+- 魔改剧本后我爆火了[娱乐圈] https://www.ksqinlida.com/book/1svdoji/
+- 在年代文里跑运输 https://www.ksqinlida.com/book/1svdojh/
+- 乖乖女的杂货铺[八零] https://www.ksqinlida.com/book/1svdojg/
+- 星露谷，但日本战国 https://www.ksqinlida.com/book/1svdojf/
+- 等我吃腻了再倒闭可以吗 https://www.ksqinlida.com/book/1svdoje/
+- [综英美]哥谭市民，在线抽卡 https://www.ksqinlida.com/book/1svdojd/
+- 炮灰的海外亲戚回国啦！ https://www.ksqinlida.com/book/1svdojc/
+- 娘娘扶摇直上 https://www.ksqinlida.com/book/1svdojb/
+- 欲和离？夫君他目不识丁 https://www.ksqinlida.com/book/1svdoja/
+- 双生子反派的端水抑郁妈[九零] https://www.ksqinlida.com/book/1svdoj9/
+- 暗恋的价格是三万块 https://www.ksqinlida.com/book/1svdoj8/
+- [综英美]和亲友群穿哥谭以后 https://www.ksqinlida.com/book/1svdoj7/
+- 谁都不爱的和亲公主 https://www.ksqinlida.com/book/1svdoj6/
+- 国师 https://www.ksqinlida.com/book/1svdoj5/
+- 魔法种田，从退队经营农场开始 https://www.ksqinlida.com/book/1svdoj4/
+- [崩铁]请给玩家一个准确的血条！ https://www.ksqinlida.com/book/1svdoj3/
+- 病美人重生日记 https://www.ksqinlida.com/book/1svdoj2/
+- 恶毒男配只想躺平 https://www.ksqinlida.com/book/1svdoj1/
+- 全世界名为爱的恶意 https://www.ksqinlida.com/book/1svdoj0/
+- 穿为龙傲天发妻后 https://www.ksqinlida.com/book/1svdoiv/
+- 好心的俄罗斯人 https://www.ksqinlida.com/book/1svdoiu/
+- 末世八年春，游戏降临 https://www.ksqinlida.com/book/1svdoit/
+- 我骗家里的钱养你啊 https://www.ksqinlida.com/book/1svdois/
+- [全职高手]治疗什么的不干了！ https://www.ksqinlida.com/book/1svdoir/
+- 谁说踢球就不能成为名侦探[足球] https://www.ksqinlida.com/book/1svdoiq/
+- 全民求生，但剑三 https://www.ksqinlida.com/book/1svdoio/
+- 魔咒请说普通话[西幻] https://www.ksqinlida.com/book/1svdoin/
+- 烈火焚身[巴黎圣母院] https://www.ksqinlida.com/book/1svdoil/
+- 我只想上京赶考啊[聊斋] https://www.ksqinlida.com/book/1svdoik/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.ksqinlida.com/book/1svdoij/
+- 人，今晚土拨鼠站岗 https://www.ksqinlida.com/book/1svdoii/
+- 和治君只是饭搭子的关系 https://www.ksqinlida.com/book/1svdoih/
+- 恐游里的邻居们[万人迷] https://www.ksqinlida.com/book/1svdoig/
+- 热恋过期需重追 https://www.ksqinlida.com/book/1svdoif/
+- 仙尊心尖宠，但被魔尊抢了 https://www.ksqinlida.com/book/1svdoie/
+- 爱情的肯定句 https://www.ksqinlida.com/book/1svdoid/
+- 清穿女回来后[天幕] https://www.ksqinlida.com/book/1svdoic/
+- 国运求生：我的金手指是生命树 https://www.ksqinlida.com/book/1svdoib/
+- 同时扮演贵族学院F4和平民校花 https://www.ksqinlida.com/book/1svdoia/
+- 十九世纪贵族厨房（美食） https://www.ksqinlida.com/book/1svdoca/
+- 原配夫人 https://www.ksqinlida.com/book/1svdoc4/
+- [封神]圣人生欲 https://www.ksqinlida.com/book/1svdobm/
+- 始乱终弃清冷首辅后 https://www.ksqinlida.com/book/1svdobk/
+- 星际团宠小人鱼 https://www.ksqinlida.com/book/1svdob0/
+- 高调装神，猥琐发育 https://www.ksqinlida.com/book/1svdoah/
+- 直男咒术师的限制级游戏 https://www.ksqinlida.com/book/1svdo8f/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.ksqinlida.com/book/1svdo74/
+- 六零之成了卷王的妹妹 https://www.ksqinlida.com/book/1svdmtv/
+- 路人攻了主角攻［快穿］ https://www.ksqinlida.com/book/1svdmrd/
+- 昭暮 https://www.ksqinlida.com/book/1svddb9/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.ksqinlida.com/book/1svd14c/
+- 老公对不起 https://www.ksqinlida.com/book/1svcacb/
+- 上个鬼班[无限] https://www.ksqinlida.com/book/1svc3oa/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.ksqinlida.com/book/1svc2q3/
+- 九零重组小家庭 https://www.ksqinlida.com/book/1svbv1l/
+- [足球]足坛人生模拟器 https://www.ksqinlida.com/book/1svbp90/
+- 在卷王和废物之间选择做吉祥物 https://www.ksqinlida.com/book/1svbkh4/
+- 从维多利亚时代开始 https://www.ksqinlida.com/book/1svbdne/
+- 如何嫁给当朝首辅 https://www.ksqinlida.com/book/1svavb7/
+- 食明 https://www.ksqinlida.com/book/1svautn/
+- 诡话第一boss https://www.ksqinlida.com/book/1svario/
+- 让暴君Alpha怀崽后 https://www.ksqinlida.com/book/1svanpl/
+- 仙门透明人被迫万人迷 https://www.ksqinlida.com/book/1svam46/
+- 日化人生[科研] https://www.ksqinlida.com/book/1svaj3k/
+- 老实人妻，但顶级魅魔 https://www.ksqinlida.com/book/1svait2/
+- 专业女配的自我修养（快穿） https://www.ksqinlida.com/book/1svaijb/
+- 巨物致富：回乡开钓场 https://www.ksqinlida.com/book/1svahg7/
+- 让你们无剧本可走（快穿） https://www.ksqinlida.com/book/1svaeu1/
+- [足球]我的游戏存档成真了？！ https://www.ksqinlida.com/book/1svae7v/
+- 寡妇美人模拟器 https://www.ksqinlida.com/book/1svadle/
+- 趁她之危 https://www.ksqinlida.com/book/1svaccr/
+- 起初，我只是想找个冤大头 https://www.ksqinlida.com/book/1sva8g3/
+- 摄政王家的咸鱼夫郎 https://www.ksqinlida.com/book/1sva5o3/
+- 死遁的亡夫们都回来了 https://www.ksqinlida.com/book/636ot3/
+- 沈助理又在隐藏他的超能力 https://www.ksqinlida.com/book/636mq8/
+- 天幕今天也在直播我搞基建 https://www.ksqinlida.com/book/636mhp/
+- 成为养成系练习生后 https://www.ksqinlida.com/book/636h49/
+- 从童星开始杀穿港娱 https://www.ksqinlida.com/book/636h1p/
+- 死对头又在挑衅我 https://www.ksqinlida.com/book/636gr3/
+- 漂亮女配是万人迷［快穿］ https://www.ksqinlida.com/book/636f3i/
+- 被天使之王骗婚后[诡秘之主] https://www.ksqinlida.com/book/636ejh/
+- 我有一座地下城 https://www.ksqinlida.com/book/636ctr/
+- 我187了，你敢见我吗？ https://www.ksqinlida.com/book/6362d8/
+- 和贵志君是世界第一的好朋友 https://www.ksqinlida.com/book/6361ia/
+- 和姐姐的前女友欢愉后 https://www.ksqinlida.com/book/635vh6/
+- 五条老师与他的封建妻子 https://www.ksqinlida.com/book/635v5e/
+- 阴阳师也可以打网球 https://www.ksqinlida.com/book/635ufp/
+- 我与龙傲天寿命共享 https://www.ksqinlida.com/book/635rjc/
+- 大唐守军家属 https://www.ksqinlida.com/book/635p5n/
+- 朕也要被强制吗？ https://www.ksqinlida.com/book/635mqm/
+- 在重生文里考科举 https://www.ksqinlida.com/book/635mil/
+- 妻主风流（女尊） https://www.ksqinlida.com/book/635fpb/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.ksqinlida.com/book/635d53/
+- 多梦你一会儿 https://www.ksqinlida.com/book/635cmb/
+- 被糟蹋的老实人决定反击 https://www.ksqinlida.com/book/635bd6/
+- 韩团绿卡不想忍了 https://www.ksqinlida.com/book/635b5q/
+- 这个位面归我了！[经营] https://www.ksqinlida.com/book/6357pn/
+- 村霸非要入赘受气包 https://www.ksqinlida.com/book/6357ad/
+- 卷王后妈，八零养娃 https://www.ksqinlida.com/book/6356r2/
+- 清冷丞相怀了死对头的崽 https://www.ksqinlida.com/book/6356hs/
+- 和山神搭伙开农场的日子 https://www.ksqinlida.com/book/635502/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.ksqinlida.com/book/63541h/
+- 在民俗惊悚片被诸神庇护 https://www.ksqinlida.com/book/63539f/
+- 心动嫌疑人 https://www.ksqinlida.com/book/6352e0/
+- 恶犬攻绑定上司的乖狗系统 https://www.ksqinlida.com/book/6351kt/
+- 带清冷女主回乡养螃蟹[种田] https://www.ksqinlida.com/book/635074/
+- 死亡悖论[无限流] https://www.ksqinlida.com/book/634upi/
+- 假意逢承 https://www.ksqinlida.com/book/634uff/
+- 爱好和平但狂拆机甲 https://www.ksqinlida.com/book/634t86/
+- 权宋一只统 https://www.ksqinlida.com/book/634s41/
+- 95美国贵族高中模拟 https://www.ksqinlida.com/book/jgfgf/
+- 清澈女大的六零年代 https://www.ksqinlida.com/book/jgf86/
+- [娱乐圈]过分美丽的她 https://www.ksqinlida.com/book/jgf3h/
+- 在魔法贵族学院当白月光 https://www.ksqinlida.com/book/jgf1v/
+- 全民求生:从小木屋到魔法农场 https://www.ksqinlida.com/book/jgerr/
+- 开局绑定郭奉孝，谋定三国风云 https://www.ksqinlida.com/book/jgeqc/
+- 海岛求生：生活玩家种田囤货 https://www.ksqinlida.com/book/jgdn4/
+- 五十年代港城日常 https://www.ksqinlida.com/book/jgdgh/
+- 大瑛弟国 https://www.ksqinlida.com/book/jgdfo/
+- 我有一座安全城 https://www.ksqinlida.com/book/1uev1/
+- 苏娘子汴京摆摊日常（美食） https://www.ksqinlida.com/book/1ueqr/
+- 完蛋！被恨孕男包围了！ https://www.ksqinlida.com/book/1ueie/
+- 我是唯一地上神国 https://www.ksqinlida.com/book/67rr/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1328/index.md)

@@ -1,175 +1,167 @@
 
 # 欣怡书屋 - 免费最新章节小说阅读,全本无弹窗
 
-更新时间：2026-09-07 03:49:15
+更新时间：2026-09-08 03:50:14
 
-欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。
-
-- [欣怡书屋](https://www.znenghs.com/)
+欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。 https://www.znenghs.com
 
 ## 最新小说
-- [和八个男人在极寒游戏求生](https://www.znenghs.com/book/5n2k96k/)
-- [[全职高手]治疗什么的不干了！](https://www.znenghs.com/book/5n2k96i/)
-- [魔法种田，从退队经营农场开始](https://www.znenghs.com/book/5n2k96h/)
-- [魔尊闭关十年连生十一子？！](https://www.znenghs.com/book/5n2k96g/)
-- [我骗家里的钱养你啊](https://www.znenghs.com/book/5n2k96f/)
-- [仙尊心尖宠，但被魔尊抢了](https://www.znenghs.com/book/5n2k96e/)
-- [暗恋的价格是三万块](https://www.znenghs.com/book/5n2k96d/)
-- [你让魔王组建勇者小队？](https://www.znenghs.com/book/5n2k96c/)
-- [人，今晚土拨鼠站岗](https://www.znenghs.com/book/5n2k96b/)
-- [欲和离？夫君他目不识丁](https://www.znenghs.com/book/5n2k96a/)
-- [怨明月不独照](https://www.znenghs.com/book/5n2k969/)
-- [失忆后和死对头有了崽](https://www.znenghs.com/book/5n2k968/)
-- [末世八年春，游戏降临](https://www.znenghs.com/book/5n2k967/)
-- [乖乖女的杂货铺[八零]](https://www.znenghs.com/book/5n2k966/)
-- [从1951开始](https://www.znenghs.com/book/5n2k965/)
-- [谁都不爱的和亲公主](https://www.znenghs.com/book/5n2k964/)
-- [热恋过期需重追](https://www.znenghs.com/book/5n2k963/)
-- [我们小区穿末世](https://www.znenghs.com/book/5n2k962/)
-- [[洪荒]成为太清妹妹后](https://www.znenghs.com/book/5n2k961/)
-- [恐游作精女配求生指南](https://www.znenghs.com/book/5n2k960/)
-- [好心的俄罗斯人](https://www.znenghs.com/book/5n2k95v/)
-- [清穿女回来后[天幕]](https://www.znenghs.com/book/5n2k95u/)
-- [康熙宠妃日常](https://www.znenghs.com/book/5n2k95t/)
-- [咦？我爸爸复活啦](https://www.znenghs.com/book/5n2k95s/)
-- [［西幻］RPG就不要谈恋爱了吧！](https://www.znenghs.com/book/5n2k95r/)
-- [［综英美］蝙蝠崽？我不是啊！](https://www.znenghs.com/book/5n2k95q/)
-- [在中世纪做奴隶](https://www.znenghs.com/book/5n2k95p/)
-- [欲加之罪](https://www.znenghs.com/book/5n2k95o/)
-- [和治君只是饭搭子的关系](https://www.znenghs.com/book/5n2k95n/)
-- [[足球]雏鸟](https://www.znenghs.com/book/5n2k95m/)
-- [万人嫌从末世回来了](https://www.znenghs.com/book/5n2k95l/)
-- [魔咒请说普通话[西幻]](https://www.znenghs.com/book/5n2k95k/)
-- [在年代文里跑运输](https://www.znenghs.com/book/5n2k95j/)
-- [全民求生，但剑三](https://www.znenghs.com/book/5n2k95i/)
-- [魔改剧本后我爆火了[娱乐圈]](https://www.znenghs.com/book/5n2k95h/)
-- [[综英美]和亲友群穿哥谭以后](https://www.znenghs.com/book/5n2k95g/)
-- [全世界名为爱的恶意](https://www.znenghs.com/book/5n2k95f/)
-- [占有欲Daddy是我老公？](https://www.znenghs.com/book/5n2k95e/)
-- [二次分化后他怀了死对头的崽](https://www.znenghs.com/book/5n2k95d/)
-- [娘娘扶摇直上](https://www.znenghs.com/book/5n2k95c/)
-- [漫画取材所引发的修罗场](https://www.znenghs.com/book/5n2k95b/)
-- [[足球]小小鸟堂堂来袭](https://www.znenghs.com/book/5n2k95a/)
-- [夫人每天都在伪装](https://www.znenghs.com/book/5n2k958/)
-- [病美人重生日记](https://www.znenghs.com/book/5n2k957/)
-- [[原神]魔法使恋爱指南](https://www.znenghs.com/book/5n2k956/)
-- [强取师尊后](https://www.znenghs.com/book/5n2k955/)
-- [[崩铁]请给玩家一个准确的血条！](https://www.znenghs.com/book/5n2k954/)
-- [爱情的肯定句](https://www.znenghs.com/book/5n2k953/)
-- [等我吃腻了再倒闭可以吗](https://www.znenghs.com/book/5n2k951/)
-- [SSS级异种都是我前任](https://www.znenghs.com/book/5n2k950/)
-- [正是冬雪沸腾时](https://www.znenghs.com/book/5n2k94v/)
-- [八零法医，带全家致富](https://www.znenghs.com/book/5n2k94u/)
-- [国运求生：我的金手指是生命树](https://www.znenghs.com/book/5n2k94t/)
-- [死遁APP](https://www.znenghs.com/book/5n2k94s/)
-- [炮灰的海外亲戚回国啦！](https://www.znenghs.com/book/5n2k94r/)
-- [我只想上京赶考啊[聊斋]](https://www.znenghs.com/book/5n2k94q/)
-- [谁说踢球就不能成为名侦探[足球]](https://www.znenghs.com/book/5n2k94p/)
-- [国师](https://www.znenghs.com/book/5n2k94o/)
-- [烈火焚身[巴黎圣母院]](https://www.znenghs.com/book/5n2k94n/)
-- [阴郁残疾炮灰被万人迷后[快穿]](https://www.znenghs.com/book/5n2k94m/)
-- [穿为龙傲天发妻后](https://www.znenghs.com/book/5n2k94l/)
-- [禁止继承限制级雌君](https://www.znenghs.com/book/5n2k94k/)
-- [前妻她肯定会后悔](https://www.znenghs.com/book/5n2k94j/)
-- [[综英美]哥谭市民，在线抽卡](https://www.znenghs.com/book/5n2k94i/)
-- [穿咒术，但杀猴现场](https://www.znenghs.com/book/5n2k94h/)
-- [双生子反派的端水抑郁妈[九零]](https://www.znenghs.com/book/5n2k94g/)
-- [恐游里的邻居们[万人迷]](https://www.znenghs.com/book/5n2k94f/)
-- [大佬的漂亮老婆回来带崽了[八零]](https://www.znenghs.com/book/5n2k94e/)
-- [星露谷，但日本战国](https://www.znenghs.com/book/5n2k94d/)
-- [世界伏于她刀下[无限]](https://www.znenghs.com/book/5n2k94c/)
-- [同时扮演贵族学院F4和平民校花](https://www.znenghs.com/book/5n2k94b/)
-- [如何正确哄睡暴君](https://www.znenghs.com/book/5n2k94a/)
-- [恶毒男配只想躺平](https://www.znenghs.com/book/5n2k949/)
-- [我们生活玩家是这样的](https://www.znenghs.com/book/5n2k93j/)
-- [我司艺人永不塌房](https://www.znenghs.com/book/5n2k920/)
-- [[封神]圣人生欲](https://www.znenghs.com/book/5n2k8uq/)
-- [始乱终弃清冷首辅后](https://www.znenghs.com/book/5n2k8up/)
-- [星际团宠小人鱼](https://www.znenghs.com/book/5n2k8ss/)
-- [原配夫人](https://www.znenghs.com/book/5n2k8sp/)
-- [十九世纪贵族厨房（美食）](https://www.znenghs.com/book/5n2k8sj/)
-- [高调装神，猥琐发育](https://www.znenghs.com/book/5n2k8sf/)
-- [假少爷离开后](https://www.znenghs.com/book/5n2k8sd/)
-- [浣熊市蝙蝠崽的哥谭居住指南](https://www.znenghs.com/book/5n2k8qh/)
-- [直男咒术师的限制级游戏](https://www.znenghs.com/book/5n2k8nt/)
-- [六零之成了卷王的妹妹](https://www.znenghs.com/book/5n2k7fh/)
-- [路人攻了主角攻［快穿］](https://www.znenghs.com/book/5n2k7cr/)
-- [昭暮](https://www.znenghs.com/book/5n2jtr8/)
-- [[足球]拥有分身系统的我靠踢足球建设国家](https://www.znenghs.com/book/5n2j75i/)
-- [老公对不起](https://www.znenghs.com/book/5n2iqa9/)
-- [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.znenghs.com/book/5n2iie5/)
-- [[足球]足坛人生模拟器](https://www.znenghs.com/book/5n2ieo0/)
-- [上个鬼班[无限]](https://www.znenghs.com/book/5n2idqi/)
-- [在卷王和废物之间选择做吉祥物](https://www.znenghs.com/book/5n2i3fu/)
-- [从维多利亚时代开始](https://www.znenghs.com/book/5n2hsh7/)
-- [神豪文男主是我爸](https://www.znenghs.com/book/5n2hedd/)
-- [如何嫁给当朝首辅](https://www.znenghs.com/book/5n2hecj/)
-- [食明](https://www.znenghs.com/book/5n2hdl3/)
-- [诡话第一boss](https://www.znenghs.com/book/5n2ha9a/)
-- [日化人生[科研]](https://www.znenghs.com/book/5n2h5tp/)
-- [让暴君Alpha怀崽后](https://www.znenghs.com/book/5n2h44u/)
-- [专业女配的自我修养（快穿）](https://www.znenghs.com/book/5n2h426/)
-- [巨物致富：回乡开钓场](https://www.znenghs.com/book/5n2h3jv/)
-- [老实人妻，但顶级魅魔](https://www.znenghs.com/book/5n2h3f0/)
-- [[足球]我的游戏存档成真了？！](https://www.znenghs.com/book/5n2gufv/)
-- [让你们无剧本可走（快穿）](https://www.znenghs.com/book/5n2gtup/)
-- [趁她之危](https://www.znenghs.com/book/5n2gs9s/)
-- [社畜Beta也能被顶A觊觎吗](https://www.znenghs.com/book/5n2gs3j/)
-- [起初，我只是想找个冤大头](https://www.znenghs.com/book/5n2gmpe/)
-- [摄政王家的咸鱼夫郎](https://www.znenghs.com/book/5n2glmf/)
-- [死遁的亡夫们都回来了](https://www.znenghs.com/book/i9ttde/)
-- [沈助理又在隐藏他的超能力](https://www.znenghs.com/book/i9tpf4/)
-- [怀了前任大哥的崽后](https://www.znenghs.com/book/i9ton2/)
-- [成为养成系练习生后](https://www.znenghs.com/book/i9tkmo/)
-- [假金丝雀深陷修罗场](https://www.znenghs.com/book/i9tkbk/)
-- [死对头又在挑衅我](https://www.znenghs.com/book/i9tk24/)
-- [美貌单出，杀穿港娱［八零］](https://www.znenghs.com/book/i9tiom/)
-- [我有一座地下城](https://www.znenghs.com/book/i9ti7a/)
-- [被天使之王骗婚后[诡秘之主]](https://www.znenghs.com/book/i9thbc/)
-- [漂亮女配是万人迷［快穿］](https://www.znenghs.com/book/i9teop/)
-- [和贵志君是世界第一的好朋友](https://www.znenghs.com/book/i9t588/)
-- [我187了，你敢见我吗？](https://www.znenghs.com/book/i9t3ts/)
-- [阴阳师也可以打网球](https://www.znenghs.com/book/i9t1ka/)
-- [和姐姐的前女友欢愉后](https://www.znenghs.com/book/i9t1ja/)
-- [五条老师与他的封建妻子](https://www.znenghs.com/book/i9svjb/)
-- [我与龙傲天寿命共享](https://www.znenghs.com/book/i9sv3e/)
-- [大唐守军家属](https://www.znenghs.com/book/i9sqjf/)
-- [朕也要被强制吗？](https://www.znenghs.com/book/i9sp80/)
-- [在重生文里考科举](https://www.znenghs.com/book/i9sou8/)
-- [妻主风流（女尊）](https://www.znenghs.com/book/i9shjm/)
-- [多梦你一会儿](https://www.znenghs.com/book/i9sfpj/)
-- [逃出金丝笼，我力挽山河开国称帝](https://www.znenghs.com/book/i9sf77/)
-- [韩团绿卡不想忍了](https://www.znenghs.com/book/i9sdal/)
-- [被糟蹋的老实人决定反击](https://www.znenghs.com/book/i9sbm8/)
-- [卷王后妈，八零养娃](https://www.znenghs.com/book/i9saao/)
-- [清冷丞相怀了死对头的崽](https://www.znenghs.com/book/i9sa2u/)
-- [这个位面归我了！[经营]](https://www.znenghs.com/book/i9s9g0/)
-- [村霸非要入赘受气包](https://www.znenghs.com/book/i9s975/)
-- [和山神搭伙开农场的日子](https://www.znenghs.com/book/i9s7qb/)
-- [让霸刀山庄重回忍界之巅[综剑三]](https://www.znenghs.com/book/i9s655/)
-- [恶犬攻绑定上司的乖狗系统](https://www.znenghs.com/book/i9s5g4/)
-- [在民俗惊悚片被诸神庇护](https://www.znenghs.com/book/i9s40j/)
-- [心动嫌疑人](https://www.znenghs.com/book/i9s35n/)
-- [带清冷女主回乡养螃蟹[种田]](https://www.znenghs.com/book/i9s2l7/)
-- [假意逢承](https://www.znenghs.com/book/i9s1bu/)
-- [死亡悖论[无限流]](https://www.znenghs.com/book/i9s02q/)
-- [权宋一只统](https://www.znenghs.com/book/i9rubb/)
-- [爱好和平但狂拆机甲](https://www.znenghs.com/book/i9ru4b/)
-- [全民求生:从小木屋到魔法农场](https://www.znenghs.com/book/1qip84/)
-- [我有一座安全城](https://www.znenghs.com/book/1qip3a/)
-- [完蛋！被恨孕男包围了！](https://www.znenghs.com/book/1qiovk/)
-- [海岛求生：生活玩家种田囤货](https://www.znenghs.com/book/1qioop/)
-- [在魔法贵族学院当白月光](https://www.znenghs.com/book/1qioaf/)
-- [高门小婢](https://www.znenghs.com/book/1qio1t/)
-- [华夏神明震撼星际](https://www.znenghs.com/book/1qinnm/)
-- [大瑛弟国](https://www.znenghs.com/book/1qine0/)
-- [95美国贵族高中模拟](https://www.znenghs.com/book/5rfun/)
-- [我是唯一地上神国](https://www.znenghs.com/book/5rfri/)
-- [五十年代港城日常](https://www.znenghs.com/book/5rfp6/)
-- [开局绑定郭奉孝，谋定三国风云](https://www.znenghs.com/book/5rfl4/)
-- [[娱乐圈]过分美丽的她](https://www.znenghs.com/book/5rfhr/)
-- [苏娘子汴京摆摊日常（美食）](https://www.znenghs.com/book/5rfh0/)
-- [清澈女大的六零年代](https://www.znenghs.com/book/5rfcn/)
+- [全职高手]治疗什么的不干了！ https://www.znenghs.com/book/5n2k96i/
+- 魔法种田，从退队经营农场开始 https://www.znenghs.com/book/5n2k96h/
+- 魔尊闭关十年连生十一子？！ https://www.znenghs.com/book/5n2k96g/
+- 我骗家里的钱养你啊 https://www.znenghs.com/book/5n2k96f/
+- 仙尊心尖宠，但被魔尊抢了 https://www.znenghs.com/book/5n2k96e/
+- 暗恋的价格是三万块 https://www.znenghs.com/book/5n2k96d/
+- 你让魔王组建勇者小队？ https://www.znenghs.com/book/5n2k96c/
+- 人，今晚土拨鼠站岗 https://www.znenghs.com/book/5n2k96b/
+- 欲和离？夫君他目不识丁 https://www.znenghs.com/book/5n2k96a/
+- 怨明月不独照 https://www.znenghs.com/book/5n2k969/
+- 失忆后和死对头有了崽 https://www.znenghs.com/book/5n2k968/
+- 末世八年春，游戏降临 https://www.znenghs.com/book/5n2k967/
+- 乖乖女的杂货铺[八零] https://www.znenghs.com/book/5n2k966/
+- 从1951开始 https://www.znenghs.com/book/5n2k965/
+- 谁都不爱的和亲公主 https://www.znenghs.com/book/5n2k964/
+- 热恋过期需重追 https://www.znenghs.com/book/5n2k963/
+- 我们小区穿末世 https://www.znenghs.com/book/5n2k962/
+- [洪荒]成为太清妹妹后 https://www.znenghs.com/book/5n2k961/
+- 恐游作精女配求生指南 https://www.znenghs.com/book/5n2k960/
+- 好心的俄罗斯人 https://www.znenghs.com/book/5n2k95v/
+- 清穿女回来后[天幕] https://www.znenghs.com/book/5n2k95u/
+- 康熙宠妃日常 https://www.znenghs.com/book/5n2k95t/
+- 咦？我爸爸复活啦 https://www.znenghs.com/book/5n2k95s/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.znenghs.com/book/5n2k95r/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.znenghs.com/book/5n2k95q/
+- 在中世纪做奴隶 https://www.znenghs.com/book/5n2k95p/
+- 欲加之罪 https://www.znenghs.com/book/5n2k95o/
+- 和治君只是饭搭子的关系 https://www.znenghs.com/book/5n2k95n/
+- [足球]雏鸟 https://www.znenghs.com/book/5n2k95m/
+- 万人嫌从末世回来了 https://www.znenghs.com/book/5n2k95l/
+- 魔咒请说普通话[西幻] https://www.znenghs.com/book/5n2k95k/
+- 在年代文里跑运输 https://www.znenghs.com/book/5n2k95j/
+- 全民求生，但剑三 https://www.znenghs.com/book/5n2k95i/
+- 魔改剧本后我爆火了[娱乐圈] https://www.znenghs.com/book/5n2k95h/
+- [综英美]和亲友群穿哥谭以后 https://www.znenghs.com/book/5n2k95g/
+- 全世界名为爱的恶意 https://www.znenghs.com/book/5n2k95f/
+- 占有欲Daddy是我老公？ https://www.znenghs.com/book/5n2k95e/
+- 二次分化后他怀了死对头的崽 https://www.znenghs.com/book/5n2k95d/
+- 娘娘扶摇直上 https://www.znenghs.com/book/5n2k95c/
+- 漫画取材所引发的修罗场 https://www.znenghs.com/book/5n2k95b/
+- [足球]小小鸟堂堂来袭 https://www.znenghs.com/book/5n2k95a/
+- 夫人每天都在伪装 https://www.znenghs.com/book/5n2k958/
+- 病美人重生日记 https://www.znenghs.com/book/5n2k957/
+- [原神]魔法使恋爱指南 https://www.znenghs.com/book/5n2k956/
+- 强取师尊后 https://www.znenghs.com/book/5n2k955/
+- [崩铁]请给玩家一个准确的血条！ https://www.znenghs.com/book/5n2k954/
+- 爱情的肯定句 https://www.znenghs.com/book/5n2k953/
+- 等我吃腻了再倒闭可以吗 https://www.znenghs.com/book/5n2k951/
+- SSS级异种都是我前任 https://www.znenghs.com/book/5n2k950/
+- 正是冬雪沸腾时 https://www.znenghs.com/book/5n2k94v/
+- 八零法医，带全家致富 https://www.znenghs.com/book/5n2k94u/
+- 国运求生：我的金手指是生命树 https://www.znenghs.com/book/5n2k94t/
+- 死遁APP https://www.znenghs.com/book/5n2k94s/
+- 炮灰的海外亲戚回国啦！ https://www.znenghs.com/book/5n2k94r/
+- 我只想上京赶考啊[聊斋] https://www.znenghs.com/book/5n2k94q/
+- 谁说踢球就不能成为名侦探[足球] https://www.znenghs.com/book/5n2k94p/
+- 国师 https://www.znenghs.com/book/5n2k94o/
+- 烈火焚身[巴黎圣母院] https://www.znenghs.com/book/5n2k94n/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.znenghs.com/book/5n2k94m/
+- 穿为龙傲天发妻后 https://www.znenghs.com/book/5n2k94l/
+- 禁止继承限制级雌君 https://www.znenghs.com/book/5n2k94k/
+- 前妻她肯定会后悔 https://www.znenghs.com/book/5n2k94j/
+- [综英美]哥谭市民，在线抽卡 https://www.znenghs.com/book/5n2k94i/
+- 穿咒术，但杀猴现场 https://www.znenghs.com/book/5n2k94h/
+- 双生子反派的端水抑郁妈[九零] https://www.znenghs.com/book/5n2k94g/
+- 恐游里的邻居们[万人迷] https://www.znenghs.com/book/5n2k94f/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.znenghs.com/book/5n2k94e/
+- 星露谷，但日本战国 https://www.znenghs.com/book/5n2k94d/
+- 世界伏于她刀下[无限] https://www.znenghs.com/book/5n2k94c/
+- 同时扮演贵族学院F4和平民校花 https://www.znenghs.com/book/5n2k94b/
+- 如何正确哄睡暴君 https://www.znenghs.com/book/5n2k94a/
+- 恶毒男配只想躺平 https://www.znenghs.com/book/5n2k949/
+- [封神]圣人生欲 https://www.znenghs.com/book/5n2k8uq/
+- 始乱终弃清冷首辅后 https://www.znenghs.com/book/5n2k8up/
+- 星际团宠小人鱼 https://www.znenghs.com/book/5n2k8ss/
+- 原配夫人 https://www.znenghs.com/book/5n2k8sp/
+- 十九世纪贵族厨房（美食） https://www.znenghs.com/book/5n2k8sj/
+- 高调装神，猥琐发育 https://www.znenghs.com/book/5n2k8sf/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.znenghs.com/book/5n2k8qh/
+- 直男咒术师的限制级游戏 https://www.znenghs.com/book/5n2k8nt/
+- 六零之成了卷王的妹妹 https://www.znenghs.com/book/5n2k7fh/
+- 路人攻了主角攻［快穿］ https://www.znenghs.com/book/5n2k7cr/
+- 昭暮 https://www.znenghs.com/book/5n2jtr8/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.znenghs.com/book/5n2j75i/
+- 老公对不起 https://www.znenghs.com/book/5n2iqa9/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.znenghs.com/book/5n2iie5/
+- 九零重组小家庭 https://www.znenghs.com/book/5n2igll/
+- [足球]足坛人生模拟器 https://www.znenghs.com/book/5n2ieo0/
+- 上个鬼班[无限] https://www.znenghs.com/book/5n2idqi/
+- 在卷王和废物之间选择做吉祥物 https://www.znenghs.com/book/5n2i3fu/
+- 从维多利亚时代开始 https://www.znenghs.com/book/5n2hsh7/
+- 如何嫁给当朝首辅 https://www.znenghs.com/book/5n2hecj/
+- 食明 https://www.znenghs.com/book/5n2hdl3/
+- 诡话第一boss https://www.znenghs.com/book/5n2ha9a/
+- 仙门透明人被迫万人迷 https://www.znenghs.com/book/5n2h8f7/
+- 日化人生[科研] https://www.znenghs.com/book/5n2h5tp/
+- 让暴君Alpha怀崽后 https://www.znenghs.com/book/5n2h44u/
+- 专业女配的自我修养（快穿） https://www.znenghs.com/book/5n2h426/
+- 巨物致富：回乡开钓场 https://www.znenghs.com/book/5n2h3jv/
+- 老实人妻，但顶级魅魔 https://www.znenghs.com/book/5n2h3f0/
+- [足球]我的游戏存档成真了？！ https://www.znenghs.com/book/5n2gufv/
+- 让你们无剧本可走（快穿） https://www.znenghs.com/book/5n2gtup/
+- 寡妇美人模拟器 https://www.znenghs.com/book/5n2gseb/
+- 趁她之危 https://www.znenghs.com/book/5n2gs9s/
+- 起初，我只是想找个冤大头 https://www.znenghs.com/book/5n2gmpe/
+- 摄政王家的咸鱼夫郎 https://www.znenghs.com/book/5n2glmf/
+- 死遁的亡夫们都回来了 https://www.znenghs.com/book/i9ttde/
+- 沈助理又在隐藏他的超能力 https://www.znenghs.com/book/i9tpf4/
+- 天幕今天也在直播我搞基建 https://www.znenghs.com/book/i9tooc/
+- 成为养成系练习生后 https://www.znenghs.com/book/i9tkmo/
+- 死对头又在挑衅我 https://www.znenghs.com/book/i9tk24/
+- 从童星开始杀穿港娱 https://www.znenghs.com/book/i9tiom/
+- 我有一座地下城 https://www.znenghs.com/book/i9ti7a/
+- 被天使之王骗婚后[诡秘之主] https://www.znenghs.com/book/i9thbc/
+- 漂亮女配是万人迷［快穿］ https://www.znenghs.com/book/i9teop/
+- 和贵志君是世界第一的好朋友 https://www.znenghs.com/book/i9t588/
+- 我187了，你敢见我吗？ https://www.znenghs.com/book/i9t3ts/
+- 阴阳师也可以打网球 https://www.znenghs.com/book/i9t1ka/
+- 和姐姐的前女友欢愉后 https://www.znenghs.com/book/i9t1ja/
+- 五条老师与他的封建妻子 https://www.znenghs.com/book/i9svjb/
+- 我与龙傲天寿命共享 https://www.znenghs.com/book/i9sv3e/
+- 大唐守军家属 https://www.znenghs.com/book/i9sqjf/
+- 朕也要被强制吗？ https://www.znenghs.com/book/i9sp80/
+- 在重生文里考科举 https://www.znenghs.com/book/i9sou8/
+- 妻主风流（女尊） https://www.znenghs.com/book/i9shjm/
+- 多梦你一会儿 https://www.znenghs.com/book/i9sfpj/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.znenghs.com/book/i9sf77/
+- 韩团绿卡不想忍了 https://www.znenghs.com/book/i9sdal/
+- 被糟蹋的老实人决定反击 https://www.znenghs.com/book/i9sbm8/
+- 卷王后妈，八零养娃 https://www.znenghs.com/book/i9saao/
+- 清冷丞相怀了死对头的崽 https://www.znenghs.com/book/i9sa2u/
+- 这个位面归我了！[经营] https://www.znenghs.com/book/i9s9g0/
+- 村霸非要入赘受气包 https://www.znenghs.com/book/i9s975/
+- 和山神搭伙开农场的日子 https://www.znenghs.com/book/i9s7qb/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.znenghs.com/book/i9s655/
+- 恶犬攻绑定上司的乖狗系统 https://www.znenghs.com/book/i9s5g4/
+- 在民俗惊悚片被诸神庇护 https://www.znenghs.com/book/i9s40j/
+- 心动嫌疑人 https://www.znenghs.com/book/i9s35n/
+- 带清冷女主回乡养螃蟹[种田] https://www.znenghs.com/book/i9s2l7/
+- 假意逢承 https://www.znenghs.com/book/i9s1bu/
+- 死亡悖论[无限流] https://www.znenghs.com/book/i9s02q/
+- 权宋一只统 https://www.znenghs.com/book/i9rubb/
+- 爱好和平但狂拆机甲 https://www.znenghs.com/book/i9ru4b/
+- 全民求生:从小木屋到魔法农场 https://www.znenghs.com/book/1qip84/
+- 我有一座安全城 https://www.znenghs.com/book/1qip3a/
+- 完蛋！被恨孕男包围了！ https://www.znenghs.com/book/1qiovk/
+- 海岛求生：生活玩家种田囤货 https://www.znenghs.com/book/1qioop/
+- 在魔法贵族学院当白月光 https://www.znenghs.com/book/1qioaf/
+- 大瑛弟国 https://www.znenghs.com/book/1qine0/
+- 95美国贵族高中模拟 https://www.znenghs.com/book/5rfun/
+- 我是唯一地上神国 https://www.znenghs.com/book/5rfri/
+- 五十年代港城日常 https://www.znenghs.com/book/5rfp6/
+- 开局绑定郭奉孝，谋定三国风云 https://www.znenghs.com/book/5rfl4/
+- [娱乐圈]过分美丽的她 https://www.znenghs.com/book/5rfhr/
+- 苏娘子汴京摆摊日常（美食） https://www.znenghs.com/book/5rfh0/
+- 清澈女大的六零年代 https://www.znenghs.com/book/5rfcn/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1326/index.md)

@@ -1,175 +1,167 @@
 
 # 燃文故事小说网 - 无弹窗全本小说免费阅读
 
-更新时间：2026-09-07 03:29:33
+更新时间：2026-09-08 03:30:30
 
-燃文故事小说网提供无弹窗干扰的小说阅读体验，支持全本小说在线免费阅读。
-
-- [燃文故事小说网](https://www.gushi687.com/)
+燃文故事小说网提供无弹窗干扰的小说阅读体验，支持全本小说在线免费阅读。 https://www.gushi687.com
 
 ## 最新小说
-- [和八个男人在极寒游戏求生](https://www.gushi687.com/book/63qvddf/)
-- [恐游作精女配求生指南](https://www.gushi687.com/book/63qvddd/)
-- [[洪荒]成为太清妹妹后](https://www.gushi687.com/book/63qvdd9/)
-- [魔法种田，从退队经营农场开始](https://www.gushi687.com/book/63qvdd7/)
-- [爱情的肯定句](https://www.gushi687.com/book/63qvdd5/)
-- [魔咒请说普通话[西幻]](https://www.gushi687.com/book/63qvdd4/)
-- [恐游里的邻居们[万人迷]](https://www.gushi687.com/book/63qvdd2/)
-- [二次分化后他怀了死对头的崽](https://www.gushi687.com/book/63qvdd1/)
-- [我们小区穿末世](https://www.gushi687.com/book/63qvdd0/)
-- [乖乖女的杂货铺[八零]](https://www.gushi687.com/book/63qvdcu/)
-- [炮灰的海外亲戚回国啦！](https://www.gushi687.com/book/63qvdct/)
-- [热恋过期需重追](https://www.gushi687.com/book/63qvdcp/)
-- [[综英美]和亲友群穿哥谭以后](https://www.gushi687.com/book/63qvdcl/)
-- [世界伏于她刀下[无限]](https://www.gushi687.com/book/63qvdck/)
-- [SSS级异种都是我前任](https://www.gushi687.com/book/63qvdch/)
-- [漫画取材所引发的修罗场](https://www.gushi687.com/book/63qvdcd/)
-- [你让魔王组建勇者小队？](https://www.gushi687.com/book/63qvdcc/)
-- [娘娘扶摇直上](https://www.gushi687.com/book/63qvdc9/)
-- [康熙宠妃日常](https://www.gushi687.com/book/63qvdc8/)
-- [烈火焚身[巴黎圣母院]](https://www.gushi687.com/book/63qvdc5/)
-- [死遁APP](https://www.gushi687.com/book/63qvdc0/)
-- [［西幻］RPG就不要谈恋爱了吧！](https://www.gushi687.com/book/63qvdbv/)
-- [好心的俄罗斯人](https://www.gushi687.com/book/63qvdbu/)
-- [等我吃腻了再倒闭可以吗](https://www.gushi687.com/book/63qvdbo/)
-- [八零法医，带全家致富](https://www.gushi687.com/book/63qvdbh/)
-- [从1951开始](https://www.gushi687.com/book/63qvdbg/)
-- [国师](https://www.gushi687.com/book/63qvdbd/)
-- [在中世纪做奴隶](https://www.gushi687.com/book/63qvdb6/)
-- [怨明月不独照](https://www.gushi687.com/book/63qvdb5/)
-- [强取师尊后](https://www.gushi687.com/book/63qvdb2/)
-- [魔改剧本后我爆火了[娱乐圈]](https://www.gushi687.com/book/63qvdb1/)
-- [在年代文里跑运输](https://www.gushi687.com/book/63qvdb0/)
-- [[全职高手]治疗什么的不干了！](https://www.gushi687.com/book/63qvdat/)
-- [星露谷，但日本战国](https://www.gushi687.com/book/63qvdar/)
-- [欲和离？夫君他目不识丁](https://www.gushi687.com/book/63qvdap/)
-- [穿咒术，但杀猴现场](https://www.gushi687.com/book/63qvdan/)
-- [我只想上京赶考啊[聊斋]](https://www.gushi687.com/book/63qvdam/)
-- [双生子反派的端水抑郁妈[九零]](https://www.gushi687.com/book/63qvdaj/)
-- [占有欲Daddy是我老公？](https://www.gushi687.com/book/63qvdah/)
-- [正是冬雪沸腾时](https://www.gushi687.com/book/63qvdaf/)
-- [大佬的漂亮老婆回来带崽了[八零]](https://www.gushi687.com/book/63qvdae/)
-- [禁止继承限制级雌君](https://www.gushi687.com/book/63qvdac/)
-- [谁说踢球就不能成为名侦探[足球]](https://www.gushi687.com/book/63qvda9/)
-- [欲加之罪](https://www.gushi687.com/book/63qvda8/)
-- [病美人重生日记](https://www.gushi687.com/book/63qvda7/)
-- [人，今晚土拨鼠站岗](https://www.gushi687.com/book/63qvda6/)
-- [全民求生，但剑三](https://www.gushi687.com/book/63qvda2/)
-- [前妻她肯定会后悔](https://www.gushi687.com/book/63qvda1/)
-- [失忆后和死对头有了崽](https://www.gushi687.com/book/63qvd9u/)
-- [谁都不爱的和亲公主](https://www.gushi687.com/book/63qvd9r/)
-- [万人嫌从末世回来了](https://www.gushi687.com/book/63qvd9p/)
-- [恶毒男配只想躺平](https://www.gushi687.com/book/63qvd9j/)
-- [暗恋的价格是三万块](https://www.gushi687.com/book/63qvd9d/)
-- [夫人每天都在伪装](https://www.gushi687.com/book/63qvd9b/)
-- [魔尊闭关十年连生十一子？！](https://www.gushi687.com/book/63qvd99/)
-- [仙尊心尖宠，但被魔尊抢了](https://www.gushi687.com/book/63qvd97/)
-- [全世界名为爱的恶意](https://www.gushi687.com/book/63qvd8t/)
-- [穿为龙傲天发妻后](https://www.gushi687.com/book/63qvd8r/)
-- [［综英美］蝙蝠崽？我不是啊！](https://www.gushi687.com/book/63qvd8p/)
-- [国运求生：我的金手指是生命树](https://www.gushi687.com/book/63qvd8o/)
-- [[原神]魔法使恋爱指南](https://www.gushi687.com/book/63qvd8n/)
-- [[综英美]哥谭市民，在线抽卡](https://www.gushi687.com/book/63qvd8l/)
-- [[足球]雏鸟](https://www.gushi687.com/book/63qvd8j/)
-- [末世八年春，游戏降临](https://www.gushi687.com/book/63qvd8c/)
-- [清穿女回来后[天幕]](https://www.gushi687.com/book/63qvd88/)
-- [起初，我只是想找个冤大头](https://www.gushi687.com/book/63qv311/)
-- [[足球]拥有分身系统的我靠踢足球建设国家](https://www.gushi687.com/book/63qv0s4/)
-- [我们生活玩家是这样的](https://www.gushi687.com/book/63qv0pu/)
-- [上个鬼班[无限]](https://www.gushi687.com/book/63qusd3/)
-- [华夏神明震撼星际](https://www.gushi687.com/book/63quman/)
-- [让暴君Alpha怀崽后](https://www.gushi687.com/book/63qul4p/)
-- [[足球]足坛人生模拟器](https://www.gushi687.com/book/63qukqm/)
-- [神豪文男主是我爸](https://www.gushi687.com/book/63qug3h/)
-- [在卷王和废物之间选择做吉祥物](https://www.gushi687.com/book/63quaop/)
-- [从维多利亚时代开始](https://www.gushi687.com/book/63qu7il/)
-- [昭暮](https://www.gushi687.com/book/63qu5ci/)
-- [十九世纪贵族厨房（美食）](https://www.gushi687.com/book/63qu1lv/)
-- [星际团宠小人鱼](https://www.gushi687.com/book/63qu1ll/)
-- [原配夫人](https://www.gushi687.com/book/63qu1ip/)
-- [始乱终弃清冷首辅后](https://www.gushi687.com/book/63qu1hn/)
-- [高调装神，猥琐发育](https://www.gushi687.com/book/63qtqic/)
-- [完蛋！被恨孕男包围了！](https://www.gushi687.com/book/63qtqdm/)
-- [食明](https://www.gushi687.com/book/63qtoe2/)
-- [诡话第一boss](https://www.gushi687.com/book/63qtl3d/)
-- [老实人妻，但顶级魅魔](https://www.gushi687.com/book/63qtid1/)
-- [专业女配的自我修养（快穿）](https://www.gushi687.com/book/63qti8v/)
-- [[足球]我的游戏存档成真了？！](https://www.gushi687.com/book/63qtdop/)
-- [社畜Beta也能被顶A觊觎吗](https://www.gushi687.com/book/63qtbdk/)
-- [摄政王家的咸鱼夫郎](https://www.gushi687.com/book/63qta4s/)
-- [我与龙傲天寿命共享](https://www.gushi687.com/book/63qt9ts/)
-- [让你们无剧本可走（快穿）](https://www.gushi687.com/book/63qt9ag/)
-- [如何正确哄睡暴君](https://www.gushi687.com/book/63qt77t/)
-- [阴郁残疾炮灰被万人迷后[快穿]](https://www.gushi687.com/book/63qt2cm/)
-- [我骗家里的钱养你啊](https://www.gushi687.com/book/63qt1pp/)
-- [死遁的亡夫们都回来了](https://www.gushi687.com/book/63qt0ni/)
-- [怀了前任大哥的崽后](https://www.gushi687.com/book/63qt0ho/)
-- [在民俗惊悚片被诸神庇护](https://www.gushi687.com/book/63qson5/)
-- [沈助理又在隐藏他的超能力](https://www.gushi687.com/book/63qsnnl/)
-- [死对头又在挑衅我](https://www.gushi687.com/book/63qsnls/)
-- [韩团绿卡不想忍了](https://www.gushi687.com/book/63qsn1b/)
-- [被天使之王骗婚后[诡秘之主]](https://www.gushi687.com/book/63qslhh/)
-- [假金丝雀深陷修罗场](https://www.gushi687.com/book/63qskms/)
-- [美貌单出，杀穿港娱［八零］](https://www.gushi687.com/book/63qsjjr/)
-- [咦？我爸爸复活啦](https://www.gushi687.com/book/63qsidl/)
-- [同时扮演贵族学院F4和平民校花](https://www.gushi687.com/book/63qshh4/)
-- [路人攻了主角攻［快穿］](https://www.gushi687.com/book/63qsgd6/)
-- [开局绑定郭奉孝，谋定三国风云](https://www.gushi687.com/book/63qsf8m/)
-- [苏娘子汴京摆摊日常（美食）](https://www.gushi687.com/book/63qsck5/)
-- [漂亮女配是万人迷［快穿］](https://www.gushi687.com/book/63qschs/)
-- [我有一座地下城](https://www.gushi687.com/book/63qsbrp/)
-- [和贵志君是世界第一的好朋友](https://www.gushi687.com/book/63qs7nc/)
-- [[封神]圣人生欲](https://www.gushi687.com/book/63qs7dr/)
-- [如何嫁给当朝首辅](https://www.gushi687.com/book/63qs7a3/)
-- [多梦你一会儿](https://www.gushi687.com/book/63qs6v5/)
-- [和治君只是饭搭子的关系](https://www.gushi687.com/book/63qs6ub/)
-- [阴阳师也可以打网球](https://www.gushi687.com/book/63qs5ul/)
-- [五条老师与他的封建妻子](https://www.gushi687.com/book/63qs58b/)
-- [卷王后妈，八零养娃](https://www.gushi687.com/book/63qs4ur/)
-- [在魔法贵族学院当白月光](https://www.gushi687.com/book/63qs41r/)
-- [我司艺人永不塌房](https://www.gushi687.com/book/63qs0fn/)
-- [我187了，你敢见我吗？](https://www.gushi687.com/book/63qs089/)
-- [和姐姐的前女友欢愉后](https://www.gushi687.com/book/63qrtid/)
-- [在重生文里考科举](https://www.gushi687.com/book/63qrkvc/)
-- [大唐守军家属](https://www.gushi687.com/book/63qrkpd/)
-- [朕也要被强制吗？](https://www.gushi687.com/book/63qrk52/)
-- [[足球]小小鸟堂堂来袭](https://www.gushi687.com/book/63qribj/)
-- [让霸刀山庄重回忍界之巅[综剑三]](https://www.gushi687.com/book/63qrgt2/)
-- [妻主风流（女尊）](https://www.gushi687.com/book/63qrgop/)
-- [死亡悖论[无限流]](https://www.gushi687.com/book/63qrg72/)
-- [心动嫌疑人](https://www.gushi687.com/book/63qreb7/)
-- [这个位面归我了！[经营]](https://www.gushi687.com/book/63qrdbi/)
-- [带清冷女主回乡养螃蟹[种田]](https://www.gushi687.com/book/63qrcfp/)
-- [村霸非要入赘受气包](https://www.gushi687.com/book/63qrb33/)
-- [逃出金丝笼，我力挽山河开国称帝](https://www.gushi687.com/book/63qr942/)
-- [[崩铁]请给玩家一个准确的血条！](https://www.gushi687.com/book/63qr8th/)
-- [清冷丞相怀了死对头的崽](https://www.gushi687.com/book/63qr8ql/)
-- [和山神搭伙开农场的日子](https://www.gushi687.com/book/63qr87m/)
-- [被糟蹋的老实人决定反击](https://www.gushi687.com/book/63qr7f2/)
-- [趁她之危](https://www.gushi687.com/book/63qr42h/)
-- [假意逢承](https://www.gushi687.com/book/63qr2hn/)
-- [恶犬攻绑定上司的乖狗系统](https://www.gushi687.com/book/63qr1c5/)
-- [权宋一只统](https://www.gushi687.com/book/63qqu5u/)
-- [爱好和平但狂拆机甲](https://www.gushi687.com/book/63qqotg/)
-- [全民求生:从小木屋到魔法农场](https://www.gushi687.com/book/63qps90/)
-- [大瑛弟国](https://www.gushi687.com/book/63qps8r/)
-- [巨物致富：回乡开钓场](https://www.gushi687.com/book/63qps7u/)
-- [95美国贵族高中模拟](https://www.gushi687.com/book/63qps2a/)
-- [高门小婢](https://www.gushi687.com/book/63qproa/)
-- [六零之成了卷王的妹妹](https://www.gushi687.com/book/63qprfd/)
-- [成为养成系练习生后](https://www.gushi687.com/book/63qpr9r/)
-- [假少爷离开后](https://www.gushi687.com/book/63qpr5g/)
-- [我是唯一地上神国](https://www.gushi687.com/book/63qpqir/)
-- [我有一座安全城](https://www.gushi687.com/book/63qpqi3/)
-- [直男咒术师的限制级游戏](https://www.gushi687.com/book/63qpqgi/)
-- [海岛求生：生活玩家种田囤货](https://www.gushi687.com/book/63qpq56/)
-- [五十年代港城日常](https://www.gushi687.com/book/63qppp5/)
-- [[娱乐圈]过分美丽的她](https://www.gushi687.com/book/63qpp9q/)
-- [老公对不起](https://www.gushi687.com/book/63qpp5n/)
-- [日化人生[科研]](https://www.gushi687.com/book/63qpp58/)
-- [浣熊市蝙蝠崽的哥谭居住指南](https://www.gushi687.com/book/63qpp3o/)
-- [清澈女大的六零年代](https://www.gushi687.com/book/63qpp24/)
-- [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.gushi687.com/book/63qpp1i/)
+- 恐游作精女配求生指南 https://www.gushi687.com/book/63qvddd/
+- [洪荒]成为太清妹妹后 https://www.gushi687.com/book/63qvdd9/
+- 魔法种田，从退队经营农场开始 https://www.gushi687.com/book/63qvdd7/
+- 爱情的肯定句 https://www.gushi687.com/book/63qvdd5/
+- 魔咒请说普通话[西幻] https://www.gushi687.com/book/63qvdd4/
+- 恐游里的邻居们[万人迷] https://www.gushi687.com/book/63qvdd2/
+- 二次分化后他怀了死对头的崽 https://www.gushi687.com/book/63qvdd1/
+- 我们小区穿末世 https://www.gushi687.com/book/63qvdd0/
+- 乖乖女的杂货铺[八零] https://www.gushi687.com/book/63qvdcu/
+- 炮灰的海外亲戚回国啦！ https://www.gushi687.com/book/63qvdct/
+- 热恋过期需重追 https://www.gushi687.com/book/63qvdcp/
+- [综英美]和亲友群穿哥谭以后 https://www.gushi687.com/book/63qvdcl/
+- 世界伏于她刀下[无限] https://www.gushi687.com/book/63qvdck/
+- SSS级异种都是我前任 https://www.gushi687.com/book/63qvdch/
+- 漫画取材所引发的修罗场 https://www.gushi687.com/book/63qvdcd/
+- 你让魔王组建勇者小队？ https://www.gushi687.com/book/63qvdcc/
+- 娘娘扶摇直上 https://www.gushi687.com/book/63qvdc9/
+- 康熙宠妃日常 https://www.gushi687.com/book/63qvdc8/
+- 烈火焚身[巴黎圣母院] https://www.gushi687.com/book/63qvdc5/
+- 死遁APP https://www.gushi687.com/book/63qvdc0/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.gushi687.com/book/63qvdbv/
+- 好心的俄罗斯人 https://www.gushi687.com/book/63qvdbu/
+- 等我吃腻了再倒闭可以吗 https://www.gushi687.com/book/63qvdbo/
+- 八零法医，带全家致富 https://www.gushi687.com/book/63qvdbh/
+- 从1951开始 https://www.gushi687.com/book/63qvdbg/
+- 国师 https://www.gushi687.com/book/63qvdbd/
+- 在中世纪做奴隶 https://www.gushi687.com/book/63qvdb6/
+- 怨明月不独照 https://www.gushi687.com/book/63qvdb5/
+- 强取师尊后 https://www.gushi687.com/book/63qvdb2/
+- 魔改剧本后我爆火了[娱乐圈] https://www.gushi687.com/book/63qvdb1/
+- 在年代文里跑运输 https://www.gushi687.com/book/63qvdb0/
+- [全职高手]治疗什么的不干了！ https://www.gushi687.com/book/63qvdat/
+- 星露谷，但日本战国 https://www.gushi687.com/book/63qvdar/
+- 欲和离？夫君他目不识丁 https://www.gushi687.com/book/63qvdap/
+- 穿咒术，但杀猴现场 https://www.gushi687.com/book/63qvdan/
+- 我只想上京赶考啊[聊斋] https://www.gushi687.com/book/63qvdam/
+- 双生子反派的端水抑郁妈[九零] https://www.gushi687.com/book/63qvdaj/
+- 占有欲Daddy是我老公？ https://www.gushi687.com/book/63qvdah/
+- 正是冬雪沸腾时 https://www.gushi687.com/book/63qvdaf/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.gushi687.com/book/63qvdae/
+- 禁止继承限制级雌君 https://www.gushi687.com/book/63qvdac/
+- 谁说踢球就不能成为名侦探[足球] https://www.gushi687.com/book/63qvda9/
+- 欲加之罪 https://www.gushi687.com/book/63qvda8/
+- 病美人重生日记 https://www.gushi687.com/book/63qvda7/
+- 人，今晚土拨鼠站岗 https://www.gushi687.com/book/63qvda6/
+- 全民求生，但剑三 https://www.gushi687.com/book/63qvda2/
+- 前妻她肯定会后悔 https://www.gushi687.com/book/63qvda1/
+- 失忆后和死对头有了崽 https://www.gushi687.com/book/63qvd9u/
+- 谁都不爱的和亲公主 https://www.gushi687.com/book/63qvd9r/
+- 万人嫌从末世回来了 https://www.gushi687.com/book/63qvd9p/
+- 恶毒男配只想躺平 https://www.gushi687.com/book/63qvd9j/
+- 暗恋的价格是三万块 https://www.gushi687.com/book/63qvd9d/
+- 夫人每天都在伪装 https://www.gushi687.com/book/63qvd9b/
+- 魔尊闭关十年连生十一子？！ https://www.gushi687.com/book/63qvd99/
+- 仙尊心尖宠，但被魔尊抢了 https://www.gushi687.com/book/63qvd97/
+- 全世界名为爱的恶意 https://www.gushi687.com/book/63qvd8t/
+- 穿为龙傲天发妻后 https://www.gushi687.com/book/63qvd8r/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.gushi687.com/book/63qvd8p/
+- 国运求生：我的金手指是生命树 https://www.gushi687.com/book/63qvd8o/
+- [原神]魔法使恋爱指南 https://www.gushi687.com/book/63qvd8n/
+- [综英美]哥谭市民，在线抽卡 https://www.gushi687.com/book/63qvd8l/
+- [足球]雏鸟 https://www.gushi687.com/book/63qvd8j/
+- 末世八年春，游戏降临 https://www.gushi687.com/book/63qvd8c/
+- 清穿女回来后[天幕] https://www.gushi687.com/book/63qvd88/
+- 起初，我只是想找个冤大头 https://www.gushi687.com/book/63qv311/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.gushi687.com/book/63qv0s4/
+- 上个鬼班[无限] https://www.gushi687.com/book/63qusd3/
+- 九零重组小家庭 https://www.gushi687.com/book/63quln6/
+- 让暴君Alpha怀崽后 https://www.gushi687.com/book/63qul4p/
+- [足球]足坛人生模拟器 https://www.gushi687.com/book/63qukqm/
+- 在卷王和废物之间选择做吉祥物 https://www.gushi687.com/book/63quaop/
+- 从维多利亚时代开始 https://www.gushi687.com/book/63qu7il/
+- 昭暮 https://www.gushi687.com/book/63qu5ci/
+- 十九世纪贵族厨房（美食） https://www.gushi687.com/book/63qu1lv/
+- 星际团宠小人鱼 https://www.gushi687.com/book/63qu1ll/
+- 原配夫人 https://www.gushi687.com/book/63qu1ip/
+- 始乱终弃清冷首辅后 https://www.gushi687.com/book/63qu1hn/
+- 高调装神，猥琐发育 https://www.gushi687.com/book/63qtqic/
+- 完蛋！被恨孕男包围了！ https://www.gushi687.com/book/63qtqdm/
+- 食明 https://www.gushi687.com/book/63qtoe2/
+- 诡话第一boss https://www.gushi687.com/book/63qtl3d/
+- 老实人妻，但顶级魅魔 https://www.gushi687.com/book/63qtid1/
+- 专业女配的自我修养（快穿） https://www.gushi687.com/book/63qti8v/
+- [足球]我的游戏存档成真了？！ https://www.gushi687.com/book/63qtdop/
+- 摄政王家的咸鱼夫郎 https://www.gushi687.com/book/63qta4s/
+- 我与龙傲天寿命共享 https://www.gushi687.com/book/63qt9ts/
+- 让你们无剧本可走（快穿） https://www.gushi687.com/book/63qt9ag/
+- 如何正确哄睡暴君 https://www.gushi687.com/book/63qt77t/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.gushi687.com/book/63qt2cm/
+- 我骗家里的钱养你啊 https://www.gushi687.com/book/63qt1pp/
+- 死遁的亡夫们都回来了 https://www.gushi687.com/book/63qt0ni/
+- 在民俗惊悚片被诸神庇护 https://www.gushi687.com/book/63qson5/
+- 沈助理又在隐藏他的超能力 https://www.gushi687.com/book/63qsnnl/
+- 死对头又在挑衅我 https://www.gushi687.com/book/63qsnls/
+- 韩团绿卡不想忍了 https://www.gushi687.com/book/63qsn1b/
+- 被天使之王骗婚后[诡秘之主] https://www.gushi687.com/book/63qslhh/
+- 从童星开始杀穿港娱 https://www.gushi687.com/book/63qsjjr/
+- 咦？我爸爸复活啦 https://www.gushi687.com/book/63qsidl/
+- 同时扮演贵族学院F4和平民校花 https://www.gushi687.com/book/63qshh4/
+- 路人攻了主角攻［快穿］ https://www.gushi687.com/book/63qsgd6/
+- 开局绑定郭奉孝，谋定三国风云 https://www.gushi687.com/book/63qsf8m/
+- 苏娘子汴京摆摊日常（美食） https://www.gushi687.com/book/63qsck5/
+- 漂亮女配是万人迷［快穿］ https://www.gushi687.com/book/63qschs/
+- 我有一座地下城 https://www.gushi687.com/book/63qsbrp/
+- 和贵志君是世界第一的好朋友 https://www.gushi687.com/book/63qs7nc/
+- [封神]圣人生欲 https://www.gushi687.com/book/63qs7dr/
+- 如何嫁给当朝首辅 https://www.gushi687.com/book/63qs7a3/
+- 多梦你一会儿 https://www.gushi687.com/book/63qs6v5/
+- 和治君只是饭搭子的关系 https://www.gushi687.com/book/63qs6ub/
+- 阴阳师也可以打网球 https://www.gushi687.com/book/63qs5ul/
+- 五条老师与他的封建妻子 https://www.gushi687.com/book/63qs58b/
+- 卷王后妈，八零养娃 https://www.gushi687.com/book/63qs4ur/
+- 在魔法贵族学院当白月光 https://www.gushi687.com/book/63qs41r/
+- 我187了，你敢见我吗？ https://www.gushi687.com/book/63qs089/
+- 和姐姐的前女友欢愉后 https://www.gushi687.com/book/63qrtid/
+- 在重生文里考科举 https://www.gushi687.com/book/63qrkvc/
+- 大唐守军家属 https://www.gushi687.com/book/63qrkpd/
+- 朕也要被强制吗？ https://www.gushi687.com/book/63qrk52/
+- [足球]小小鸟堂堂来袭 https://www.gushi687.com/book/63qribj/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.gushi687.com/book/63qrgt2/
+- 妻主风流（女尊） https://www.gushi687.com/book/63qrgop/
+- 死亡悖论[无限流] https://www.gushi687.com/book/63qrg72/
+- 心动嫌疑人 https://www.gushi687.com/book/63qreb7/
+- 这个位面归我了！[经营] https://www.gushi687.com/book/63qrdbi/
+- 带清冷女主回乡养螃蟹[种田] https://www.gushi687.com/book/63qrcfp/
+- 村霸非要入赘受气包 https://www.gushi687.com/book/63qrb33/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.gushi687.com/book/63qr942/
+- [崩铁]请给玩家一个准确的血条！ https://www.gushi687.com/book/63qr8th/
+- 清冷丞相怀了死对头的崽 https://www.gushi687.com/book/63qr8ql/
+- 和山神搭伙开农场的日子 https://www.gushi687.com/book/63qr87m/
+- 被糟蹋的老实人决定反击 https://www.gushi687.com/book/63qr7f2/
+- 趁她之危 https://www.gushi687.com/book/63qr42h/
+- 假意逢承 https://www.gushi687.com/book/63qr2hn/
+- 恶犬攻绑定上司的乖狗系统 https://www.gushi687.com/book/63qr1c5/
+- 权宋一只统 https://www.gushi687.com/book/63qqu5u/
+- 爱好和平但狂拆机甲 https://www.gushi687.com/book/63qqotg/
+- 全民求生:从小木屋到魔法农场 https://www.gushi687.com/book/63qps90/
+- 大瑛弟国 https://www.gushi687.com/book/63qps8r/
+- 巨物致富：回乡开钓场 https://www.gushi687.com/book/63qps7u/
+- 95美国贵族高中模拟 https://www.gushi687.com/book/63qps2a/
+- 六零之成了卷王的妹妹 https://www.gushi687.com/book/63qprfd/
+- 成为养成系练习生后 https://www.gushi687.com/book/63qpr9r/
+- 我是唯一地上神国 https://www.gushi687.com/book/63qpqir/
+- 我有一座安全城 https://www.gushi687.com/book/63qpqi3/
+- 直男咒术师的限制级游戏 https://www.gushi687.com/book/63qpqgi/
+- 仙门透明人被迫万人迷 https://www.gushi687.com/book/63qpqa5/
+- 天幕今天也在直播我搞基建 https://www.gushi687.com/book/63qpq5i/
+- 海岛求生：生活玩家种田囤货 https://www.gushi687.com/book/63qpq56/
+- 五十年代港城日常 https://www.gushi687.com/book/63qppp5/
+- 寡妇美人模拟器 https://www.gushi687.com/book/63qppje/
+- [娱乐圈]过分美丽的她 https://www.gushi687.com/book/63qpp9q/
+- 老公对不起 https://www.gushi687.com/book/63qpp5n/
+- 日化人生[科研] https://www.gushi687.com/book/63qpp58/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.gushi687.com/book/63qpp3o/
+- 清澈女大的六零年代 https://www.gushi687.com/book/63qpp24/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.gushi687.com/book/63qpp1i/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1370/index.md)

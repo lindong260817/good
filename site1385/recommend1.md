@@ -1,175 +1,167 @@
 
 # 宁波慈绿农垦小说-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-07 03:35:19
+更新时间：2026-09-08 03:36:02
 
-宁波慈绿农垦小说提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
-
-- [宁波慈绿农垦小说](https://www.nbcxnk.com/)
+宁波慈绿农垦小说提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。 https://www.nbcxnk.com
 
 ## 最新小说
-- [和八个男人在极寒游戏求生](https://www.nbcxnk.com/book/2ss0ur7/)
-- [恐游作精女配求生指南](https://www.nbcxnk.com/book/2ss0rg1/)
-- [国运求生：我的金手指是生命树](https://www.nbcxnk.com/book/2ss0rfv/)
-- [SSS级异种都是我前任](https://www.nbcxnk.com/book/2ss0rft/)
-- [谁都不爱的和亲公主](https://www.nbcxnk.com/book/2ss0rfs/)
-- [失忆后和死对头有了崽](https://www.nbcxnk.com/book/2ss0rfr/)
-- [[足球]雏鸟](https://www.nbcxnk.com/book/2ss0rfq/)
-- [占有欲Daddy是我老公？](https://www.nbcxnk.com/book/2ss0rfo/)
-- [死遁APP](https://www.nbcxnk.com/book/2ss0rfn/)
-- [烈火焚身[巴黎圣母院]](https://www.nbcxnk.com/book/2ss0rff/)
-- [魔尊闭关十年连生十一子？！](https://www.nbcxnk.com/book/2ss0rf6/)
-- [强取师尊后](https://www.nbcxnk.com/book/2ss0rf1/)
-- [穿为龙傲天发妻后](https://www.nbcxnk.com/book/2ss0rev/)
-- [恐游里的邻居们[万人迷]](https://www.nbcxnk.com/book/2ss0ret/)
-- [魔改剧本后我爆火了[娱乐圈]](https://www.nbcxnk.com/book/2ss0res/)
-- [全民求生，但剑三](https://www.nbcxnk.com/book/2ss0req/)
-- [我只想上京赶考啊[聊斋]](https://www.nbcxnk.com/book/2ss0re9/)
-- [病美人重生日记](https://www.nbcxnk.com/book/2ss0re5/)
-- [[洪荒]成为太清妹妹后](https://www.nbcxnk.com/book/2ss0re4/)
-- [仙尊心尖宠，但被魔尊抢了](https://www.nbcxnk.com/book/2ss0re3/)
-- [魔法种田，从退队经营农场开始](https://www.nbcxnk.com/book/2ss0re2/)
-- [康熙宠妃日常](https://www.nbcxnk.com/book/2ss0re0/)
-- [禁止继承限制级雌君](https://www.nbcxnk.com/book/2ss0rdp/)
-- [魔咒请说普通话[西幻]](https://www.nbcxnk.com/book/2ss0rdm/)
-- [双生子反派的端水抑郁妈[九零]](https://www.nbcxnk.com/book/2ss0rdl/)
-- [清穿女回来后[天幕]](https://www.nbcxnk.com/book/2ss0rdi/)
-- [等我吃腻了再倒闭可以吗](https://www.nbcxnk.com/book/2ss0rdh/)
-- [[全职高手]治疗什么的不干了！](https://www.nbcxnk.com/book/2ss0rdg/)
-- [谁说踢球就不能成为名侦探[足球]](https://www.nbcxnk.com/book/2ss0rdf/)
-- [暗恋的价格是三万块](https://www.nbcxnk.com/book/2ss0rdd/)
-- [大佬的漂亮老婆回来带崽了[八零]](https://www.nbcxnk.com/book/2ss0rdc/)
-- [炮灰的海外亲戚回国啦！](https://www.nbcxnk.com/book/2ss0rda/)
-- [[综英美]哥谭市民，在线抽卡](https://www.nbcxnk.com/book/2ss0rd8/)
-- [二次分化后他怀了死对头的崽](https://www.nbcxnk.com/book/2ss0rd7/)
-- [夫人每天都在伪装](https://www.nbcxnk.com/book/2ss0rd4/)
-- [万人嫌从末世回来了](https://www.nbcxnk.com/book/2ss0rd2/)
-- [热恋过期需重追](https://www.nbcxnk.com/book/2ss0rcr/)
-- [[原神]魔法使恋爱指南](https://www.nbcxnk.com/book/2ss0rcq/)
-- [好心的俄罗斯人](https://www.nbcxnk.com/book/2ss0rcp/)
-- [乖乖女的杂货铺[八零]](https://www.nbcxnk.com/book/2ss0rco/)
-- [怨明月不独照](https://www.nbcxnk.com/book/2ss0rcl/)
-- [前妻她肯定会后悔](https://www.nbcxnk.com/book/2ss0rck/)
-- [欲加之罪](https://www.nbcxnk.com/book/2ss0rce/)
-- [［综英美］蝙蝠崽？我不是啊！](https://www.nbcxnk.com/book/2ss0rcc/)
-- [在年代文里跑运输](https://www.nbcxnk.com/book/2ss0rc7/)
-- [爱情的肯定句](https://www.nbcxnk.com/book/2ss0rc6/)
-- [穿咒术，但杀猴现场](https://www.nbcxnk.com/book/2ss0rc4/)
-- [世界伏于她刀下[无限]](https://www.nbcxnk.com/book/2ss0rc3/)
-- [末世八年春，游戏降临](https://www.nbcxnk.com/book/2ss0rc0/)
-- [在中世纪做奴隶](https://www.nbcxnk.com/book/2ss0rbt/)
-- [从1951开始](https://www.nbcxnk.com/book/2ss0rbm/)
-- [［西幻］RPG就不要谈恋爱了吧！](https://www.nbcxnk.com/book/2ss0rbl/)
-- [八零法医，带全家致富](https://www.nbcxnk.com/book/2ss0rbj/)
-- [漫画取材所引发的修罗场](https://www.nbcxnk.com/book/2ss0rbi/)
-- [我们小区穿末世](https://www.nbcxnk.com/book/2ss0rbh/)
-- [人，今晚土拨鼠站岗](https://www.nbcxnk.com/book/2ss0rbf/)
-- [欲和离？夫君他目不识丁](https://www.nbcxnk.com/book/2ss0rbe/)
-- [星露谷，但日本战国](https://www.nbcxnk.com/book/2ss0rbc/)
-- [国师](https://www.nbcxnk.com/book/2ss0rb5/)
-- [恶毒男配只想躺平](https://www.nbcxnk.com/book/2ss0rb4/)
-- [正是冬雪沸腾时](https://www.nbcxnk.com/book/2ss0rb2/)
-- [专业女配的自我修养（快穿）](https://www.nbcxnk.com/book/2ss0rb1/)
-- [起初，我只是想找个冤大头](https://www.nbcxnk.com/book/2ss0moo/)
-- [上个鬼班[无限]](https://www.nbcxnk.com/book/2ss0khf/)
-- [华夏神明震撼星际](https://www.nbcxnk.com/book/2ss0ehg/)
-- [[足球]足坛人生模拟器](https://www.nbcxnk.com/book/2ss0d8g/)
-- [让暴君Alpha怀崽后](https://www.nbcxnk.com/book/2ss08h6/)
-- [在卷王和废物之间选择做吉祥物](https://www.nbcxnk.com/book/2ss030p/)
-- [从维多利亚时代开始](https://www.nbcxnk.com/book/2srvvqv/)
-- [神豪文男主是我爸](https://www.nbcxnk.com/book/2srvvke/)
-- [我们生活玩家是这样的](https://www.nbcxnk.com/book/2srvvim/)
-- [[足球]拥有分身系统的我靠踢足球建设国家](https://www.nbcxnk.com/book/2srvvf6/)
-- [昭暮](https://www.nbcxnk.com/book/2srvs2p/)
-- [食明](https://www.nbcxnk.com/book/2srvh7o/)
-- [诡话第一boss](https://www.nbcxnk.com/book/2srve0g/)
-- [老实人妻，但顶级魅魔](https://www.nbcxnk.com/book/2srvd2l/)
-- [我骗家里的钱养你啊](https://www.nbcxnk.com/book/2srv830/)
-- [摄政王家的咸鱼夫郎](https://www.nbcxnk.com/book/2srv6fo/)
-- [我与龙傲天寿命共享](https://www.nbcxnk.com/book/2srv5k6/)
-- [[足球]我的游戏存档成真了？！](https://www.nbcxnk.com/book/2srv5g6/)
-- [怀了前任大哥的崽后](https://www.nbcxnk.com/book/2srv4e0/)
-- [死遁的亡夫们都回来了](https://www.nbcxnk.com/book/2srv3q2/)
-- [社畜Beta也能被顶A觊觎吗](https://www.nbcxnk.com/book/2srv2cg/)
-- [如何正确哄睡暴君](https://www.nbcxnk.com/book/2srv1s2/)
-- [让你们无剧本可走（快穿）](https://www.nbcxnk.com/book/2srv1pf/)
-- [阴郁残疾炮灰被万人迷后[快穿]](https://www.nbcxnk.com/book/2srv1kd/)
-- [韩团绿卡不想忍了](https://www.nbcxnk.com/book/2srunac/)
-- [全世界名为爱的恶意](https://www.nbcxnk.com/book/2srulhg/)
-- [娘娘扶摇直上](https://www.nbcxnk.com/book/2sruk3q/)
-- [完蛋！被恨孕男包围了！](https://www.nbcxnk.com/book/2srujbd/)
-- [咦？我爸爸复活啦](https://www.nbcxnk.com/book/2sruj2h/)
-- [假金丝雀深陷修罗场](https://www.nbcxnk.com/book/2sruiv2/)
-- [同时扮演贵族学院F4和平民校花](https://www.nbcxnk.com/book/2sruifi/)
-- [被天使之王骗婚后[诡秘之主]](https://www.nbcxnk.com/book/2sruhra/)
-- [沈助理又在隐藏他的超能力](https://www.nbcxnk.com/book/2srughg/)
-- [死对头又在挑衅我](https://www.nbcxnk.com/book/2srugds/)
-- [开局绑定郭奉孝，谋定三国风云](https://www.nbcxnk.com/book/2srufkg/)
-- [苏娘子汴京摆摊日常（美食）](https://www.nbcxnk.com/book/2srues5/)
-- [路人攻了主角攻［快穿］](https://www.nbcxnk.com/book/2srue2f/)
-- [美貌单出，杀穿港娱［八零］](https://www.nbcxnk.com/book/2srud6d/)
-- [浣熊市蝙蝠崽的哥谭居住指南](https://www.nbcxnk.com/book/2srud4v/)
-- [直男咒术师的限制级游戏](https://www.nbcxnk.com/book/2sru93k/)
-- [如何嫁给当朝首辅](https://www.nbcxnk.com/book/2sru8pt/)
-- [我司艺人永不塌房](https://www.nbcxnk.com/book/2sru6dg/)
-- [多梦你一会儿](https://www.nbcxnk.com/book/2sru57h/)
-- [漂亮女配是万人迷［快穿］](https://www.nbcxnk.com/book/2sru55i/)
-- [我有一座地下城](https://www.nbcxnk.com/book/2sru4f5/)
-- [阴阳师也可以打网球](https://www.nbcxnk.com/book/2sru3ju/)
-- [和治君只是饭搭子的关系](https://www.nbcxnk.com/book/2sru1id/)
-- [在魔法贵族学院当白月光](https://www.nbcxnk.com/book/2srtvjq/)
-- [五条老师与他的封建妻子](https://www.nbcxnk.com/book/2srtv19/)
-- [和贵志君是世界第一的好朋友](https://www.nbcxnk.com/book/2srtusk/)
-- [我187了，你敢见我吗？](https://www.nbcxnk.com/book/2srttvu/)
-- [和姐姐的前女友欢愉后](https://www.nbcxnk.com/book/2srtnig/)
-- [[足球]小小鸟堂堂来袭](https://www.nbcxnk.com/book/2srtmkf/)
-- [朕也要被强制吗？](https://www.nbcxnk.com/book/2srtgtd/)
-- [心动嫌疑人](https://www.nbcxnk.com/book/2srtfal/)
-- [在重生文里考科举](https://www.nbcxnk.com/book/2srtd0v/)
-- [大唐守军家属](https://www.nbcxnk.com/book/2srtcq9/)
-- [死亡悖论[无限流]](https://www.nbcxnk.com/book/2srtb21/)
-- [[崩铁]请给玩家一个准确的血条！](https://www.nbcxnk.com/book/2srtaql/)
-- [让霸刀山庄重回忍界之巅[综剑三]](https://www.nbcxnk.com/book/2srtaj5/)
-- [这个位面归我了！[经营]](https://www.nbcxnk.com/book/2srt9og/)
-- [妻主风流（女尊）](https://www.nbcxnk.com/book/2srt79o/)
-- [[综英美]和亲友群穿哥谭以后](https://www.nbcxnk.com/book/2srt5uf/)
-- [带清冷女主回乡养螃蟹[种田]](https://www.nbcxnk.com/book/2srt5la/)
-- [清冷丞相怀了死对头的崽](https://www.nbcxnk.com/book/2srt4kv/)
-- [逃出金丝笼，我力挽山河开国称帝](https://www.nbcxnk.com/book/2srt3tu/)
-- [和山神搭伙开农场的日子](https://www.nbcxnk.com/book/2srt20n/)
-- [被糟蹋的老实人决定反击](https://www.nbcxnk.com/book/2srt1qv/)
-- [村霸非要入赘受气包](https://www.nbcxnk.com/book/2srt1cj/)
-- [假意逢承](https://www.nbcxnk.com/book/2srt0gc/)
-- [恶犬攻绑定上司的乖狗系统](https://www.nbcxnk.com/book/2srsqkf/)
-- [权宋一只统](https://www.nbcxnk.com/book/2srsp0a/)
-- [爱好和平但狂拆机甲](https://www.nbcxnk.com/book/2srsjrv/)
-- [你让魔王组建勇者小队？](https://www.nbcxnk.com/book/2srshq4/)
-- [日化人生[科研]](https://www.nbcxnk.com/book/2srrkvi/)
-- [在民俗惊悚片被诸神庇护](https://www.nbcxnk.com/book/2srrkt8/)
-- [十九世纪贵族厨房（美食）](https://www.nbcxnk.com/book/2srrkjc/)
-- [假少爷离开后](https://www.nbcxnk.com/book/2srrkim/)
-- [清澈女大的六零年代](https://www.nbcxnk.com/book/2srrkd5/)
-- [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.nbcxnk.com/book/2srrk55/)
-- [始乱终弃清冷首辅后](https://www.nbcxnk.com/book/2srrk48/)
-- [六零之成了卷王的妹妹](https://www.nbcxnk.com/book/2srrk3o/)
-- [海岛求生：生活玩家种田囤货](https://www.nbcxnk.com/book/2srrk0v/)
-- [大瑛弟国](https://www.nbcxnk.com/book/2srrjui/)
-- [老公对不起](https://www.nbcxnk.com/book/2srrjti/)
-- [星际团宠小人鱼](https://www.nbcxnk.com/book/2srrjt3/)
-- [原配夫人](https://www.nbcxnk.com/book/2srrjqt/)
-- [趁她之危](https://www.nbcxnk.com/book/2srrjik/)
-- [全民求生:从小木屋到魔法农场](https://www.nbcxnk.com/book/2srrjcg/)
-- [高调装神，猥琐发育](https://www.nbcxnk.com/book/2srrj6v/)
-- [95美国贵族高中模拟](https://www.nbcxnk.com/book/2srriuu/)
-- [卷王后妈，八零养娃](https://www.nbcxnk.com/book/2srrirn/)
-- [我是唯一地上神国](https://www.nbcxnk.com/book/2srrila/)
-- [[娱乐圈]过分美丽的她](https://www.nbcxnk.com/book/2srriko/)
-- [五十年代港城日常](https://www.nbcxnk.com/book/2srrijp/)
-- [[封神]圣人生欲](https://www.nbcxnk.com/book/2srri6c/)
-- [高门小婢](https://www.nbcxnk.com/book/2srri0b/)
-- [成为养成系练习生后](https://www.nbcxnk.com/book/2srrhus/)
-- [巨物致富：回乡开钓场](https://www.nbcxnk.com/book/2srrhrr/)
-- [我有一座安全城](https://www.nbcxnk.com/book/2srrho8/)
+- 恐游作精女配求生指南 https://www.nbcxnk.com/book/2ss0rg1/
+- 国运求生：我的金手指是生命树 https://www.nbcxnk.com/book/2ss0rfv/
+- SSS级异种都是我前任 https://www.nbcxnk.com/book/2ss0rft/
+- 谁都不爱的和亲公主 https://www.nbcxnk.com/book/2ss0rfs/
+- 失忆后和死对头有了崽 https://www.nbcxnk.com/book/2ss0rfr/
+- [足球]雏鸟 https://www.nbcxnk.com/book/2ss0rfq/
+- 占有欲Daddy是我老公？ https://www.nbcxnk.com/book/2ss0rfo/
+- 死遁APP https://www.nbcxnk.com/book/2ss0rfn/
+- 烈火焚身[巴黎圣母院] https://www.nbcxnk.com/book/2ss0rff/
+- 魔尊闭关十年连生十一子？！ https://www.nbcxnk.com/book/2ss0rf6/
+- 强取师尊后 https://www.nbcxnk.com/book/2ss0rf1/
+- 穿为龙傲天发妻后 https://www.nbcxnk.com/book/2ss0rev/
+- 恐游里的邻居们[万人迷] https://www.nbcxnk.com/book/2ss0ret/
+- 魔改剧本后我爆火了[娱乐圈] https://www.nbcxnk.com/book/2ss0res/
+- 全民求生，但剑三 https://www.nbcxnk.com/book/2ss0req/
+- 我只想上京赶考啊[聊斋] https://www.nbcxnk.com/book/2ss0re9/
+- 病美人重生日记 https://www.nbcxnk.com/book/2ss0re5/
+- [洪荒]成为太清妹妹后 https://www.nbcxnk.com/book/2ss0re4/
+- 仙尊心尖宠，但被魔尊抢了 https://www.nbcxnk.com/book/2ss0re3/
+- 魔法种田，从退队经营农场开始 https://www.nbcxnk.com/book/2ss0re2/
+- 康熙宠妃日常 https://www.nbcxnk.com/book/2ss0re0/
+- 禁止继承限制级雌君 https://www.nbcxnk.com/book/2ss0rdp/
+- 魔咒请说普通话[西幻] https://www.nbcxnk.com/book/2ss0rdm/
+- 双生子反派的端水抑郁妈[九零] https://www.nbcxnk.com/book/2ss0rdl/
+- 清穿女回来后[天幕] https://www.nbcxnk.com/book/2ss0rdi/
+- 等我吃腻了再倒闭可以吗 https://www.nbcxnk.com/book/2ss0rdh/
+- [全职高手]治疗什么的不干了！ https://www.nbcxnk.com/book/2ss0rdg/
+- 谁说踢球就不能成为名侦探[足球] https://www.nbcxnk.com/book/2ss0rdf/
+- 暗恋的价格是三万块 https://www.nbcxnk.com/book/2ss0rdd/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.nbcxnk.com/book/2ss0rdc/
+- 炮灰的海外亲戚回国啦！ https://www.nbcxnk.com/book/2ss0rda/
+- [综英美]哥谭市民，在线抽卡 https://www.nbcxnk.com/book/2ss0rd8/
+- 二次分化后他怀了死对头的崽 https://www.nbcxnk.com/book/2ss0rd7/
+- 夫人每天都在伪装 https://www.nbcxnk.com/book/2ss0rd4/
+- 万人嫌从末世回来了 https://www.nbcxnk.com/book/2ss0rd2/
+- 热恋过期需重追 https://www.nbcxnk.com/book/2ss0rcr/
+- [原神]魔法使恋爱指南 https://www.nbcxnk.com/book/2ss0rcq/
+- 好心的俄罗斯人 https://www.nbcxnk.com/book/2ss0rcp/
+- 乖乖女的杂货铺[八零] https://www.nbcxnk.com/book/2ss0rco/
+- 怨明月不独照 https://www.nbcxnk.com/book/2ss0rcl/
+- 前妻她肯定会后悔 https://www.nbcxnk.com/book/2ss0rck/
+- 欲加之罪 https://www.nbcxnk.com/book/2ss0rce/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.nbcxnk.com/book/2ss0rcc/
+- 在年代文里跑运输 https://www.nbcxnk.com/book/2ss0rc7/
+- 爱情的肯定句 https://www.nbcxnk.com/book/2ss0rc6/
+- 穿咒术，但杀猴现场 https://www.nbcxnk.com/book/2ss0rc4/
+- 世界伏于她刀下[无限] https://www.nbcxnk.com/book/2ss0rc3/
+- 末世八年春，游戏降临 https://www.nbcxnk.com/book/2ss0rc0/
+- 在中世纪做奴隶 https://www.nbcxnk.com/book/2ss0rbt/
+- 从1951开始 https://www.nbcxnk.com/book/2ss0rbm/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.nbcxnk.com/book/2ss0rbl/
+- 八零法医，带全家致富 https://www.nbcxnk.com/book/2ss0rbj/
+- 漫画取材所引发的修罗场 https://www.nbcxnk.com/book/2ss0rbi/
+- 我们小区穿末世 https://www.nbcxnk.com/book/2ss0rbh/
+- 人，今晚土拨鼠站岗 https://www.nbcxnk.com/book/2ss0rbf/
+- 欲和离？夫君他目不识丁 https://www.nbcxnk.com/book/2ss0rbe/
+- 星露谷，但日本战国 https://www.nbcxnk.com/book/2ss0rbc/
+- 国师 https://www.nbcxnk.com/book/2ss0rb5/
+- 恶毒男配只想躺平 https://www.nbcxnk.com/book/2ss0rb4/
+- 正是冬雪沸腾时 https://www.nbcxnk.com/book/2ss0rb2/
+- 专业女配的自我修养（快穿） https://www.nbcxnk.com/book/2ss0rb1/
+- 天幕今天也在直播我搞基建 https://www.nbcxnk.com/book/2ss0mr2/
+- 起初，我只是想找个冤大头 https://www.nbcxnk.com/book/2ss0moo/
+- 上个鬼班[无限] https://www.nbcxnk.com/book/2ss0khf/
+- 仙门透明人被迫万人迷 https://www.nbcxnk.com/book/2ss0iil/
+- [足球]足坛人生模拟器 https://www.nbcxnk.com/book/2ss0d8g/
+- 九零重组小家庭 https://www.nbcxnk.com/book/2ss0bd1/
+- 让暴君Alpha怀崽后 https://www.nbcxnk.com/book/2ss08h6/
+- 在卷王和废物之间选择做吉祥物 https://www.nbcxnk.com/book/2ss030p/
+- 从维多利亚时代开始 https://www.nbcxnk.com/book/2srvvqv/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.nbcxnk.com/book/2srvvf6/
+- 昭暮 https://www.nbcxnk.com/book/2srvs2p/
+- 食明 https://www.nbcxnk.com/book/2srvh7o/
+- 诡话第一boss https://www.nbcxnk.com/book/2srve0g/
+- 老实人妻，但顶级魅魔 https://www.nbcxnk.com/book/2srvd2l/
+- 我骗家里的钱养你啊 https://www.nbcxnk.com/book/2srv830/
+- 摄政王家的咸鱼夫郎 https://www.nbcxnk.com/book/2srv6fo/
+- 我与龙傲天寿命共享 https://www.nbcxnk.com/book/2srv5k6/
+- [足球]我的游戏存档成真了？！ https://www.nbcxnk.com/book/2srv5g6/
+- 死遁的亡夫们都回来了 https://www.nbcxnk.com/book/2srv3q2/
+- 如何正确哄睡暴君 https://www.nbcxnk.com/book/2srv1s2/
+- 让你们无剧本可走（快穿） https://www.nbcxnk.com/book/2srv1pf/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.nbcxnk.com/book/2srv1kd/
+- 韩团绿卡不想忍了 https://www.nbcxnk.com/book/2srunac/
+- 全世界名为爱的恶意 https://www.nbcxnk.com/book/2srulhg/
+- 娘娘扶摇直上 https://www.nbcxnk.com/book/2sruk3q/
+- 完蛋！被恨孕男包围了！ https://www.nbcxnk.com/book/2srujbd/
+- 咦？我爸爸复活啦 https://www.nbcxnk.com/book/2sruj2h/
+- 同时扮演贵族学院F4和平民校花 https://www.nbcxnk.com/book/2sruifi/
+- 被天使之王骗婚后[诡秘之主] https://www.nbcxnk.com/book/2sruhra/
+- 沈助理又在隐藏他的超能力 https://www.nbcxnk.com/book/2srughg/
+- 死对头又在挑衅我 https://www.nbcxnk.com/book/2srugds/
+- 开局绑定郭奉孝，谋定三国风云 https://www.nbcxnk.com/book/2srufkg/
+- 苏娘子汴京摆摊日常（美食） https://www.nbcxnk.com/book/2srues5/
+- 路人攻了主角攻［快穿］ https://www.nbcxnk.com/book/2srue2f/
+- 从童星开始杀穿港娱 https://www.nbcxnk.com/book/2srud6d/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.nbcxnk.com/book/2srud4v/
+- 直男咒术师的限制级游戏 https://www.nbcxnk.com/book/2sru93k/
+- 如何嫁给当朝首辅 https://www.nbcxnk.com/book/2sru8pt/
+- 多梦你一会儿 https://www.nbcxnk.com/book/2sru57h/
+- 漂亮女配是万人迷［快穿］ https://www.nbcxnk.com/book/2sru55i/
+- 我有一座地下城 https://www.nbcxnk.com/book/2sru4f5/
+- 阴阳师也可以打网球 https://www.nbcxnk.com/book/2sru3ju/
+- 和治君只是饭搭子的关系 https://www.nbcxnk.com/book/2sru1id/
+- 在魔法贵族学院当白月光 https://www.nbcxnk.com/book/2srtvjq/
+- 五条老师与他的封建妻子 https://www.nbcxnk.com/book/2srtv19/
+- 和贵志君是世界第一的好朋友 https://www.nbcxnk.com/book/2srtusk/
+- 我187了，你敢见我吗？ https://www.nbcxnk.com/book/2srttvu/
+- 和姐姐的前女友欢愉后 https://www.nbcxnk.com/book/2srtnig/
+- [足球]小小鸟堂堂来袭 https://www.nbcxnk.com/book/2srtmkf/
+- 朕也要被强制吗？ https://www.nbcxnk.com/book/2srtgtd/
+- 心动嫌疑人 https://www.nbcxnk.com/book/2srtfal/
+- 在重生文里考科举 https://www.nbcxnk.com/book/2srtd0v/
+- 大唐守军家属 https://www.nbcxnk.com/book/2srtcq9/
+- 死亡悖论[无限流] https://www.nbcxnk.com/book/2srtb21/
+- [崩铁]请给玩家一个准确的血条！ https://www.nbcxnk.com/book/2srtaql/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.nbcxnk.com/book/2srtaj5/
+- 这个位面归我了！[经营] https://www.nbcxnk.com/book/2srt9og/
+- 妻主风流（女尊） https://www.nbcxnk.com/book/2srt79o/
+- [综英美]和亲友群穿哥谭以后 https://www.nbcxnk.com/book/2srt5uf/
+- 带清冷女主回乡养螃蟹[种田] https://www.nbcxnk.com/book/2srt5la/
+- 清冷丞相怀了死对头的崽 https://www.nbcxnk.com/book/2srt4kv/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.nbcxnk.com/book/2srt3tu/
+- 和山神搭伙开农场的日子 https://www.nbcxnk.com/book/2srt20n/
+- 被糟蹋的老实人决定反击 https://www.nbcxnk.com/book/2srt1qv/
+- 村霸非要入赘受气包 https://www.nbcxnk.com/book/2srt1cj/
+- 假意逢承 https://www.nbcxnk.com/book/2srt0gc/
+- 恶犬攻绑定上司的乖狗系统 https://www.nbcxnk.com/book/2srsqkf/
+- 权宋一只统 https://www.nbcxnk.com/book/2srsp0a/
+- 爱好和平但狂拆机甲 https://www.nbcxnk.com/book/2srsjrv/
+- 你让魔王组建勇者小队？ https://www.nbcxnk.com/book/2srshq4/
+- 日化人生[科研] https://www.nbcxnk.com/book/2srrkvi/
+- 在民俗惊悚片被诸神庇护 https://www.nbcxnk.com/book/2srrkt8/
+- 十九世纪贵族厨房（美食） https://www.nbcxnk.com/book/2srrkjc/
+- 清澈女大的六零年代 https://www.nbcxnk.com/book/2srrkd5/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.nbcxnk.com/book/2srrk55/
+- 始乱终弃清冷首辅后 https://www.nbcxnk.com/book/2srrk48/
+- 六零之成了卷王的妹妹 https://www.nbcxnk.com/book/2srrk3o/
+- 海岛求生：生活玩家种田囤货 https://www.nbcxnk.com/book/2srrk0v/
+- 大瑛弟国 https://www.nbcxnk.com/book/2srrjui/
+- 老公对不起 https://www.nbcxnk.com/book/2srrjti/
+- 星际团宠小人鱼 https://www.nbcxnk.com/book/2srrjt3/
+- 原配夫人 https://www.nbcxnk.com/book/2srrjqt/
+- 趁她之危 https://www.nbcxnk.com/book/2srrjik/
+- 全民求生:从小木屋到魔法农场 https://www.nbcxnk.com/book/2srrjcg/
+- 高调装神，猥琐发育 https://www.nbcxnk.com/book/2srrj6v/
+- 95美国贵族高中模拟 https://www.nbcxnk.com/book/2srriuu/
+- 卷王后妈，八零养娃 https://www.nbcxnk.com/book/2srrirn/
+- 我是唯一地上神国 https://www.nbcxnk.com/book/2srrila/
+- [娱乐圈]过分美丽的她 https://www.nbcxnk.com/book/2srriko/
+- 五十年代港城日常 https://www.nbcxnk.com/book/2srrijp/
+- 寡妇美人模拟器 https://www.nbcxnk.com/book/2srrijh/
+- [封神]圣人生欲 https://www.nbcxnk.com/book/2srri6c/
+- 成为养成系练习生后 https://www.nbcxnk.com/book/2srrhus/
+- 巨物致富：回乡开钓场 https://www.nbcxnk.com/book/2srrhrr/
+- 我有一座安全城 https://www.nbcxnk.com/book/2srrho8/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1385/index.md)

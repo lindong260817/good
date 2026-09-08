@@ -1,175 +1,167 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-09-07 03:24:58
+更新时间：2026-09-08 03:25:53
 
-忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。
-
-- [忆想小说网](https://www.bianlishihao.com/)
+忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。 https://www.bianlishihao.com
 
 ## 最新小说
-- [和八个男人在极寒游戏求生](https://www.bianlishihao.com/book/2vr7aoh/)
-- [我只想上京赶考啊[聊斋]](https://www.bianlishihao.com/book/2vr7aog/)
-- [我们小区穿末世](https://www.bianlishihao.com/book/2vr7aof/)
-- [在中世纪做奴隶](https://www.bianlishihao.com/book/2vr7aoe/)
-- [死遁APP](https://www.bianlishihao.com/book/2vr7aod/)
-- [魔尊闭关十年连生十一子？！](https://www.bianlishihao.com/book/2vr7aoc/)
-- [暗恋的价格是三万块](https://www.bianlishihao.com/book/2vr7aob/)
-- [爱情的肯定句](https://www.bianlishihao.com/book/2vr7aoa/)
-- [穿为龙傲天发妻后](https://www.bianlishihao.com/book/2vr7ao9/)
-- [全世界名为爱的恶意](https://www.bianlishihao.com/book/2vr7ao8/)
-- [我骗家里的钱养你啊](https://www.bianlishihao.com/book/2vr7ao7/)
-- [漫画取材所引发的修罗场](https://www.bianlishihao.com/book/2vr7ao6/)
-- [欲和离？夫君他目不识丁](https://www.bianlishihao.com/book/2vr7ao5/)
-- [失忆后和死对头有了崽](https://www.bianlishihao.com/book/2vr7ao4/)
-- [禁止继承限制级雌君](https://www.bianlishihao.com/book/2vr7ao3/)
-- [夫人每天都在伪装](https://www.bianlishihao.com/book/2vr7ao2/)
-- [欲加之罪](https://www.bianlishihao.com/book/2vr7ao1/)
-- [阴郁残疾炮灰被万人迷后[快穿]](https://www.bianlishihao.com/book/2vr7ao0/)
-- [八零法医，带全家致富](https://www.bianlishihao.com/book/2vr7anv/)
-- [[综英美]哥谭市民，在线抽卡](https://www.bianlishihao.com/book/2vr7anu/)
-- [占有欲Daddy是我老公？](https://www.bianlishihao.com/book/2vr7ant/)
-- [恶毒男配只想躺平](https://www.bianlishihao.com/book/2vr7ans/)
-- [[崩铁]请给玩家一个准确的血条！](https://www.bianlishihao.com/book/2vr7anr/)
-- [[原神]魔法使恋爱指南](https://www.bianlishihao.com/book/2vr7anq/)
-- [末世八年春，游戏降临](https://www.bianlishihao.com/book/2vr7anp/)
-- [恐游作精女配求生指南](https://www.bianlishihao.com/book/2vr7ano/)
-- [如何正确哄睡暴君](https://www.bianlishihao.com/book/2vr7ann/)
-- [病美人重生日记](https://www.bianlishihao.com/book/2vr7anm/)
-- [大佬的漂亮老婆回来带崽了[八零]](https://www.bianlishihao.com/book/2vr7anl/)
-- [[足球]小小鸟堂堂来袭](https://www.bianlishihao.com/book/2vr7ank/)
-- [和治君只是饭搭子的关系](https://www.bianlishihao.com/book/2vr7anj/)
-- [[全职高手]治疗什么的不干了！](https://www.bianlishihao.com/book/2vr7anh/)
-- [咦？我爸爸复活啦](https://www.bianlishihao.com/book/2vr7ang/)
-- [谁都不爱的和亲公主](https://www.bianlishihao.com/book/2vr7anf/)
-- [世界伏于她刀下[无限]](https://www.bianlishihao.com/book/2vr7ane/)
-- [全民求生，但剑三](https://www.bianlishihao.com/book/2vr7and/)
-- [[足球]雏鸟](https://www.bianlishihao.com/book/2vr7anc/)
-- [国运求生：我的金手指是生命树](https://www.bianlishihao.com/book/2vr7anb/)
-- [乖乖女的杂货铺[八零]](https://www.bianlishihao.com/book/2vr7ana/)
-- [SSS级异种都是我前任](https://www.bianlishihao.com/book/2vr7an9/)
-- [穿咒术，但杀猴现场](https://www.bianlishihao.com/book/2vr7an8/)
-- [［西幻］RPG就不要谈恋爱了吧！](https://www.bianlishihao.com/book/2vr7an7/)
-- [炮灰的海外亲戚回国啦！](https://www.bianlishihao.com/book/2vr7an6/)
-- [［综英美］蝙蝠崽？我不是啊！](https://www.bianlishihao.com/book/2vr7an5/)
-- [双生子反派的端水抑郁妈[九零]](https://www.bianlishihao.com/book/2vr7an4/)
-- [魔法种田，从退队经营农场开始](https://www.bianlishihao.com/book/2vr7an3/)
-- [好心的俄罗斯人](https://www.bianlishihao.com/book/2vr7an2/)
-- [清穿女回来后[天幕]](https://www.bianlishihao.com/book/2vr7an1/)
-- [[洪荒]成为太清妹妹后](https://www.bianlishihao.com/book/2vr7an0/)
-- [前妻她肯定会后悔](https://www.bianlishihao.com/book/2vr7amv/)
-- [谁说踢球就不能成为名侦探[足球]](https://www.bianlishihao.com/book/2vr7amu/)
-- [热恋过期需重追](https://www.bianlishihao.com/book/2vr7amt/)
-- [[综英美]和亲友群穿哥谭以后](https://www.bianlishihao.com/book/2vr7ams/)
-- [二次分化后他怀了死对头的崽](https://www.bianlishihao.com/book/2vr7amr/)
-- [怨明月不独照](https://www.bianlishihao.com/book/2vr7amq/)
-- [万人嫌从末世回来了](https://www.bianlishihao.com/book/2vr7amp/)
-- [在年代文里跑运输](https://www.bianlishihao.com/book/2vr7amo/)
-- [正是冬雪沸腾时](https://www.bianlishihao.com/book/2vr7amn/)
-- [娘娘扶摇直上](https://www.bianlishihao.com/book/2vr7amm/)
-- [国师](https://www.bianlishihao.com/book/2vr7aml/)
-- [仙尊心尖宠，但被魔尊抢了](https://www.bianlishihao.com/book/2vr7amk/)
-- [魔咒请说普通话[西幻]](https://www.bianlishihao.com/book/2vr7amj/)
-- [等我吃腻了再倒闭可以吗](https://www.bianlishihao.com/book/2vr7ami/)
-- [烈火焚身[巴黎圣母院]](https://www.bianlishihao.com/book/2vr7amh/)
-- [恐游里的邻居们[万人迷]](https://www.bianlishihao.com/book/2vr7amg/)
-- [人，今晚土拨鼠站岗](https://www.bianlishihao.com/book/2vr7ame/)
-- [强取师尊后](https://www.bianlishihao.com/book/2vr7amd/)
-- [康熙宠妃日常](https://www.bianlishihao.com/book/2vr7amc/)
-- [同时扮演贵族学院F4和平民校花](https://www.bianlishihao.com/book/2vr7amb/)
-- [你让魔王组建勇者小队？](https://www.bianlishihao.com/book/2vr7ama/)
-- [从1951开始](https://www.bianlishihao.com/book/2vr7am9/)
-- [星露谷，但日本战国](https://www.bianlishihao.com/book/2vr7am8/)
-- [魔改剧本后我爆火了[娱乐圈]](https://www.bianlishihao.com/book/2vr7am7/)
-- [我们生活玩家是这样的](https://www.bianlishihao.com/book/2vr7ali/)
-- [我司艺人永不塌房](https://www.bianlishihao.com/book/2vr7al0/)
-- [原配夫人](https://www.bianlishihao.com/book/2vr7agk/)
-- [始乱终弃清冷首辅后](https://www.bianlishihao.com/book/2vr7agi/)
-- [[封神]圣人生欲](https://www.bianlishihao.com/book/2vr7afq/)
-- [星际团宠小人鱼](https://www.bianlishihao.com/book/2vr7afa/)
-- [高调装神，猥琐发育](https://www.bianlishihao.com/book/2vr7adk/)
-- [十九世纪贵族厨房（美食）](https://www.bianlishihao.com/book/2vr7acp/)
-- [假少爷离开后](https://www.bianlishihao.com/book/2vr7ab9/)
-- [浣熊市蝙蝠崽的哥谭居住指南](https://www.bianlishihao.com/book/2vr7aag/)
-- [直男咒术师的限制级游戏](https://www.bianlishihao.com/book/2vr7a9e/)
-- [六零之成了卷王的妹妹](https://www.bianlishihao.com/book/2vr791i/)
-- [路人攻了主角攻［快穿］](https://www.bianlishihao.com/book/2vr790a/)
-- [昭暮](https://www.bianlishihao.com/book/2vr6vdd/)
-- [[足球]拥有分身系统的我靠踢足球建设国家](https://www.bianlishihao.com/book/2vr6jbu/)
-- [老公对不起](https://www.bianlishihao.com/book/2vr5smf/)
-- [上个鬼班[无限]](https://www.bianlishihao.com/book/2vr5ob4/)
-- [[足球]足坛人生模拟器](https://www.bianlishihao.com/book/2vr5ik5/)
-- [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.bianlishihao.com/book/2vr5cg5/)
-- [在卷王和废物之间选择做吉祥物](https://www.bianlishihao.com/book/2vr56st/)
-- [从维多利亚时代开始](https://www.bianlishihao.com/book/2vr502m/)
-- [如何嫁给当朝首辅](https://www.bianlishihao.com/book/2vr4idk/)
-- [神豪文男主是我爸](https://www.bianlishihao.com/book/2vr4i8t/)
-- [食明](https://www.bianlishihao.com/book/2vr4guq/)
-- [诡话第一boss](https://www.bianlishihao.com/book/2vr4drg/)
-- [让暴君Alpha怀崽后](https://www.bianlishihao.com/book/2vr47bn/)
-- [老实人妻，但顶级魅魔](https://www.bianlishihao.com/book/2vr45mo/)
-- [日化人生[科研]](https://www.bianlishihao.com/book/2vr45b4/)
-- [专业女配的自我修养（快穿）](https://www.bianlishihao.com/book/2vr4544/)
-- [巨物致富：回乡开钓场](https://www.bianlishihao.com/book/2vr42ci/)
-- [[足球]我的游戏存档成真了？！](https://www.bianlishihao.com/book/2vr40ak/)
-- [让你们无剧本可走（快穿）](https://www.bianlishihao.com/book/2vr3va3/)
-- [社畜Beta也能被顶A觊觎吗](https://www.bianlishihao.com/book/2vr3t2n/)
-- [趁她之危](https://www.bianlishihao.com/book/2vr3s1u/)
-- [起初，我只是想找个冤大头](https://www.bianlishihao.com/book/2vr3qmr/)
-- [摄政王家的咸鱼夫郎](https://www.bianlishihao.com/book/2vr3oar/)
-- [死遁的亡夫们都回来了](https://www.bianlishihao.com/book/9ipbvl/)
-- [怀了前任大哥的崽后](https://www.bianlishihao.com/book/9ip8cr/)
-- [沈助理又在隐藏他的超能力](https://www.bianlishihao.com/book/9ip7lo/)
-- [美貌单出，杀穿港娱［八零］](https://www.bianlishihao.com/book/9ip3ij/)
-- [死对头又在挑衅我](https://www.bianlishihao.com/book/9ip2f5/)
-- [假金丝雀深陷修罗场](https://www.bianlishihao.com/book/9ip202/)
-- [成为养成系练习生后](https://www.bianlishihao.com/book/9ip1nk/)
-- [被天使之王骗婚后[诡秘之主]](https://www.bianlishihao.com/book/9ip0sl/)
-- [我有一座地下城](https://www.bianlishihao.com/book/9iovc4/)
-- [漂亮女配是万人迷［快穿］](https://www.bianlishihao.com/book/9ioumn/)
-- [和贵志君是世界第一的好朋友](https://www.bianlishihao.com/book/9iojd3/)
-- [我187了，你敢见我吗？](https://www.bianlishihao.com/book/9ioitl/)
-- [五条老师与他的封建妻子](https://www.bianlishihao.com/book/9ioihv/)
-- [阴阳师也可以打网球](https://www.bianlishihao.com/book/9ioi1r/)
-- [和姐姐的前女友欢愉后](https://www.bianlishihao.com/book/9ioi0r/)
-- [我与龙傲天寿命共享](https://www.bianlishihao.com/book/9iodsv/)
-- [大唐守军家属](https://www.bianlishihao.com/book/9io9gd/)
-- [在重生文里考科举](https://www.bianlishihao.com/book/9io96t/)
-- [朕也要被强制吗？](https://www.bianlishihao.com/book/9io7eg/)
-- [妻主风流（女尊）](https://www.bianlishihao.com/book/9io6cr/)
-- [多梦你一会儿](https://www.bianlishihao.com/book/9io0i1/)
-- [逃出金丝笼，我力挽山河开国称帝](https://www.bianlishihao.com/book/9inuje/)
-- [被糟蹋的老实人决定反击](https://www.bianlishihao.com/book/9intke/)
-- [韩团绿卡不想忍了](https://www.bianlishihao.com/book/9intg4/)
-- [这个位面归我了！[经营]](https://www.bianlishihao.com/book/9inqf9/)
-- [让霸刀山庄重回忍界之巅[综剑三]](https://www.bianlishihao.com/book/9inouc/)
-- [村霸非要入赘受气包](https://www.bianlishihao.com/book/9inolf/)
-- [清冷丞相怀了死对头的崽](https://www.bianlishihao.com/book/9inojh/)
-- [卷王后妈，八零养娃](https://www.bianlishihao.com/book/9inns2/)
-- [心动嫌疑人](https://www.bianlishihao.com/book/9inmkv/)
-- [和山神搭伙开农场的日子](https://www.bianlishihao.com/book/9inlhg/)
-- [恶犬攻绑定上司的乖狗系统](https://www.bianlishihao.com/book/9inkip/)
-- [假意逢承](https://www.bianlishihao.com/book/9ink57/)
-- [在民俗惊悚片被诸神庇护](https://www.bianlishihao.com/book/9ink1h/)
-- [权宋一只统](https://www.bianlishihao.com/book/9inhq6/)
-- [死亡悖论[无限流]](https://www.bianlishihao.com/book/9inh52/)
-- [带清冷女主回乡养螃蟹[种田]](https://www.bianlishihao.com/book/9infgv/)
-- [爱好和平但狂拆机甲](https://www.bianlishihao.com/book/9ine1a/)
-- [全民求生:从小木屋到魔法农场](https://www.bianlishihao.com/book/ulhcl/)
-- [苏娘子汴京摆摊日常（美食）](https://www.bianlishihao.com/book/ulh8u/)
-- [清澈女大的六零年代](https://www.bianlishihao.com/book/ulgse/)
-- [在魔法贵族学院当白月光](https://www.bianlishihao.com/book/ulglv/)
-- [华夏神明震撼星际](https://www.bianlishihao.com/book/ulgls/)
-- [开局绑定郭奉孝，谋定三国风云](https://www.bianlishihao.com/book/ulgg6/)
-- [海岛求生：生活玩家种田囤货](https://www.bianlishihao.com/book/ulgfv/)
-- [[娱乐圈]过分美丽的她](https://www.bianlishihao.com/book/ulgb1/)
-- [完蛋！被恨孕男包围了！](https://www.bianlishihao.com/book/ulg2q/)
-- [我有一座安全城](https://www.bianlishihao.com/book/ulfr1/)
-- [高门小婢](https://www.bianlishihao.com/book/ulfk5/)
-- [95美国贵族高中模拟](https://www.bianlishihao.com/book/ulfhh/)
-- [我是唯一地上神国](https://www.bianlishihao.com/book/ulff4/)
-- [大瑛弟国](https://www.bianlishihao.com/book/3252s/)
-- [五十年代港城日常](https://www.bianlishihao.com/book/324t4/)
+- 我只想上京赶考啊[聊斋] https://www.bianlishihao.com/book/2vr7aog/
+- 我们小区穿末世 https://www.bianlishihao.com/book/2vr7aof/
+- 在中世纪做奴隶 https://www.bianlishihao.com/book/2vr7aoe/
+- 死遁APP https://www.bianlishihao.com/book/2vr7aod/
+- 魔尊闭关十年连生十一子？！ https://www.bianlishihao.com/book/2vr7aoc/
+- 暗恋的价格是三万块 https://www.bianlishihao.com/book/2vr7aob/
+- 爱情的肯定句 https://www.bianlishihao.com/book/2vr7aoa/
+- 穿为龙傲天发妻后 https://www.bianlishihao.com/book/2vr7ao9/
+- 全世界名为爱的恶意 https://www.bianlishihao.com/book/2vr7ao8/
+- 我骗家里的钱养你啊 https://www.bianlishihao.com/book/2vr7ao7/
+- 漫画取材所引发的修罗场 https://www.bianlishihao.com/book/2vr7ao6/
+- 欲和离？夫君他目不识丁 https://www.bianlishihao.com/book/2vr7ao5/
+- 失忆后和死对头有了崽 https://www.bianlishihao.com/book/2vr7ao4/
+- 禁止继承限制级雌君 https://www.bianlishihao.com/book/2vr7ao3/
+- 夫人每天都在伪装 https://www.bianlishihao.com/book/2vr7ao2/
+- 欲加之罪 https://www.bianlishihao.com/book/2vr7ao1/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.bianlishihao.com/book/2vr7ao0/
+- 八零法医，带全家致富 https://www.bianlishihao.com/book/2vr7anv/
+- [综英美]哥谭市民，在线抽卡 https://www.bianlishihao.com/book/2vr7anu/
+- 占有欲Daddy是我老公？ https://www.bianlishihao.com/book/2vr7ant/
+- 恶毒男配只想躺平 https://www.bianlishihao.com/book/2vr7ans/
+- [崩铁]请给玩家一个准确的血条！ https://www.bianlishihao.com/book/2vr7anr/
+- [原神]魔法使恋爱指南 https://www.bianlishihao.com/book/2vr7anq/
+- 末世八年春，游戏降临 https://www.bianlishihao.com/book/2vr7anp/
+- 恐游作精女配求生指南 https://www.bianlishihao.com/book/2vr7ano/
+- 如何正确哄睡暴君 https://www.bianlishihao.com/book/2vr7ann/
+- 病美人重生日记 https://www.bianlishihao.com/book/2vr7anm/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.bianlishihao.com/book/2vr7anl/
+- [足球]小小鸟堂堂来袭 https://www.bianlishihao.com/book/2vr7ank/
+- 和治君只是饭搭子的关系 https://www.bianlishihao.com/book/2vr7anj/
+- [全职高手]治疗什么的不干了！ https://www.bianlishihao.com/book/2vr7anh/
+- 咦？我爸爸复活啦 https://www.bianlishihao.com/book/2vr7ang/
+- 谁都不爱的和亲公主 https://www.bianlishihao.com/book/2vr7anf/
+- 世界伏于她刀下[无限] https://www.bianlishihao.com/book/2vr7ane/
+- 全民求生，但剑三 https://www.bianlishihao.com/book/2vr7and/
+- [足球]雏鸟 https://www.bianlishihao.com/book/2vr7anc/
+- 国运求生：我的金手指是生命树 https://www.bianlishihao.com/book/2vr7anb/
+- 乖乖女的杂货铺[八零] https://www.bianlishihao.com/book/2vr7ana/
+- SSS级异种都是我前任 https://www.bianlishihao.com/book/2vr7an9/
+- 穿咒术，但杀猴现场 https://www.bianlishihao.com/book/2vr7an8/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.bianlishihao.com/book/2vr7an7/
+- 炮灰的海外亲戚回国啦！ https://www.bianlishihao.com/book/2vr7an6/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.bianlishihao.com/book/2vr7an5/
+- 双生子反派的端水抑郁妈[九零] https://www.bianlishihao.com/book/2vr7an4/
+- 魔法种田，从退队经营农场开始 https://www.bianlishihao.com/book/2vr7an3/
+- 好心的俄罗斯人 https://www.bianlishihao.com/book/2vr7an2/
+- 清穿女回来后[天幕] https://www.bianlishihao.com/book/2vr7an1/
+- [洪荒]成为太清妹妹后 https://www.bianlishihao.com/book/2vr7an0/
+- 前妻她肯定会后悔 https://www.bianlishihao.com/book/2vr7amv/
+- 谁说踢球就不能成为名侦探[足球] https://www.bianlishihao.com/book/2vr7amu/
+- 热恋过期需重追 https://www.bianlishihao.com/book/2vr7amt/
+- [综英美]和亲友群穿哥谭以后 https://www.bianlishihao.com/book/2vr7ams/
+- 二次分化后他怀了死对头的崽 https://www.bianlishihao.com/book/2vr7amr/
+- 怨明月不独照 https://www.bianlishihao.com/book/2vr7amq/
+- 万人嫌从末世回来了 https://www.bianlishihao.com/book/2vr7amp/
+- 在年代文里跑运输 https://www.bianlishihao.com/book/2vr7amo/
+- 正是冬雪沸腾时 https://www.bianlishihao.com/book/2vr7amn/
+- 娘娘扶摇直上 https://www.bianlishihao.com/book/2vr7amm/
+- 国师 https://www.bianlishihao.com/book/2vr7aml/
+- 仙尊心尖宠，但被魔尊抢了 https://www.bianlishihao.com/book/2vr7amk/
+- 魔咒请说普通话[西幻] https://www.bianlishihao.com/book/2vr7amj/
+- 等我吃腻了再倒闭可以吗 https://www.bianlishihao.com/book/2vr7ami/
+- 烈火焚身[巴黎圣母院] https://www.bianlishihao.com/book/2vr7amh/
+- 恐游里的邻居们[万人迷] https://www.bianlishihao.com/book/2vr7amg/
+- 人，今晚土拨鼠站岗 https://www.bianlishihao.com/book/2vr7ame/
+- 强取师尊后 https://www.bianlishihao.com/book/2vr7amd/
+- 康熙宠妃日常 https://www.bianlishihao.com/book/2vr7amc/
+- 同时扮演贵族学院F4和平民校花 https://www.bianlishihao.com/book/2vr7amb/
+- 你让魔王组建勇者小队？ https://www.bianlishihao.com/book/2vr7ama/
+- 从1951开始 https://www.bianlishihao.com/book/2vr7am9/
+- 星露谷，但日本战国 https://www.bianlishihao.com/book/2vr7am8/
+- 魔改剧本后我爆火了[娱乐圈] https://www.bianlishihao.com/book/2vr7am7/
+- 原配夫人 https://www.bianlishihao.com/book/2vr7agk/
+- 始乱终弃清冷首辅后 https://www.bianlishihao.com/book/2vr7agi/
+- [封神]圣人生欲 https://www.bianlishihao.com/book/2vr7afq/
+- 星际团宠小人鱼 https://www.bianlishihao.com/book/2vr7afa/
+- 高调装神，猥琐发育 https://www.bianlishihao.com/book/2vr7adk/
+- 十九世纪贵族厨房（美食） https://www.bianlishihao.com/book/2vr7acp/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.bianlishihao.com/book/2vr7aag/
+- 直男咒术师的限制级游戏 https://www.bianlishihao.com/book/2vr7a9e/
+- 六零之成了卷王的妹妹 https://www.bianlishihao.com/book/2vr791i/
+- 路人攻了主角攻［快穿］ https://www.bianlishihao.com/book/2vr790a/
+- 昭暮 https://www.bianlishihao.com/book/2vr6vdd/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.bianlishihao.com/book/2vr6jbu/
+- 老公对不起 https://www.bianlishihao.com/book/2vr5smf/
+- 上个鬼班[无限] https://www.bianlishihao.com/book/2vr5ob4/
+- [足球]足坛人生模拟器 https://www.bianlishihao.com/book/2vr5ik5/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.bianlishihao.com/book/2vr5cg5/
+- 九零重组小家庭 https://www.bianlishihao.com/book/2vr59al/
+- 在卷王和废物之间选择做吉祥物 https://www.bianlishihao.com/book/2vr56st/
+- 从维多利亚时代开始 https://www.bianlishihao.com/book/2vr502m/
+- 如何嫁给当朝首辅 https://www.bianlishihao.com/book/2vr4idk/
+- 食明 https://www.bianlishihao.com/book/2vr4guq/
+- 诡话第一boss https://www.bianlishihao.com/book/2vr4drg/
+- 仙门透明人被迫万人迷 https://www.bianlishihao.com/book/2vr4942/
+- 让暴君Alpha怀崽后 https://www.bianlishihao.com/book/2vr47bn/
+- 老实人妻，但顶级魅魔 https://www.bianlishihao.com/book/2vr45mo/
+- 日化人生[科研] https://www.bianlishihao.com/book/2vr45b4/
+- 专业女配的自我修养（快穿） https://www.bianlishihao.com/book/2vr4544/
+- 巨物致富：回乡开钓场 https://www.bianlishihao.com/book/2vr42ci/
+- [足球]我的游戏存档成真了？！ https://www.bianlishihao.com/book/2vr40ak/
+- 让你们无剧本可走（快穿） https://www.bianlishihao.com/book/2vr3va3/
+- 寡妇美人模拟器 https://www.bianlishihao.com/book/2vr3upq/
+- 趁她之危 https://www.bianlishihao.com/book/2vr3s1u/
+- 起初，我只是想找个冤大头 https://www.bianlishihao.com/book/2vr3qmr/
+- 摄政王家的咸鱼夫郎 https://www.bianlishihao.com/book/2vr3oar/
+- 死遁的亡夫们都回来了 https://www.bianlishihao.com/book/9ipbvl/
+- 沈助理又在隐藏他的超能力 https://www.bianlishihao.com/book/9ip7lo/
+- 天幕今天也在直播我搞基建 https://www.bianlishihao.com/book/9ip7gf/
+- 从童星开始杀穿港娱 https://www.bianlishihao.com/book/9ip3ij/
+- 死对头又在挑衅我 https://www.bianlishihao.com/book/9ip2f5/
+- 成为养成系练习生后 https://www.bianlishihao.com/book/9ip1nk/
+- 被天使之王骗婚后[诡秘之主] https://www.bianlishihao.com/book/9ip0sl/
+- 我有一座地下城 https://www.bianlishihao.com/book/9iovc4/
+- 漂亮女配是万人迷［快穿］ https://www.bianlishihao.com/book/9ioumn/
+- 和贵志君是世界第一的好朋友 https://www.bianlishihao.com/book/9iojd3/
+- 我187了，你敢见我吗？ https://www.bianlishihao.com/book/9ioitl/
+- 五条老师与他的封建妻子 https://www.bianlishihao.com/book/9ioihv/
+- 阴阳师也可以打网球 https://www.bianlishihao.com/book/9ioi1r/
+- 和姐姐的前女友欢愉后 https://www.bianlishihao.com/book/9ioi0r/
+- 我与龙傲天寿命共享 https://www.bianlishihao.com/book/9iodsv/
+- 大唐守军家属 https://www.bianlishihao.com/book/9io9gd/
+- 在重生文里考科举 https://www.bianlishihao.com/book/9io96t/
+- 朕也要被强制吗？ https://www.bianlishihao.com/book/9io7eg/
+- 妻主风流（女尊） https://www.bianlishihao.com/book/9io6cr/
+- 多梦你一会儿 https://www.bianlishihao.com/book/9io0i1/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.bianlishihao.com/book/9inuje/
+- 被糟蹋的老实人决定反击 https://www.bianlishihao.com/book/9intke/
+- 韩团绿卡不想忍了 https://www.bianlishihao.com/book/9intg4/
+- 这个位面归我了！[经营] https://www.bianlishihao.com/book/9inqf9/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.bianlishihao.com/book/9inouc/
+- 村霸非要入赘受气包 https://www.bianlishihao.com/book/9inolf/
+- 清冷丞相怀了死对头的崽 https://www.bianlishihao.com/book/9inojh/
+- 卷王后妈，八零养娃 https://www.bianlishihao.com/book/9inns2/
+- 心动嫌疑人 https://www.bianlishihao.com/book/9inmkv/
+- 和山神搭伙开农场的日子 https://www.bianlishihao.com/book/9inlhg/
+- 恶犬攻绑定上司的乖狗系统 https://www.bianlishihao.com/book/9inkip/
+- 假意逢承 https://www.bianlishihao.com/book/9ink57/
+- 在民俗惊悚片被诸神庇护 https://www.bianlishihao.com/book/9ink1h/
+- 权宋一只统 https://www.bianlishihao.com/book/9inhq6/
+- 死亡悖论[无限流] https://www.bianlishihao.com/book/9inh52/
+- 带清冷女主回乡养螃蟹[种田] https://www.bianlishihao.com/book/9infgv/
+- 爱好和平但狂拆机甲 https://www.bianlishihao.com/book/9ine1a/
+- 全民求生:从小木屋到魔法农场 https://www.bianlishihao.com/book/ulhcl/
+- 苏娘子汴京摆摊日常（美食） https://www.bianlishihao.com/book/ulh8u/
+- 清澈女大的六零年代 https://www.bianlishihao.com/book/ulgse/
+- 在魔法贵族学院当白月光 https://www.bianlishihao.com/book/ulglv/
+- 开局绑定郭奉孝，谋定三国风云 https://www.bianlishihao.com/book/ulgg6/
+- 海岛求生：生活玩家种田囤货 https://www.bianlishihao.com/book/ulgfv/
+- [娱乐圈]过分美丽的她 https://www.bianlishihao.com/book/ulgb1/
+- 完蛋！被恨孕男包围了！ https://www.bianlishihao.com/book/ulg2q/
+- 我有一座安全城 https://www.bianlishihao.com/book/ulfr1/
+- 95美国贵族高中模拟 https://www.bianlishihao.com/book/ulfhh/
+- 我是唯一地上神国 https://www.bianlishihao.com/book/ulff4/
+- 大瑛弟国 https://www.bianlishihao.com/book/3252s/
+- 五十年代港城日常 https://www.bianlishihao.com/book/324t4/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1281/index.md)

@@ -1,175 +1,167 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-07 03:26:22
+更新时间：2026-09-08 03:27:17
 
-书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
-
-- [书包网](https://www.cialisgs.com/)
+书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。 https://www.cialisgs.com
 
 ## 最新小说
-- [和八个男人在极寒游戏求生](https://www.cialisgs.com/book/89ru3qk/)
-- [占有欲Daddy是我老公？](https://www.cialisgs.com/book/89ru3qi/)
-- [和治君只是饭搭子的关系](https://www.cialisgs.com/book/89ru3qh/)
-- [谁说踢球就不能成为名侦探[足球]](https://www.cialisgs.com/book/89ru3qg/)
-- [康熙宠妃日常](https://www.cialisgs.com/book/89ru3qf/)
-- [魔法种田，从退队经营农场开始](https://www.cialisgs.com/book/89ru3qe/)
-- [国运求生：我的金手指是生命树](https://www.cialisgs.com/book/89ru3qd/)
-- [爱情的肯定句](https://www.cialisgs.com/book/89ru3qc/)
-- [炮灰的海外亲戚回国啦！](https://www.cialisgs.com/book/89ru3qb/)
-- [[足球]小小鸟堂堂来袭](https://www.cialisgs.com/book/89ru3qa/)
-- [大佬的漂亮老婆回来带崽了[八零]](https://www.cialisgs.com/book/89ru3q9/)
-- [魔改剧本后我爆火了[娱乐圈]](https://www.cialisgs.com/book/89ru3q8/)
-- [我们小区穿末世](https://www.cialisgs.com/book/89ru3q7/)
-- [前妻她肯定会后悔](https://www.cialisgs.com/book/89ru3q6/)
-- [国师](https://www.cialisgs.com/book/89ru3q5/)
-- [[崩铁]请给玩家一个准确的血条！](https://www.cialisgs.com/book/89ru3q4/)
-- [全世界名为爱的恶意](https://www.cialisgs.com/book/89ru3q3/)
-- [全民求生，但剑三](https://www.cialisgs.com/book/89ru3q2/)
-- [在中世纪做奴隶](https://www.cialisgs.com/book/89ru3q1/)
-- [[足球]雏鸟](https://www.cialisgs.com/book/89ru3q0/)
-- [［综英美］蝙蝠崽？我不是啊！](https://www.cialisgs.com/book/89ru3pv/)
-- [阴郁残疾炮灰被万人迷后[快穿]](https://www.cialisgs.com/book/89ru3pu/)
-- [人，今晚土拨鼠站岗](https://www.cialisgs.com/book/89ru3pt/)
-- [末世八年春，游戏降临](https://www.cialisgs.com/book/89ru3ps/)
-- [清穿女回来后[天幕]](https://www.cialisgs.com/book/89ru3pq/)
-- [咦？我爸爸复活啦](https://www.cialisgs.com/book/89ru3pp/)
-- [[原神]魔法使恋爱指南](https://www.cialisgs.com/book/89ru3po/)
-- [从1951开始](https://www.cialisgs.com/book/89ru3pn/)
-- [恐游里的邻居们[万人迷]](https://www.cialisgs.com/book/89ru3pm/)
-- [[综英美]和亲友群穿哥谭以后](https://www.cialisgs.com/book/89ru3pl/)
-- [[全职高手]治疗什么的不干了！](https://www.cialisgs.com/book/89ru3pk/)
-- [你让魔王组建勇者小队？](https://www.cialisgs.com/book/89ru3pj/)
-- [穿咒术，但杀猴现场](https://www.cialisgs.com/book/89ru3pi/)
-- [怨明月不独照](https://www.cialisgs.com/book/89ru3ph/)
-- [在年代文里跑运输](https://www.cialisgs.com/book/89ru3pg/)
-- [热恋过期需重追](https://www.cialisgs.com/book/89ru3pf/)
-- [双生子反派的端水抑郁妈[九零]](https://www.cialisgs.com/book/89ru3pe/)
-- [夫人每天都在伪装](https://www.cialisgs.com/book/89ru3pd/)
-- [乖乖女的杂货铺[八零]](https://www.cialisgs.com/book/89ru3pc/)
-- [世界伏于她刀下[无限]](https://www.cialisgs.com/book/89ru3pb/)
-- [SSS级异种都是我前任](https://www.cialisgs.com/book/89ru3pa/)
-- [暗恋的价格是三万块](https://www.cialisgs.com/book/89ru3p9/)
-- [烈火焚身[巴黎圣母院]](https://www.cialisgs.com/book/89ru3p8/)
-- [二次分化后他怀了死对头的崽](https://www.cialisgs.com/book/89ru3p7/)
-- [欲加之罪](https://www.cialisgs.com/book/89ru3p6/)
-- [禁止继承限制级雌君](https://www.cialisgs.com/book/89ru3p5/)
-- [［西幻］RPG就不要谈恋爱了吧！](https://www.cialisgs.com/book/89ru3p4/)
-- [等我吃腻了再倒闭可以吗](https://www.cialisgs.com/book/89ru3p3/)
-- [失忆后和死对头有了崽](https://www.cialisgs.com/book/89ru3p2/)
-- [病美人重生日记](https://www.cialisgs.com/book/89ru3p1/)
-- [娘娘扶摇直上](https://www.cialisgs.com/book/89ru3p0/)
-- [好心的俄罗斯人](https://www.cialisgs.com/book/89ru3ov/)
-- [魔咒请说普通话[西幻]](https://www.cialisgs.com/book/89ru3ou/)
-- [漫画取材所引发的修罗场](https://www.cialisgs.com/book/89ru3ot/)
-- [谁都不爱的和亲公主](https://www.cialisgs.com/book/89ru3os/)
-- [同时扮演贵族学院F4和平民校花](https://www.cialisgs.com/book/89ru3or/)
-- [我只想上京赶考啊[聊斋]](https://www.cialisgs.com/book/89ru3oq/)
-- [星露谷，但日本战国](https://www.cialisgs.com/book/89ru3op/)
-- [[综英美]哥谭市民，在线抽卡](https://www.cialisgs.com/book/89ru3oo/)
-- [仙尊心尖宠，但被魔尊抢了](https://www.cialisgs.com/book/89ru3on/)
-- [欲和离？夫君他目不识丁](https://www.cialisgs.com/book/89ru3om/)
-- [[洪荒]成为太清妹妹后](https://www.cialisgs.com/book/89ru3ol/)
-- [死遁APP](https://www.cialisgs.com/book/89ru3ok/)
-- [强取师尊后](https://www.cialisgs.com/book/89ru3oj/)
-- [万人嫌从末世回来了](https://www.cialisgs.com/book/89ru3oh/)
-- [魔尊闭关十年连生十一子？！](https://www.cialisgs.com/book/89ru3og/)
-- [八零法医，带全家致富](https://www.cialisgs.com/book/89ru3of/)
-- [恐游作精女配求生指南](https://www.cialisgs.com/book/89ru3oe/)
-- [如何正确哄睡暴君](https://www.cialisgs.com/book/89ru3od/)
-- [恶毒男配只想躺平](https://www.cialisgs.com/book/89ru3oc/)
-- [我骗家里的钱养你啊](https://www.cialisgs.com/book/89ru3ob/)
-- [正是冬雪沸腾时](https://www.cialisgs.com/book/89ru3oa/)
-- [穿为龙傲天发妻后](https://www.cialisgs.com/book/89ru3o9/)
-- [我司艺人永不塌房](https://www.cialisgs.com/book/89ru3nr/)
-- [我们生活玩家是这样的](https://www.cialisgs.com/book/89ru3jn/)
-- [星际团宠小人鱼](https://www.cialisgs.com/book/89ru3is/)
-- [始乱终弃清冷首辅后](https://www.cialisgs.com/book/89ru3in/)
-- [原配夫人](https://www.cialisgs.com/book/89ru3ik/)
-- [[封神]圣人生欲](https://www.cialisgs.com/book/89ru3h9/)
-- [十九世纪贵族厨房（美食）](https://www.cialisgs.com/book/89ru3eg/)
-- [高调装神，猥琐发育](https://www.cialisgs.com/book/89ru3ed/)
-- [假少爷离开后](https://www.cialisgs.com/book/89ru3db/)
-- [浣熊市蝙蝠崽的哥谭居住指南](https://www.cialisgs.com/book/89ru3ci/)
-- [直男咒术师的限制级游戏](https://www.cialisgs.com/book/89ru3bn/)
-- [六零之成了卷王的妹妹](https://www.cialisgs.com/book/89ru24b/)
-- [路人攻了主角攻［快穿］](https://www.cialisgs.com/book/89ru22d/)
-- [昭暮](https://www.cialisgs.com/book/89rtoen/)
-- [[足球]拥有分身系统的我靠踢足球建设国家](https://www.cialisgs.com/book/89rt2fp/)
-- [老公对不起](https://www.cialisgs.com/book/89rsl9m/)
-- [上个鬼班[无限]](https://www.cialisgs.com/book/89rsbo3/)
-- [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.cialisgs.com/book/89rs6tq/)
-- [[足球]足坛人生模拟器](https://www.cialisgs.com/book/89rs497/)
-- [在卷王和废物之间选择做吉祥物](https://www.cialisgs.com/book/89rrupj/)
-- [从维多利亚时代开始](https://www.cialisgs.com/book/89rro5u/)
-- [神豪文男主是我爸](https://www.cialisgs.com/book/89rra7n/)
-- [如何嫁给当朝首辅](https://www.cialisgs.com/book/89rr9uc/)
-- [食明](https://www.cialisgs.com/book/89rr96s/)
-- [诡话第一boss](https://www.cialisgs.com/book/89rr5sb/)
-- [让暴君Alpha怀崽后](https://www.cialisgs.com/book/89rqvcf/)
-- [老实人妻，但顶级魅魔](https://www.cialisgs.com/book/89rquaf/)
-- [日化人生[科研]](https://www.cialisgs.com/book/89rqtj1/)
-- [专业女配的自我修养（快穿）](https://www.cialisgs.com/book/89rqt3s/)
-- [巨物致富：回乡开钓场](https://www.cialisgs.com/book/89rqr6m/)
-- [[足球]我的游戏存档成真了？！](https://www.cialisgs.com/book/89rqp4a/)
-- [趁她之危](https://www.cialisgs.com/book/89rqor6/)
-- [让你们无剧本可走（快穿）](https://www.cialisgs.com/book/89rqo5n/)
-- [社畜Beta也能被顶A觊觎吗](https://www.cialisgs.com/book/89rqnh5/)
-- [起初，我只是想找个冤大头](https://www.cialisgs.com/book/89rqj2r/)
-- [摄政王家的咸鱼夫郎](https://www.cialisgs.com/book/89rqile/)
-- [死遁的亡夫们都回来了](https://www.cialisgs.com/book/qirl58/)
-- [沈助理又在隐藏他的超能力](https://www.cialisgs.com/book/qirhaa/)
-- [怀了前任大哥的崽后](https://www.cialisgs.com/book/qirg5k/)
-- [成为养成系练习生后](https://www.cialisgs.com/book/qireut/)
-- [假金丝雀深陷修罗场](https://www.cialisgs.com/book/qires6/)
-- [我有一座地下城](https://www.cialisgs.com/book/qirama/)
-- [美貌单出，杀穿港娱［八零］](https://www.cialisgs.com/book/qiral6/)
-- [死对头又在挑衅我](https://www.cialisgs.com/book/qirag8/)
-- [漂亮女配是万人迷［快穿］](https://www.cialisgs.com/book/qir8r9/)
-- [被天使之王骗婚后[诡秘之主]](https://www.cialisgs.com/book/qir6mo/)
-- [我187了，你敢见我吗？](https://www.cialisgs.com/book/qiqvar/)
-- [和贵志君是世界第一的好朋友](https://www.cialisgs.com/book/qiqr6q/)
-- [阴阳师也可以打网球](https://www.cialisgs.com/book/qiqopr/)
-- [五条老师与他的封建妻子](https://www.cialisgs.com/book/qiqok1/)
-- [和姐姐的前女友欢愉后](https://www.cialisgs.com/book/qiqojn/)
-- [我与龙傲天寿命共享](https://www.cialisgs.com/book/qiqnof/)
-- [大唐守军家属](https://www.cialisgs.com/book/qiqkgl/)
-- [朕也要被强制吗？](https://www.cialisgs.com/book/qiqgqk/)
-- [在重生文里考科举](https://www.cialisgs.com/book/qiqfbh/)
-- [妻主风流（女尊）](https://www.cialisgs.com/book/qiqe40/)
-- [逃出金丝笼，我力挽山河开国称帝](https://www.cialisgs.com/book/qiq8it/)
-- [多梦你一会儿](https://www.cialisgs.com/book/qiq6i6/)
-- [这个位面归我了！[经营]](https://www.cialisgs.com/book/qiq5rp/)
-- [村霸非要入赘受气包](https://www.cialisgs.com/book/qiq5as/)
-- [被糟蹋的老实人决定反击](https://www.cialisgs.com/book/qiq58l/)
-- [韩团绿卡不想忍了](https://www.cialisgs.com/book/qiq4q7/)
-- [卷王后妈，八零养娃](https://www.cialisgs.com/book/qiq2vt/)
-- [清冷丞相怀了死对头的崽](https://www.cialisgs.com/book/qiq2ph/)
-- [让霸刀山庄重回忍界之巅[综剑三]](https://www.cialisgs.com/book/qiq0l5/)
-- [和山神搭伙开农场的日子](https://www.cialisgs.com/book/qipulk/)
-- [心动嫌疑人](https://www.cialisgs.com/book/qipu7e/)
-- [恶犬攻绑定上司的乖狗系统](https://www.cialisgs.com/book/qipsig/)
-- [假意逢承](https://www.cialisgs.com/book/qipsdj/)
-- [在民俗惊悚片被诸神庇护](https://www.cialisgs.com/book/qips5g/)
-- [带清冷女主回乡养螃蟹[种田]](https://www.cialisgs.com/book/qipr0f/)
-- [死亡悖论[无限流]](https://www.cialisgs.com/book/qipp7a/)
-- [权宋一只统](https://www.cialisgs.com/book/qipocj/)
-- [爱好和平但狂拆机甲](https://www.cialisgs.com/book/qiplig/)
-- [华夏神明震撼星际](https://www.cialisgs.com/book/2l2ibl/)
-- [95美国贵族高中模拟](https://www.cialisgs.com/book/2l2i4n/)
-- [大瑛弟国](https://www.cialisgs.com/book/2l2i2f/)
-- [在魔法贵族学院当白月光](https://www.cialisgs.com/book/2l2hl9/)
-- [海岛求生：生活玩家种田囤货](https://www.cialisgs.com/book/2l2hhm/)
-- [我是唯一地上神国](https://www.cialisgs.com/book/2l2h5m/)
-- [开局绑定郭奉孝，谋定三国风云](https://www.cialisgs.com/book/2l2ghh/)
-- [苏娘子汴京摆摊日常（美食）](https://www.cialisgs.com/book/2l2gau/)
-- [清澈女大的六零年代](https://www.cialisgs.com/book/8g8j6/)
-- [五十年代港城日常](https://www.cialisgs.com/book/8g8e2/)
-- [[娱乐圈]过分美丽的她](https://www.cialisgs.com/book/8g8c6/)
-- [全民求生:从小木屋到魔法农场](https://www.cialisgs.com/book/8g8bb/)
-- [高门小婢](https://www.cialisgs.com/book/8g8am/)
-- [完蛋！被恨孕男包围了！](https://www.cialisgs.com/book/8g88j/)
-- [我有一座安全城](https://www.cialisgs.com/book/8g823/)
+- 占有欲Daddy是我老公？ https://www.cialisgs.com/book/89ru3qi/
+- 和治君只是饭搭子的关系 https://www.cialisgs.com/book/89ru3qh/
+- 谁说踢球就不能成为名侦探[足球] https://www.cialisgs.com/book/89ru3qg/
+- 康熙宠妃日常 https://www.cialisgs.com/book/89ru3qf/
+- 魔法种田，从退队经营农场开始 https://www.cialisgs.com/book/89ru3qe/
+- 国运求生：我的金手指是生命树 https://www.cialisgs.com/book/89ru3qd/
+- 爱情的肯定句 https://www.cialisgs.com/book/89ru3qc/
+- 炮灰的海外亲戚回国啦！ https://www.cialisgs.com/book/89ru3qb/
+- [足球]小小鸟堂堂来袭 https://www.cialisgs.com/book/89ru3qa/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.cialisgs.com/book/89ru3q9/
+- 魔改剧本后我爆火了[娱乐圈] https://www.cialisgs.com/book/89ru3q8/
+- 我们小区穿末世 https://www.cialisgs.com/book/89ru3q7/
+- 前妻她肯定会后悔 https://www.cialisgs.com/book/89ru3q6/
+- 国师 https://www.cialisgs.com/book/89ru3q5/
+- [崩铁]请给玩家一个准确的血条！ https://www.cialisgs.com/book/89ru3q4/
+- 全世界名为爱的恶意 https://www.cialisgs.com/book/89ru3q3/
+- 全民求生，但剑三 https://www.cialisgs.com/book/89ru3q2/
+- 在中世纪做奴隶 https://www.cialisgs.com/book/89ru3q1/
+- [足球]雏鸟 https://www.cialisgs.com/book/89ru3q0/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.cialisgs.com/book/89ru3pv/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.cialisgs.com/book/89ru3pu/
+- 人，今晚土拨鼠站岗 https://www.cialisgs.com/book/89ru3pt/
+- 末世八年春，游戏降临 https://www.cialisgs.com/book/89ru3ps/
+- 清穿女回来后[天幕] https://www.cialisgs.com/book/89ru3pq/
+- 咦？我爸爸复活啦 https://www.cialisgs.com/book/89ru3pp/
+- [原神]魔法使恋爱指南 https://www.cialisgs.com/book/89ru3po/
+- 从1951开始 https://www.cialisgs.com/book/89ru3pn/
+- 恐游里的邻居们[万人迷] https://www.cialisgs.com/book/89ru3pm/
+- [综英美]和亲友群穿哥谭以后 https://www.cialisgs.com/book/89ru3pl/
+- [全职高手]治疗什么的不干了！ https://www.cialisgs.com/book/89ru3pk/
+- 你让魔王组建勇者小队？ https://www.cialisgs.com/book/89ru3pj/
+- 穿咒术，但杀猴现场 https://www.cialisgs.com/book/89ru3pi/
+- 怨明月不独照 https://www.cialisgs.com/book/89ru3ph/
+- 在年代文里跑运输 https://www.cialisgs.com/book/89ru3pg/
+- 热恋过期需重追 https://www.cialisgs.com/book/89ru3pf/
+- 双生子反派的端水抑郁妈[九零] https://www.cialisgs.com/book/89ru3pe/
+- 夫人每天都在伪装 https://www.cialisgs.com/book/89ru3pd/
+- 乖乖女的杂货铺[八零] https://www.cialisgs.com/book/89ru3pc/
+- 世界伏于她刀下[无限] https://www.cialisgs.com/book/89ru3pb/
+- SSS级异种都是我前任 https://www.cialisgs.com/book/89ru3pa/
+- 暗恋的价格是三万块 https://www.cialisgs.com/book/89ru3p9/
+- 烈火焚身[巴黎圣母院] https://www.cialisgs.com/book/89ru3p8/
+- 二次分化后他怀了死对头的崽 https://www.cialisgs.com/book/89ru3p7/
+- 欲加之罪 https://www.cialisgs.com/book/89ru3p6/
+- 禁止继承限制级雌君 https://www.cialisgs.com/book/89ru3p5/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.cialisgs.com/book/89ru3p4/
+- 等我吃腻了再倒闭可以吗 https://www.cialisgs.com/book/89ru3p3/
+- 失忆后和死对头有了崽 https://www.cialisgs.com/book/89ru3p2/
+- 病美人重生日记 https://www.cialisgs.com/book/89ru3p1/
+- 娘娘扶摇直上 https://www.cialisgs.com/book/89ru3p0/
+- 好心的俄罗斯人 https://www.cialisgs.com/book/89ru3ov/
+- 魔咒请说普通话[西幻] https://www.cialisgs.com/book/89ru3ou/
+- 漫画取材所引发的修罗场 https://www.cialisgs.com/book/89ru3ot/
+- 谁都不爱的和亲公主 https://www.cialisgs.com/book/89ru3os/
+- 同时扮演贵族学院F4和平民校花 https://www.cialisgs.com/book/89ru3or/
+- 我只想上京赶考啊[聊斋] https://www.cialisgs.com/book/89ru3oq/
+- 星露谷，但日本战国 https://www.cialisgs.com/book/89ru3op/
+- [综英美]哥谭市民，在线抽卡 https://www.cialisgs.com/book/89ru3oo/
+- 仙尊心尖宠，但被魔尊抢了 https://www.cialisgs.com/book/89ru3on/
+- 欲和离？夫君他目不识丁 https://www.cialisgs.com/book/89ru3om/
+- [洪荒]成为太清妹妹后 https://www.cialisgs.com/book/89ru3ol/
+- 死遁APP https://www.cialisgs.com/book/89ru3ok/
+- 强取师尊后 https://www.cialisgs.com/book/89ru3oj/
+- 万人嫌从末世回来了 https://www.cialisgs.com/book/89ru3oh/
+- 魔尊闭关十年连生十一子？！ https://www.cialisgs.com/book/89ru3og/
+- 八零法医，带全家致富 https://www.cialisgs.com/book/89ru3of/
+- 恐游作精女配求生指南 https://www.cialisgs.com/book/89ru3oe/
+- 如何正确哄睡暴君 https://www.cialisgs.com/book/89ru3od/
+- 恶毒男配只想躺平 https://www.cialisgs.com/book/89ru3oc/
+- 我骗家里的钱养你啊 https://www.cialisgs.com/book/89ru3ob/
+- 正是冬雪沸腾时 https://www.cialisgs.com/book/89ru3oa/
+- 穿为龙傲天发妻后 https://www.cialisgs.com/book/89ru3o9/
+- 星际团宠小人鱼 https://www.cialisgs.com/book/89ru3is/
+- 始乱终弃清冷首辅后 https://www.cialisgs.com/book/89ru3in/
+- 原配夫人 https://www.cialisgs.com/book/89ru3ik/
+- [封神]圣人生欲 https://www.cialisgs.com/book/89ru3h9/
+- 十九世纪贵族厨房（美食） https://www.cialisgs.com/book/89ru3eg/
+- 高调装神，猥琐发育 https://www.cialisgs.com/book/89ru3ed/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.cialisgs.com/book/89ru3ci/
+- 直男咒术师的限制级游戏 https://www.cialisgs.com/book/89ru3bn/
+- 六零之成了卷王的妹妹 https://www.cialisgs.com/book/89ru24b/
+- 路人攻了主角攻［快穿］ https://www.cialisgs.com/book/89ru22d/
+- 昭暮 https://www.cialisgs.com/book/89rtoen/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.cialisgs.com/book/89rt2fp/
+- 老公对不起 https://www.cialisgs.com/book/89rsl9m/
+- 九零重组小家庭 https://www.cialisgs.com/book/89rsd06/
+- 上个鬼班[无限] https://www.cialisgs.com/book/89rsbo3/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.cialisgs.com/book/89rs6tq/
+- [足球]足坛人生模拟器 https://www.cialisgs.com/book/89rs497/
+- 在卷王和废物之间选择做吉祥物 https://www.cialisgs.com/book/89rrupj/
+- 从维多利亚时代开始 https://www.cialisgs.com/book/89rro5u/
+- 如何嫁给当朝首辅 https://www.cialisgs.com/book/89rr9uc/
+- 食明 https://www.cialisgs.com/book/89rr96s/
+- 诡话第一boss https://www.cialisgs.com/book/89rr5sb/
+- 仙门透明人被迫万人迷 https://www.cialisgs.com/book/89rr4h7/
+- 让暴君Alpha怀崽后 https://www.cialisgs.com/book/89rqvcf/
+- 老实人妻，但顶级魅魔 https://www.cialisgs.com/book/89rquaf/
+- 日化人生[科研] https://www.cialisgs.com/book/89rqtj1/
+- 专业女配的自我修养（快穿） https://www.cialisgs.com/book/89rqt3s/
+- 巨物致富：回乡开钓场 https://www.cialisgs.com/book/89rqr6m/
+- [足球]我的游戏存档成真了？！ https://www.cialisgs.com/book/89rqp4a/
+- 寡妇美人模拟器 https://www.cialisgs.com/book/89rqp0s/
+- 趁她之危 https://www.cialisgs.com/book/89rqor6/
+- 让你们无剧本可走（快穿） https://www.cialisgs.com/book/89rqo5n/
+- 起初，我只是想找个冤大头 https://www.cialisgs.com/book/89rqj2r/
+- 摄政王家的咸鱼夫郎 https://www.cialisgs.com/book/89rqile/
+- 死遁的亡夫们都回来了 https://www.cialisgs.com/book/qirl58/
+- 天幕今天也在直播我搞基建 https://www.cialisgs.com/book/qirkpv/
+- 沈助理又在隐藏他的超能力 https://www.cialisgs.com/book/qirhaa/
+- 成为养成系练习生后 https://www.cialisgs.com/book/qireut/
+- 我有一座地下城 https://www.cialisgs.com/book/qirama/
+- 从童星开始杀穿港娱 https://www.cialisgs.com/book/qiral6/
+- 死对头又在挑衅我 https://www.cialisgs.com/book/qirag8/
+- 漂亮女配是万人迷［快穿］ https://www.cialisgs.com/book/qir8r9/
+- 被天使之王骗婚后[诡秘之主] https://www.cialisgs.com/book/qir6mo/
+- 我187了，你敢见我吗？ https://www.cialisgs.com/book/qiqvar/
+- 和贵志君是世界第一的好朋友 https://www.cialisgs.com/book/qiqr6q/
+- 阴阳师也可以打网球 https://www.cialisgs.com/book/qiqopr/
+- 五条老师与他的封建妻子 https://www.cialisgs.com/book/qiqok1/
+- 和姐姐的前女友欢愉后 https://www.cialisgs.com/book/qiqojn/
+- 我与龙傲天寿命共享 https://www.cialisgs.com/book/qiqnof/
+- 大唐守军家属 https://www.cialisgs.com/book/qiqkgl/
+- 朕也要被强制吗？ https://www.cialisgs.com/book/qiqgqk/
+- 在重生文里考科举 https://www.cialisgs.com/book/qiqfbh/
+- 妻主风流（女尊） https://www.cialisgs.com/book/qiqe40/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.cialisgs.com/book/qiq8it/
+- 多梦你一会儿 https://www.cialisgs.com/book/qiq6i6/
+- 这个位面归我了！[经营] https://www.cialisgs.com/book/qiq5rp/
+- 村霸非要入赘受气包 https://www.cialisgs.com/book/qiq5as/
+- 被糟蹋的老实人决定反击 https://www.cialisgs.com/book/qiq58l/
+- 韩团绿卡不想忍了 https://www.cialisgs.com/book/qiq4q7/
+- 卷王后妈，八零养娃 https://www.cialisgs.com/book/qiq2vt/
+- 清冷丞相怀了死对头的崽 https://www.cialisgs.com/book/qiq2ph/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.cialisgs.com/book/qiq0l5/
+- 和山神搭伙开农场的日子 https://www.cialisgs.com/book/qipulk/
+- 心动嫌疑人 https://www.cialisgs.com/book/qipu7e/
+- 恶犬攻绑定上司的乖狗系统 https://www.cialisgs.com/book/qipsig/
+- 假意逢承 https://www.cialisgs.com/book/qipsdj/
+- 在民俗惊悚片被诸神庇护 https://www.cialisgs.com/book/qips5g/
+- 带清冷女主回乡养螃蟹[种田] https://www.cialisgs.com/book/qipr0f/
+- 死亡悖论[无限流] https://www.cialisgs.com/book/qipp7a/
+- 权宋一只统 https://www.cialisgs.com/book/qipocj/
+- 爱好和平但狂拆机甲 https://www.cialisgs.com/book/qiplig/
+- 95美国贵族高中模拟 https://www.cialisgs.com/book/2l2i4n/
+- 大瑛弟国 https://www.cialisgs.com/book/2l2i2f/
+- 在魔法贵族学院当白月光 https://www.cialisgs.com/book/2l2hl9/
+- 海岛求生：生活玩家种田囤货 https://www.cialisgs.com/book/2l2hhm/
+- 我是唯一地上神国 https://www.cialisgs.com/book/2l2h5m/
+- 开局绑定郭奉孝，谋定三国风云 https://www.cialisgs.com/book/2l2ghh/
+- 苏娘子汴京摆摊日常（美食） https://www.cialisgs.com/book/2l2gau/
+- 清澈女大的六零年代 https://www.cialisgs.com/book/8g8j6/
+- 五十年代港城日常 https://www.cialisgs.com/book/8g8e2/
+- [娱乐圈]过分美丽的她 https://www.cialisgs.com/book/8g8c6/
+- 全民求生:从小木屋到魔法农场 https://www.cialisgs.com/book/8g8bb/
+- 完蛋！被恨孕男包围了！ https://www.cialisgs.com/book/8g88j/
+- 我有一座安全城 https://www.cialisgs.com/book/8g823/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1283/index.md)

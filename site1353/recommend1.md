@@ -1,175 +1,167 @@
 
 # 书社1687小说免费-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-07 03:40:02
+更新时间：2026-09-08 03:40:49
 
-书社1687小说免费提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏书社1687小说，享受便捷的小说阅读体验。
-
-- [书社1687小说免费](https://www.shushe1687.com/)
+书社1687小说免费提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏书社1687小说，享受便捷的小说阅读体验。 https://www.shushe1687.com
 
 ## 最新小说
-- [和八个男人在极寒游戏求生](https://www.shushe1687.com/book/489h9hr/)
-- [好心的俄罗斯人](https://www.shushe1687.com/book/489h9ho/)
-- [末世八年春，游戏降临](https://www.shushe1687.com/book/489h9hn/)
-- [[综英美]哥谭市民，在线抽卡](https://www.shushe1687.com/book/489h9hi/)
-- [康熙宠妃日常](https://www.shushe1687.com/book/489h9hg/)
-- [乖乖女的杂货铺[八零]](https://www.shushe1687.com/book/489h9hb/)
-- [在中世纪做奴隶](https://www.shushe1687.com/book/489h9h8/)
-- [娘娘扶摇直上](https://www.shushe1687.com/book/489h9h6/)
-- [SSS级异种都是我前任](https://www.shushe1687.com/book/489h9h4/)
-- [全世界名为爱的恶意](https://www.shushe1687.com/book/489h9h2/)
-- [穿为龙傲天发妻后](https://www.shushe1687.com/book/489h9gv/)
-- [热恋过期需重追](https://www.shushe1687.com/book/489h9gs/)
-- [夫人每天都在伪装](https://www.shushe1687.com/book/489h9gj/)
-- [前妻她肯定会后悔](https://www.shushe1687.com/book/489h9gh/)
-- [谁都不爱的和亲公主](https://www.shushe1687.com/book/489h9gd/)
-- [你让魔王组建勇者小队？](https://www.shushe1687.com/book/489h9gc/)
-- [[洪荒]成为太清妹妹后](https://www.shushe1687.com/book/489h9gb/)
-- [占有欲Daddy是我老公？](https://www.shushe1687.com/book/489h9g9/)
-- [八零法医，带全家致富](https://www.shushe1687.com/book/489h9g5/)
-- [禁止继承限制级雌君](https://www.shushe1687.com/book/489h9g1/)
-- [魔改剧本后我爆火了[娱乐圈]](https://www.shushe1687.com/book/489h9ft/)
-- [恐游作精女配求生指南](https://www.shushe1687.com/book/489h9fp/)
-- [欲和离？夫君他目不识丁](https://www.shushe1687.com/book/489h9fn/)
-- [欲加之罪](https://www.shushe1687.com/book/489h9fm/)
-- [仙尊心尖宠，但被魔尊抢了](https://www.shushe1687.com/book/489h9fl/)
-- [死遁APP](https://www.shushe1687.com/book/489h9fi/)
-- [恐游里的邻居们[万人迷]](https://www.shushe1687.com/book/489h9fd/)
-- [暗恋的价格是三万块](https://www.shushe1687.com/book/489h9fb/)
-- [我们小区穿末世](https://www.shushe1687.com/book/489h9fa/)
-- [［综英美］蝙蝠崽？我不是啊！](https://www.shushe1687.com/book/489h9f6/)
-- [魔尊闭关十年连生十一子？！](https://www.shushe1687.com/book/489h9f4/)
-- [在年代文里跑运输](https://www.shushe1687.com/book/489h9f2/)
-- [国师](https://www.shushe1687.com/book/489h9f0/)
-- [恶毒男配只想躺平](https://www.shushe1687.com/book/489h9ev/)
-- [二次分化后他怀了死对头的崽](https://www.shushe1687.com/book/489h9eu/)
-- [大佬的漂亮老婆回来带崽了[八零]](https://www.shushe1687.com/book/489h9ep/)
-- [[全职高手]治疗什么的不干了！](https://www.shushe1687.com/book/489h9en/)
-- [世界伏于她刀下[无限]](https://www.shushe1687.com/book/489h9em/)
-- [星露谷，但日本战国](https://www.shushe1687.com/book/489h9ei/)
-- [等我吃腻了再倒闭可以吗](https://www.shushe1687.com/book/489h9eg/)
-- [谁说踢球就不能成为名侦探[足球]](https://www.shushe1687.com/book/489h9ef/)
-- [[综英美]和亲友群穿哥谭以后](https://www.shushe1687.com/book/489h9ea/)
-- [爱情的肯定句](https://www.shushe1687.com/book/489h9e8/)
-- [强取师尊后](https://www.shushe1687.com/book/489h9e5/)
-- [双生子反派的端水抑郁妈[九零]](https://www.shushe1687.com/book/489h9e3/)
-- [人，今晚土拨鼠站岗](https://www.shushe1687.com/book/489h9e2/)
-- [怨明月不独照](https://www.shushe1687.com/book/489h9dt/)
-- [漫画取材所引发的修罗场](https://www.shushe1687.com/book/489h9dp/)
-- [炮灰的海外亲戚回国啦！](https://www.shushe1687.com/book/489h9do/)
-- [国运求生：我的金手指是生命树](https://www.shushe1687.com/book/489h9dm/)
-- [全民求生，但剑三](https://www.shushe1687.com/book/489h9di/)
-- [万人嫌从末世回来了](https://www.shushe1687.com/book/489h9dh/)
-- [病美人重生日记](https://www.shushe1687.com/book/489h9dg/)
-- [[原神]魔法使恋爱指南](https://www.shushe1687.com/book/489h9de/)
-- [正是冬雪沸腾时](https://www.shushe1687.com/book/489h9db/)
-- [从1951开始](https://www.shushe1687.com/book/489h9d8/)
-- [烈火焚身[巴黎圣母院]](https://www.shushe1687.com/book/489h9d7/)
-- [魔法种田，从退队经营农场开始](https://www.shushe1687.com/book/489h9d6/)
-- [失忆后和死对头有了崽](https://www.shushe1687.com/book/489h9d5/)
-- [我只想上京赶考啊[聊斋]](https://www.shushe1687.com/book/489h9d3/)
-- [魔咒请说普通话[西幻]](https://www.shushe1687.com/book/489h9d1/)
-- [［西幻］RPG就不要谈恋爱了吧！](https://www.shushe1687.com/book/489h9cv/)
-- [清穿女回来后[天幕]](https://www.shushe1687.com/book/489h9cu/)
-- [[足球]雏鸟](https://www.shushe1687.com/book/489h9ct/)
-- [穿咒术，但杀猴现场](https://www.shushe1687.com/book/489h9ck/)
-- [起初，我只是想找个冤大头](https://www.shushe1687.com/book/489gvak/)
-- [我们生活玩家是这样的](https://www.shushe1687.com/book/489gtbc/)
-- [[足球]拥有分身系统的我靠踢足球建设国家](https://www.shushe1687.com/book/489gt8b/)
-- [上个鬼班[无限]](https://www.shushe1687.com/book/489gomh/)
-- [华夏神明震撼星际](https://www.shushe1687.com/book/489gidk/)
-- [让暴君Alpha怀崽后](https://www.shushe1687.com/book/489ghha/)
-- [[足球]足坛人生模拟器](https://www.shushe1687.com/book/489gh09/)
-- [神豪文男主是我爸](https://www.shushe1687.com/book/489gc8d/)
-- [在卷王和废物之间选择做吉祥物](https://www.shushe1687.com/book/489g6l4/)
-- [从维多利亚时代开始](https://www.shushe1687.com/book/489g3h0/)
-- [昭暮](https://www.shushe1687.com/book/489g1n0/)
-- [十九世纪贵族厨房（美食）](https://www.shushe1687.com/book/489funq/)
-- [原配夫人](https://www.shushe1687.com/book/489fumg/)
-- [星际团宠小人鱼](https://www.shushe1687.com/book/489fuk7/)
-- [始乱终弃清冷首辅后](https://www.shushe1687.com/book/489fudm/)
-- [完蛋！被恨孕男包围了！](https://www.shushe1687.com/book/489fnef/)
-- [高调装神，猥琐发育](https://www.shushe1687.com/book/489fnds/)
-- [食明](https://www.shushe1687.com/book/489fklh/)
-- [诡话第一boss](https://www.shushe1687.com/book/489fh6s/)
-- [老实人妻，但顶级魅魔](https://www.shushe1687.com/book/489fere/)
-- [专业女配的自我修养（快穿）](https://www.shushe1687.com/book/489fdne/)
-- [[足球]我的游戏存档成真了？！](https://www.shushe1687.com/book/489f7v6/)
-- [让你们无剧本可走（快穿）](https://www.shushe1687.com/book/489f7fq/)
-- [社畜Beta也能被顶A觊觎吗](https://www.shushe1687.com/book/489f6t2/)
-- [摄政王家的咸鱼夫郎](https://www.shushe1687.com/book/489f60q/)
-- [我与龙傲天寿命共享](https://www.shushe1687.com/book/489f5hj/)
-- [如何正确哄睡暴君](https://www.shushe1687.com/book/489f3st/)
-- [我骗家里的钱养你啊](https://www.shushe1687.com/book/489eutr/)
-- [死遁的亡夫们都回来了](https://www.shushe1687.com/book/489eum7/)
-- [怀了前任大哥的崽后](https://www.shushe1687.com/book/489eu6o/)
-- [阴郁残疾炮灰被万人迷后[快穿]](https://www.shushe1687.com/book/489esfk/)
-- [沈助理又在隐藏他的超能力](https://www.shushe1687.com/book/489em6a/)
-- [死对头又在挑衅我](https://www.shushe1687.com/book/489eler/)
-- [在民俗惊悚片被诸神庇护](https://www.shushe1687.com/book/489elb7/)
-- [假金丝雀深陷修罗场](https://www.shushe1687.com/book/489einr/)
-- [被天使之王骗婚后[诡秘之主]](https://www.shushe1687.com/book/489egdn/)
-- [美貌单出，杀穿港娱［八零］](https://www.shushe1687.com/book/489eg84/)
-- [咦？我爸爸复活啦](https://www.shushe1687.com/book/489eg09/)
-- [同时扮演贵族学院F4和平民校花](https://www.shushe1687.com/book/489eff3/)
-- [开局绑定郭奉孝，谋定三国风云](https://www.shushe1687.com/book/489ed9h/)
-- [韩团绿卡不想忍了](https://www.shushe1687.com/book/489ecn2/)
-- [路人攻了主角攻［快穿］](https://www.shushe1687.com/book/489ebbu/)
-- [我有一座地下城](https://www.shushe1687.com/book/489eae8/)
-- [苏娘子汴京摆摊日常（美食）](https://www.shushe1687.com/book/489e9a4/)
-- [漂亮女配是万人迷［快穿］](https://www.shushe1687.com/book/489e8iq/)
-- [阴阳师也可以打网球](https://www.shushe1687.com/book/489e4gu/)
-- [多梦你一会儿](https://www.shushe1687.com/book/489e4ge/)
-- [[封神]圣人生欲](https://www.shushe1687.com/book/489e3op/)
-- [和治君只是饭搭子的关系](https://www.shushe1687.com/book/489e2bk/)
-- [和贵志君是世界第一的好朋友](https://www.shushe1687.com/book/489e2ah/)
-- [如何嫁给当朝首辅](https://www.shushe1687.com/book/489e1o1/)
-- [在魔法贵族学院当白月光](https://www.shushe1687.com/book/489e1l4/)
-- [五条老师与他的封建妻子](https://www.shushe1687.com/book/489e1he/)
-- [卷王后妈，八零养娃](https://www.shushe1687.com/book/489dvo8/)
-- [我司艺人永不塌房](https://www.shushe1687.com/book/489du35/)
-- [我187了，你敢见我吗？](https://www.shushe1687.com/book/489dtrm/)
-- [和姐姐的前女友欢愉后](https://www.shushe1687.com/book/489dpi6/)
-- [大唐守军家属](https://www.shushe1687.com/book/489dh8v/)
-- [朕也要被强制吗？](https://www.shushe1687.com/book/489dge6/)
-- [在重生文里考科举](https://www.shushe1687.com/book/489dgch/)
-- [[足球]小小鸟堂堂来袭](https://www.shushe1687.com/book/489dfs6/)
-- [死亡悖论[无限流]](https://www.shushe1687.com/book/489dd4m/)
-- [心动嫌疑人](https://www.shushe1687.com/book/489dcqv/)
-- [让霸刀山庄重回忍界之巅[综剑三]](https://www.shushe1687.com/book/489dbmf/)
-- [妻主风流（女尊）](https://www.shushe1687.com/book/489dbjc/)
-- [这个位面归我了！[经营]](https://www.shushe1687.com/book/489d91l/)
-- [带清冷女主回乡养螃蟹[种田]](https://www.shushe1687.com/book/489d8p0/)
-- [趁她之危](https://www.shushe1687.com/book/489d8j7/)
-- [清冷丞相怀了死对头的崽](https://www.shushe1687.com/book/489d5a7/)
-- [[崩铁]请给玩家一个准确的血条！](https://www.shushe1687.com/book/489d58g/)
-- [逃出金丝笼，我力挽山河开国称帝](https://www.shushe1687.com/book/489d4kg/)
-- [村霸非要入赘受气包](https://www.shushe1687.com/book/489d4jb/)
-- [被糟蹋的老实人决定反击](https://www.shushe1687.com/book/489d1pv/)
-- [和山神搭伙开农场的日子](https://www.shushe1687.com/book/489d1l3/)
-- [假意逢承](https://www.shushe1687.com/book/489cvcf/)
-- [恶犬攻绑定上司的乖狗系统](https://www.shushe1687.com/book/489ctpa/)
-- [权宋一只统](https://www.shushe1687.com/book/489cqs3/)
-- [爱好和平但狂拆机甲](https://www.shushe1687.com/book/489cjn7/)
-- [成为养成系练习生后](https://www.shushe1687.com/book/489bocp/)
-- [我有一座安全城](https://www.shushe1687.com/book/489bo57/)
-- [清澈女大的六零年代](https://www.shushe1687.com/book/489bnub/)
-- [老公对不起](https://www.shushe1687.com/book/489bnqi/)
-- [我是唯一地上神国](https://www.shushe1687.com/book/489bnog/)
-- [海岛求生：生活玩家种田囤货](https://www.shushe1687.com/book/489bnll/)
-- [95美国贵族高中模拟](https://www.shushe1687.com/book/489bnev/)
-- [巨物致富：回乡开钓场](https://www.shushe1687.com/book/489bne7/)
-- [六零之成了卷王的妹妹](https://www.shushe1687.com/book/489bnca/)
-- [直男咒术师的限制级游戏](https://www.shushe1687.com/book/489bnc9/)
-- [大瑛弟国](https://www.shushe1687.com/book/489bmsn/)
-- [五十年代港城日常](https://www.shushe1687.com/book/489bmm0/)
-- [假少爷离开后](https://www.shushe1687.com/book/489bm9o/)
-- [[娱乐圈]过分美丽的她](https://www.shushe1687.com/book/489bm65/)
-- [全民求生:从小木屋到魔法农场](https://www.shushe1687.com/book/489blv4/)
-- [浣熊市蝙蝠崽的哥谭居住指南](https://www.shushe1687.com/book/489bltf/)
-- [日化人生[科研]](https://www.shushe1687.com/book/489bloc/)
-- [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shushe1687.com/book/489ble3/)
-- [高门小婢](https://www.shushe1687.com/book/489bl6u/)
+- 好心的俄罗斯人 https://www.shushe1687.com/book/489h9ho/
+- 末世八年春，游戏降临 https://www.shushe1687.com/book/489h9hn/
+- [综英美]哥谭市民，在线抽卡 https://www.shushe1687.com/book/489h9hi/
+- 康熙宠妃日常 https://www.shushe1687.com/book/489h9hg/
+- 乖乖女的杂货铺[八零] https://www.shushe1687.com/book/489h9hb/
+- 在中世纪做奴隶 https://www.shushe1687.com/book/489h9h8/
+- 娘娘扶摇直上 https://www.shushe1687.com/book/489h9h6/
+- SSS级异种都是我前任 https://www.shushe1687.com/book/489h9h4/
+- 全世界名为爱的恶意 https://www.shushe1687.com/book/489h9h2/
+- 穿为龙傲天发妻后 https://www.shushe1687.com/book/489h9gv/
+- 热恋过期需重追 https://www.shushe1687.com/book/489h9gs/
+- 夫人每天都在伪装 https://www.shushe1687.com/book/489h9gj/
+- 前妻她肯定会后悔 https://www.shushe1687.com/book/489h9gh/
+- 谁都不爱的和亲公主 https://www.shushe1687.com/book/489h9gd/
+- 你让魔王组建勇者小队？ https://www.shushe1687.com/book/489h9gc/
+- [洪荒]成为太清妹妹后 https://www.shushe1687.com/book/489h9gb/
+- 占有欲Daddy是我老公？ https://www.shushe1687.com/book/489h9g9/
+- 八零法医，带全家致富 https://www.shushe1687.com/book/489h9g5/
+- 禁止继承限制级雌君 https://www.shushe1687.com/book/489h9g1/
+- 魔改剧本后我爆火了[娱乐圈] https://www.shushe1687.com/book/489h9ft/
+- 恐游作精女配求生指南 https://www.shushe1687.com/book/489h9fp/
+- 欲和离？夫君他目不识丁 https://www.shushe1687.com/book/489h9fn/
+- 欲加之罪 https://www.shushe1687.com/book/489h9fm/
+- 仙尊心尖宠，但被魔尊抢了 https://www.shushe1687.com/book/489h9fl/
+- 死遁APP https://www.shushe1687.com/book/489h9fi/
+- 恐游里的邻居们[万人迷] https://www.shushe1687.com/book/489h9fd/
+- 暗恋的价格是三万块 https://www.shushe1687.com/book/489h9fb/
+- 我们小区穿末世 https://www.shushe1687.com/book/489h9fa/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.shushe1687.com/book/489h9f6/
+- 魔尊闭关十年连生十一子？！ https://www.shushe1687.com/book/489h9f4/
+- 在年代文里跑运输 https://www.shushe1687.com/book/489h9f2/
+- 国师 https://www.shushe1687.com/book/489h9f0/
+- 恶毒男配只想躺平 https://www.shushe1687.com/book/489h9ev/
+- 二次分化后他怀了死对头的崽 https://www.shushe1687.com/book/489h9eu/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.shushe1687.com/book/489h9ep/
+- [全职高手]治疗什么的不干了！ https://www.shushe1687.com/book/489h9en/
+- 世界伏于她刀下[无限] https://www.shushe1687.com/book/489h9em/
+- 星露谷，但日本战国 https://www.shushe1687.com/book/489h9ei/
+- 等我吃腻了再倒闭可以吗 https://www.shushe1687.com/book/489h9eg/
+- 谁说踢球就不能成为名侦探[足球] https://www.shushe1687.com/book/489h9ef/
+- [综英美]和亲友群穿哥谭以后 https://www.shushe1687.com/book/489h9ea/
+- 爱情的肯定句 https://www.shushe1687.com/book/489h9e8/
+- 强取师尊后 https://www.shushe1687.com/book/489h9e5/
+- 双生子反派的端水抑郁妈[九零] https://www.shushe1687.com/book/489h9e3/
+- 人，今晚土拨鼠站岗 https://www.shushe1687.com/book/489h9e2/
+- 怨明月不独照 https://www.shushe1687.com/book/489h9dt/
+- 漫画取材所引发的修罗场 https://www.shushe1687.com/book/489h9dp/
+- 炮灰的海外亲戚回国啦！ https://www.shushe1687.com/book/489h9do/
+- 国运求生：我的金手指是生命树 https://www.shushe1687.com/book/489h9dm/
+- 全民求生，但剑三 https://www.shushe1687.com/book/489h9di/
+- 万人嫌从末世回来了 https://www.shushe1687.com/book/489h9dh/
+- 病美人重生日记 https://www.shushe1687.com/book/489h9dg/
+- [原神]魔法使恋爱指南 https://www.shushe1687.com/book/489h9de/
+- 正是冬雪沸腾时 https://www.shushe1687.com/book/489h9db/
+- 从1951开始 https://www.shushe1687.com/book/489h9d8/
+- 烈火焚身[巴黎圣母院] https://www.shushe1687.com/book/489h9d7/
+- 魔法种田，从退队经营农场开始 https://www.shushe1687.com/book/489h9d6/
+- 失忆后和死对头有了崽 https://www.shushe1687.com/book/489h9d5/
+- 我只想上京赶考啊[聊斋] https://www.shushe1687.com/book/489h9d3/
+- 魔咒请说普通话[西幻] https://www.shushe1687.com/book/489h9d1/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.shushe1687.com/book/489h9cv/
+- 清穿女回来后[天幕] https://www.shushe1687.com/book/489h9cu/
+- [足球]雏鸟 https://www.shushe1687.com/book/489h9ct/
+- 穿咒术，但杀猴现场 https://www.shushe1687.com/book/489h9ck/
+- 起初，我只是想找个冤大头 https://www.shushe1687.com/book/489gvak/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.shushe1687.com/book/489gt8b/
+- 上个鬼班[无限] https://www.shushe1687.com/book/489gomh/
+- 九零重组小家庭 https://www.shushe1687.com/book/489ghqk/
+- 让暴君Alpha怀崽后 https://www.shushe1687.com/book/489ghha/
+- [足球]足坛人生模拟器 https://www.shushe1687.com/book/489gh09/
+- 在卷王和废物之间选择做吉祥物 https://www.shushe1687.com/book/489g6l4/
+- 从维多利亚时代开始 https://www.shushe1687.com/book/489g3h0/
+- 昭暮 https://www.shushe1687.com/book/489g1n0/
+- 十九世纪贵族厨房（美食） https://www.shushe1687.com/book/489funq/
+- 原配夫人 https://www.shushe1687.com/book/489fumg/
+- 星际团宠小人鱼 https://www.shushe1687.com/book/489fuk7/
+- 始乱终弃清冷首辅后 https://www.shushe1687.com/book/489fudm/
+- 完蛋！被恨孕男包围了！ https://www.shushe1687.com/book/489fnef/
+- 高调装神，猥琐发育 https://www.shushe1687.com/book/489fnds/
+- 食明 https://www.shushe1687.com/book/489fklh/
+- 诡话第一boss https://www.shushe1687.com/book/489fh6s/
+- 老实人妻，但顶级魅魔 https://www.shushe1687.com/book/489fere/
+- 专业女配的自我修养（快穿） https://www.shushe1687.com/book/489fdne/
+- [足球]我的游戏存档成真了？！ https://www.shushe1687.com/book/489f7v6/
+- 让你们无剧本可走（快穿） https://www.shushe1687.com/book/489f7fq/
+- 摄政王家的咸鱼夫郎 https://www.shushe1687.com/book/489f60q/
+- 我与龙傲天寿命共享 https://www.shushe1687.com/book/489f5hj/
+- 如何正确哄睡暴君 https://www.shushe1687.com/book/489f3st/
+- 我骗家里的钱养你啊 https://www.shushe1687.com/book/489eutr/
+- 死遁的亡夫们都回来了 https://www.shushe1687.com/book/489eum7/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.shushe1687.com/book/489esfk/
+- 沈助理又在隐藏他的超能力 https://www.shushe1687.com/book/489em6a/
+- 死对头又在挑衅我 https://www.shushe1687.com/book/489eler/
+- 在民俗惊悚片被诸神庇护 https://www.shushe1687.com/book/489elb7/
+- 被天使之王骗婚后[诡秘之主] https://www.shushe1687.com/book/489egdn/
+- 从童星开始杀穿港娱 https://www.shushe1687.com/book/489eg84/
+- 咦？我爸爸复活啦 https://www.shushe1687.com/book/489eg09/
+- 同时扮演贵族学院F4和平民校花 https://www.shushe1687.com/book/489eff3/
+- 开局绑定郭奉孝，谋定三国风云 https://www.shushe1687.com/book/489ed9h/
+- 韩团绿卡不想忍了 https://www.shushe1687.com/book/489ecn2/
+- 路人攻了主角攻［快穿］ https://www.shushe1687.com/book/489ebbu/
+- 我有一座地下城 https://www.shushe1687.com/book/489eae8/
+- 苏娘子汴京摆摊日常（美食） https://www.shushe1687.com/book/489e9a4/
+- 漂亮女配是万人迷［快穿］ https://www.shushe1687.com/book/489e8iq/
+- 阴阳师也可以打网球 https://www.shushe1687.com/book/489e4gu/
+- 多梦你一会儿 https://www.shushe1687.com/book/489e4ge/
+- [封神]圣人生欲 https://www.shushe1687.com/book/489e3op/
+- 和治君只是饭搭子的关系 https://www.shushe1687.com/book/489e2bk/
+- 和贵志君是世界第一的好朋友 https://www.shushe1687.com/book/489e2ah/
+- 如何嫁给当朝首辅 https://www.shushe1687.com/book/489e1o1/
+- 在魔法贵族学院当白月光 https://www.shushe1687.com/book/489e1l4/
+- 五条老师与他的封建妻子 https://www.shushe1687.com/book/489e1he/
+- 卷王后妈，八零养娃 https://www.shushe1687.com/book/489dvo8/
+- 我187了，你敢见我吗？ https://www.shushe1687.com/book/489dtrm/
+- 和姐姐的前女友欢愉后 https://www.shushe1687.com/book/489dpi6/
+- 大唐守军家属 https://www.shushe1687.com/book/489dh8v/
+- 朕也要被强制吗？ https://www.shushe1687.com/book/489dge6/
+- 在重生文里考科举 https://www.shushe1687.com/book/489dgch/
+- [足球]小小鸟堂堂来袭 https://www.shushe1687.com/book/489dfs6/
+- 死亡悖论[无限流] https://www.shushe1687.com/book/489dd4m/
+- 心动嫌疑人 https://www.shushe1687.com/book/489dcqv/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.shushe1687.com/book/489dbmf/
+- 妻主风流（女尊） https://www.shushe1687.com/book/489dbjc/
+- 这个位面归我了！[经营] https://www.shushe1687.com/book/489d91l/
+- 带清冷女主回乡养螃蟹[种田] https://www.shushe1687.com/book/489d8p0/
+- 趁她之危 https://www.shushe1687.com/book/489d8j7/
+- 清冷丞相怀了死对头的崽 https://www.shushe1687.com/book/489d5a7/
+- [崩铁]请给玩家一个准确的血条！ https://www.shushe1687.com/book/489d58g/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.shushe1687.com/book/489d4kg/
+- 村霸非要入赘受气包 https://www.shushe1687.com/book/489d4jb/
+- 被糟蹋的老实人决定反击 https://www.shushe1687.com/book/489d1pv/
+- 和山神搭伙开农场的日子 https://www.shushe1687.com/book/489d1l3/
+- 假意逢承 https://www.shushe1687.com/book/489cvcf/
+- 恶犬攻绑定上司的乖狗系统 https://www.shushe1687.com/book/489ctpa/
+- 权宋一只统 https://www.shushe1687.com/book/489cqs3/
+- 爱好和平但狂拆机甲 https://www.shushe1687.com/book/489cjn7/
+- 成为养成系练习生后 https://www.shushe1687.com/book/489bocp/
+- 仙门透明人被迫万人迷 https://www.shushe1687.com/book/489bobv/
+- 我有一座安全城 https://www.shushe1687.com/book/489bo57/
+- 寡妇美人模拟器 https://www.shushe1687.com/book/489bo1b/
+- 清澈女大的六零年代 https://www.shushe1687.com/book/489bnub/
+- 老公对不起 https://www.shushe1687.com/book/489bnqi/
+- 我是唯一地上神国 https://www.shushe1687.com/book/489bnog/
+- 海岛求生：生活玩家种田囤货 https://www.shushe1687.com/book/489bnll/
+- 95美国贵族高中模拟 https://www.shushe1687.com/book/489bnev/
+- 巨物致富：回乡开钓场 https://www.shushe1687.com/book/489bne7/
+- 六零之成了卷王的妹妹 https://www.shushe1687.com/book/489bnca/
+- 直男咒术师的限制级游戏 https://www.shushe1687.com/book/489bnc9/
+- 天幕今天也在直播我搞基建 https://www.shushe1687.com/book/489bn8n/
+- 大瑛弟国 https://www.shushe1687.com/book/489bmsn/
+- 五十年代港城日常 https://www.shushe1687.com/book/489bmm0/
+- [娱乐圈]过分美丽的她 https://www.shushe1687.com/book/489bm65/
+- 全民求生:从小木屋到魔法农场 https://www.shushe1687.com/book/489blv4/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.shushe1687.com/book/489bltf/
+- 日化人生[科研] https://www.shushe1687.com/book/489bloc/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.shushe1687.com/book/489ble3/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1353/index.md)

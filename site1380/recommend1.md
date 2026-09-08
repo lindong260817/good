@@ -1,175 +1,167 @@
 
 # 电子洗砂机小说网-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-09-07 03:27:59
+更新时间：2026-09-08 03:28:55
 
-电子洗砂机小说网提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
-
-- [电子洗砂机小说网](https://www.dzxishaji.com/)
+电子洗砂机小说网提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。 https://www.dzxishaji.com
 
 ## 最新小说
-- [和八个男人在极寒游戏求生](https://www.dzxishaji.com/book/70un0i8/)
-- [强取师尊后](https://www.dzxishaji.com/book/70umt5d/)
-- [正是冬雪沸腾时](https://www.dzxishaji.com/book/70umt5a/)
-- [世界伏于她刀下[无限]](https://www.dzxishaji.com/book/70umt58/)
-- [失忆后和死对头有了崽](https://www.dzxishaji.com/book/70umt57/)
-- [暗恋的价格是三万块](https://www.dzxishaji.com/book/70umt55/)
-- [[综英美]哥谭市民，在线抽卡](https://www.dzxishaji.com/book/70umt53/)
-- [欲和离？夫君他目不识丁](https://www.dzxishaji.com/book/70umt51/)
-- [魔法种田，从退队经营农场开始](https://www.dzxishaji.com/book/70umt50/)
-- [禁止继承限制级雌君](https://www.dzxishaji.com/book/70umt4v/)
-- [仙尊心尖宠，但被魔尊抢了](https://www.dzxishaji.com/book/70umt4t/)
-- [星露谷，但日本战国](https://www.dzxishaji.com/book/70umt4q/)
-- [爱情的肯定句](https://www.dzxishaji.com/book/70umt4p/)
-- [[足球]雏鸟](https://www.dzxishaji.com/book/70umt4l/)
-- [魔尊闭关十年连生十一子？！](https://www.dzxishaji.com/book/70umt4j/)
-- [等我吃腻了再倒闭可以吗](https://www.dzxishaji.com/book/70umt4i/)
-- [欲加之罪](https://www.dzxishaji.com/book/70umt4h/)
-- [[洪荒]成为太清妹妹后](https://www.dzxishaji.com/book/70umt4e/)
-- [占有欲Daddy是我老公？](https://www.dzxishaji.com/book/70umt4b/)
-- [魔改剧本后我爆火了[娱乐圈]](https://www.dzxishaji.com/book/70umt49/)
-- [穿咒术，但杀猴现场](https://www.dzxishaji.com/book/70umt48/)
-- [国运求生：我的金手指是生命树](https://www.dzxishaji.com/book/70umt47/)
-- [[全职高手]治疗什么的不干了！](https://www.dzxishaji.com/book/70umt46/)
-- [在中世纪做奴隶](https://www.dzxishaji.com/book/70umt43/)
-- [在年代文里跑运输](https://www.dzxishaji.com/book/70umt3v/)
-- [八零法医，带全家致富](https://www.dzxishaji.com/book/70umt3p/)
-- [SSS级异种都是我前任](https://www.dzxishaji.com/book/70umt3k/)
-- [[原神]魔法使恋爱指南](https://www.dzxishaji.com/book/70umt3h/)
-- [炮灰的海外亲戚回国啦！](https://www.dzxishaji.com/book/70umt3g/)
-- [万人嫌从末世回来了](https://www.dzxishaji.com/book/70umt3e/)
-- [病美人重生日记](https://www.dzxishaji.com/book/70umt3b/)
-- [乖乖女的杂货铺[八零]](https://www.dzxishaji.com/book/70umt39/)
-- [谁都不爱的和亲公主](https://www.dzxishaji.com/book/70umt35/)
-- [［综英美］蝙蝠崽？我不是啊！](https://www.dzxishaji.com/book/70umt34/)
-- [穿为龙傲天发妻后](https://www.dzxishaji.com/book/70umt30/)
-- [末世八年春，游戏降临](https://www.dzxishaji.com/book/70umt2r/)
-- [恐游作精女配求生指南](https://www.dzxishaji.com/book/70umt2i/)
-- [热恋过期需重追](https://www.dzxishaji.com/book/70umt2h/)
-- [前妻她肯定会后悔](https://www.dzxishaji.com/book/70umt2f/)
-- [恐游里的邻居们[万人迷]](https://www.dzxishaji.com/book/70umt2b/)
-- [漫画取材所引发的修罗场](https://www.dzxishaji.com/book/70umt2a/)
-- [国师](https://www.dzxishaji.com/book/70umt27/)
-- [我们小区穿末世](https://www.dzxishaji.com/book/70umt24/)
-- [谁说踢球就不能成为名侦探[足球]](https://www.dzxishaji.com/book/70umt21/)
-- [好心的俄罗斯人](https://www.dzxishaji.com/book/70umt1v/)
-- [恶毒男配只想躺平](https://www.dzxishaji.com/book/70umt1u/)
-- [大佬的漂亮老婆回来带崽了[八零]](https://www.dzxishaji.com/book/70umt1t/)
-- [怨明月不独照](https://www.dzxishaji.com/book/70umt1q/)
-- [夫人每天都在伪装](https://www.dzxishaji.com/book/70umt1i/)
-- [二次分化后他怀了死对头的崽](https://www.dzxishaji.com/book/70umt1e/)
-- [人，今晚土拨鼠站岗](https://www.dzxishaji.com/book/70umt1b/)
-- [清穿女回来后[天幕]](https://www.dzxishaji.com/book/70umt18/)
-- [［西幻］RPG就不要谈恋爱了吧！](https://www.dzxishaji.com/book/70umt17/)
-- [死遁APP](https://www.dzxishaji.com/book/70umt16/)
-- [全世界名为爱的恶意](https://www.dzxishaji.com/book/70umt14/)
-- [烈火焚身[巴黎圣母院]](https://www.dzxishaji.com/book/70umt13/)
-- [康熙宠妃日常](https://www.dzxishaji.com/book/70umt10/)
-- [双生子反派的端水抑郁妈[九零]](https://www.dzxishaji.com/book/70umt0u/)
-- [娘娘扶摇直上](https://www.dzxishaji.com/book/70umt0t/)
-- [我只想上京赶考啊[聊斋]](https://www.dzxishaji.com/book/70umt0s/)
-- [从1951开始](https://www.dzxishaji.com/book/70umt0r/)
-- [魔咒请说普通话[西幻]](https://www.dzxishaji.com/book/70umt0q/)
-- [全民求生，但剑三](https://www.dzxishaji.com/book/70umt0m/)
-- [起初，我只是想找个冤大头](https://www.dzxishaji.com/book/70umlbf/)
-- [上个鬼班[无限]](https://www.dzxishaji.com/book/70umhj1/)
-- [华夏神明震撼星际](https://www.dzxishaji.com/book/70umbo5/)
-- [[足球]足坛人生模拟器](https://www.dzxishaji.com/book/70uma8m/)
-- [[足球]拥有分身系统的我靠踢足球建设国家](https://www.dzxishaji.com/book/70um9bh/)
-- [我们生活玩家是这样的](https://www.dzxishaji.com/book/70um958/)
-- [让暴君Alpha怀崽后](https://www.dzxishaji.com/book/70um7iv/)
-- [神豪文男主是我爸](https://www.dzxishaji.com/book/70um56d/)
-- [在卷王和废物之间选择做吉祥物](https://www.dzxishaji.com/book/70ulvt7/)
-- [从维多利亚时代开始](https://www.dzxishaji.com/book/70ult2l/)
-- [昭暮](https://www.dzxishaji.com/book/70ulplg/)
-- [食明](https://www.dzxishaji.com/book/70ule0a/)
-- [诡话第一boss](https://www.dzxishaji.com/book/70ulas5/)
-- [老实人妻，但顶级魅魔](https://www.dzxishaji.com/book/70ul9ea/)
-- [专业女配的自我修养（快穿）](https://www.dzxishaji.com/book/70ul8qu/)
-- [[足球]我的游戏存档成真了？！](https://www.dzxishaji.com/book/70ul3q1/)
-- [我与龙傲天寿命共享](https://www.dzxishaji.com/book/70ul2fp/)
-- [摄政王家的咸鱼夫郎](https://www.dzxishaji.com/book/70ul1i7/)
-- [我骗家里的钱养你啊](https://www.dzxishaji.com/book/70ul114/)
-- [阴郁残疾炮灰被万人迷后[快穿]](https://www.dzxishaji.com/book/70ul00u/)
-- [怀了前任大哥的崽后](https://www.dzxishaji.com/book/70ukvq3/)
-- [社畜Beta也能被顶A觊觎吗](https://www.dzxishaji.com/book/70ukv1b/)
-- [让你们无剧本可走（快穿）](https://www.dzxishaji.com/book/70ukum7/)
-- [如何正确哄睡暴君](https://www.dzxishaji.com/book/70uktiu/)
-- [死遁的亡夫们都回来了](https://www.dzxishaji.com/book/70ukp58/)
-- [韩团绿卡不想忍了](https://www.dzxishaji.com/book/70ukk7u/)
-- [死对头又在挑衅我](https://www.dzxishaji.com/book/70ukfba/)
-- [假金丝雀深陷修罗场](https://www.dzxishaji.com/book/70ukf6e/)
-- [咦？我爸爸复活啦](https://www.dzxishaji.com/book/70ukem1/)
-- [被天使之王骗婚后[诡秘之主]](https://www.dzxishaji.com/book/70ukd3e/)
-- [沈助理又在隐藏他的超能力](https://www.dzxishaji.com/book/70ukd2l/)
-- [同时扮演贵族学院F4和平民校花](https://www.dzxishaji.com/book/70ukcq2/)
-- [美貌单出，杀穿港娱［八零］](https://www.dzxishaji.com/book/70ukat7/)
-- [浣熊市蝙蝠崽的哥谭居住指南](https://www.dzxishaji.com/book/70ukaa7/)
-- [苏娘子汴京摆摊日常（美食）](https://www.dzxishaji.com/book/70uk80c/)
-- [开局绑定郭奉孝，谋定三国风云](https://www.dzxishaji.com/book/70uk7sf/)
-- [路人攻了主角攻［快穿］](https://www.dzxishaji.com/book/70uk72b/)
-- [直男咒术师的限制级游戏](https://www.dzxishaji.com/book/70uk68u/)
-- [我有一座地下城](https://www.dzxishaji.com/book/70uk25v/)
-- [漂亮女配是万人迷［快穿］](https://www.dzxishaji.com/book/70uk1mp/)
-- [多梦你一会儿](https://www.dzxishaji.com/book/70uk0me/)
-- [如何嫁给当朝首辅](https://www.dzxishaji.com/book/70ujunj/)
-- [阴阳师也可以打网球](https://www.dzxishaji.com/book/70ujulv/)
-- [和治君只是饭搭子的关系](https://www.dzxishaji.com/book/70uju1o/)
-- [和贵志君是世界第一的好朋友](https://www.dzxishaji.com/book/70ujttm/)
-- [五条老师与他的封建妻子](https://www.dzxishaji.com/book/70ujt2g/)
-- [我司艺人永不塌房](https://www.dzxishaji.com/book/70ujrvr/)
-- [在魔法贵族学院当白月光](https://www.dzxishaji.com/book/70ujrql/)
-- [我187了，你敢见我吗？](https://www.dzxishaji.com/book/70ujnth/)
-- [和姐姐的前女友欢愉后](https://www.dzxishaji.com/book/70ujkm2/)
-- [[足球]小小鸟堂堂来袭](https://www.dzxishaji.com/book/70ujeqa/)
-- [朕也要被强制吗？](https://www.dzxishaji.com/book/70ujctl/)
-- [大唐守军家属](https://www.dzxishaji.com/book/70ujceb/)
-- [心动嫌疑人](https://www.dzxishaji.com/book/70ujcb5/)
-- [在重生文里考科举](https://www.dzxishaji.com/book/70uja2d/)
-- [让霸刀山庄重回忍界之巅[综剑三]](https://www.dzxishaji.com/book/70uj9cb/)
-- [这个位面归我了！[经营]](https://www.dzxishaji.com/book/70uj68l/)
-- [妻主风流（女尊）](https://www.dzxishaji.com/book/70uj5k7/)
-- [死亡悖论[无限流]](https://www.dzxishaji.com/book/70uj4va/)
-- [[崩铁]请给玩家一个准确的血条！](https://www.dzxishaji.com/book/70uj3ad/)
-- [清冷丞相怀了死对头的崽](https://www.dzxishaji.com/book/70uj1o4/)
-- [带清冷女主回乡养螃蟹[种田]](https://www.dzxishaji.com/book/70uj105/)
-- [村霸非要入赘受气包](https://www.dzxishaji.com/book/70uivpg/)
-- [逃出金丝笼，我力挽山河开国称帝](https://www.dzxishaji.com/book/70uiv70/)
-- [和山神搭伙开农场的日子](https://www.dzxishaji.com/book/70uiupj/)
-- [[综英美]和亲友群穿哥谭以后](https://www.dzxishaji.com/book/70uis50/)
-- [假意逢承](https://www.dzxishaji.com/book/70uir5i/)
-- [被糟蹋的老实人决定反击](https://www.dzxishaji.com/book/70uir4e/)
-- [权宋一只统](https://www.dzxishaji.com/book/70uin34/)
-- [恶犬攻绑定上司的乖狗系统](https://www.dzxishaji.com/book/70uim0g/)
-- [爱好和平但狂拆机甲](https://www.dzxishaji.com/book/70uih9m/)
-- [你让魔王组建勇者小队？](https://www.dzxishaji.com/book/70uid5t/)
-- [巨物致富：回乡开钓场](https://www.dzxishaji.com/book/70uhhv7/)
-- [日化人生[科研]](https://www.dzxishaji.com/book/70uhhjh/)
-- [高门小婢](https://www.dzxishaji.com/book/70uhhja/)
-- [[封神]圣人生欲](https://www.dzxishaji.com/book/70uhhfu/)
-- [我有一座安全城](https://www.dzxishaji.com/book/70uhh81/)
-- [[娱乐圈]过分美丽的她](https://www.dzxishaji.com/book/70uhgui/)
-- [海岛求生：生活玩家种田囤货](https://www.dzxishaji.com/book/70uhgs3/)
-- [始乱终弃清冷首辅后](https://www.dzxishaji.com/book/70uhgs1/)
-- [我是唯一地上神国](https://www.dzxishaji.com/book/70uhglv/)
-- [星际团宠小人鱼](https://www.dzxishaji.com/book/70uhgia/)
-- [趁她之危](https://www.dzxishaji.com/book/70uhghm/)
-- [完蛋！被恨孕男包围了！](https://www.dzxishaji.com/book/70uhghk/)
-- [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.dzxishaji.com/book/70uhge6/)
-- [清澈女大的六零年代](https://www.dzxishaji.com/book/70uhgdg/)
-- [五十年代港城日常](https://www.dzxishaji.com/book/70uhgce/)
-- [原配夫人](https://www.dzxishaji.com/book/70uhg5r/)
-- [卷王后妈，八零养娃](https://www.dzxishaji.com/book/70uhfqo/)
-- [大瑛弟国](https://www.dzxishaji.com/book/70uhfqm/)
-- [六零之成了卷王的妹妹](https://www.dzxishaji.com/book/70uhfm0/)
-- [成为养成系练习生后](https://www.dzxishaji.com/book/70uhfle/)
-- [老公对不起](https://www.dzxishaji.com/book/70uhfim/)
-- [全民求生:从小木屋到魔法农场](https://www.dzxishaji.com/book/70uhfhj/)
-- [95美国贵族高中模拟](https://www.dzxishaji.com/book/70uhf94/)
-- [十九世纪贵族厨房（美食）](https://www.dzxishaji.com/book/70uhf5q/)
-- [假少爷离开后](https://www.dzxishaji.com/book/70uhf5i/)
-- [在民俗惊悚片被诸神庇护](https://www.dzxishaji.com/book/70uhesj/)
-- [高调装神，猥琐发育](https://www.dzxishaji.com/book/70uheqj/)
+- 强取师尊后 https://www.dzxishaji.com/book/70umt5d/
+- 正是冬雪沸腾时 https://www.dzxishaji.com/book/70umt5a/
+- 世界伏于她刀下[无限] https://www.dzxishaji.com/book/70umt58/
+- 失忆后和死对头有了崽 https://www.dzxishaji.com/book/70umt57/
+- 暗恋的价格是三万块 https://www.dzxishaji.com/book/70umt55/
+- [综英美]哥谭市民，在线抽卡 https://www.dzxishaji.com/book/70umt53/
+- 欲和离？夫君他目不识丁 https://www.dzxishaji.com/book/70umt51/
+- 魔法种田，从退队经营农场开始 https://www.dzxishaji.com/book/70umt50/
+- 禁止继承限制级雌君 https://www.dzxishaji.com/book/70umt4v/
+- 仙尊心尖宠，但被魔尊抢了 https://www.dzxishaji.com/book/70umt4t/
+- 星露谷，但日本战国 https://www.dzxishaji.com/book/70umt4q/
+- 爱情的肯定句 https://www.dzxishaji.com/book/70umt4p/
+- [足球]雏鸟 https://www.dzxishaji.com/book/70umt4l/
+- 魔尊闭关十年连生十一子？！ https://www.dzxishaji.com/book/70umt4j/
+- 等我吃腻了再倒闭可以吗 https://www.dzxishaji.com/book/70umt4i/
+- 欲加之罪 https://www.dzxishaji.com/book/70umt4h/
+- [洪荒]成为太清妹妹后 https://www.dzxishaji.com/book/70umt4e/
+- 占有欲Daddy是我老公？ https://www.dzxishaji.com/book/70umt4b/
+- 魔改剧本后我爆火了[娱乐圈] https://www.dzxishaji.com/book/70umt49/
+- 穿咒术，但杀猴现场 https://www.dzxishaji.com/book/70umt48/
+- 国运求生：我的金手指是生命树 https://www.dzxishaji.com/book/70umt47/
+- [全职高手]治疗什么的不干了！ https://www.dzxishaji.com/book/70umt46/
+- 在中世纪做奴隶 https://www.dzxishaji.com/book/70umt43/
+- 在年代文里跑运输 https://www.dzxishaji.com/book/70umt3v/
+- 八零法医，带全家致富 https://www.dzxishaji.com/book/70umt3p/
+- SSS级异种都是我前任 https://www.dzxishaji.com/book/70umt3k/
+- [原神]魔法使恋爱指南 https://www.dzxishaji.com/book/70umt3h/
+- 炮灰的海外亲戚回国啦！ https://www.dzxishaji.com/book/70umt3g/
+- 万人嫌从末世回来了 https://www.dzxishaji.com/book/70umt3e/
+- 病美人重生日记 https://www.dzxishaji.com/book/70umt3b/
+- 乖乖女的杂货铺[八零] https://www.dzxishaji.com/book/70umt39/
+- 谁都不爱的和亲公主 https://www.dzxishaji.com/book/70umt35/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.dzxishaji.com/book/70umt34/
+- 穿为龙傲天发妻后 https://www.dzxishaji.com/book/70umt30/
+- 末世八年春，游戏降临 https://www.dzxishaji.com/book/70umt2r/
+- 恐游作精女配求生指南 https://www.dzxishaji.com/book/70umt2i/
+- 热恋过期需重追 https://www.dzxishaji.com/book/70umt2h/
+- 前妻她肯定会后悔 https://www.dzxishaji.com/book/70umt2f/
+- 恐游里的邻居们[万人迷] https://www.dzxishaji.com/book/70umt2b/
+- 漫画取材所引发的修罗场 https://www.dzxishaji.com/book/70umt2a/
+- 国师 https://www.dzxishaji.com/book/70umt27/
+- 我们小区穿末世 https://www.dzxishaji.com/book/70umt24/
+- 谁说踢球就不能成为名侦探[足球] https://www.dzxishaji.com/book/70umt21/
+- 好心的俄罗斯人 https://www.dzxishaji.com/book/70umt1v/
+- 恶毒男配只想躺平 https://www.dzxishaji.com/book/70umt1u/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.dzxishaji.com/book/70umt1t/
+- 怨明月不独照 https://www.dzxishaji.com/book/70umt1q/
+- 夫人每天都在伪装 https://www.dzxishaji.com/book/70umt1i/
+- 二次分化后他怀了死对头的崽 https://www.dzxishaji.com/book/70umt1e/
+- 人，今晚土拨鼠站岗 https://www.dzxishaji.com/book/70umt1b/
+- 清穿女回来后[天幕] https://www.dzxishaji.com/book/70umt18/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.dzxishaji.com/book/70umt17/
+- 死遁APP https://www.dzxishaji.com/book/70umt16/
+- 全世界名为爱的恶意 https://www.dzxishaji.com/book/70umt14/
+- 烈火焚身[巴黎圣母院] https://www.dzxishaji.com/book/70umt13/
+- 康熙宠妃日常 https://www.dzxishaji.com/book/70umt10/
+- 双生子反派的端水抑郁妈[九零] https://www.dzxishaji.com/book/70umt0u/
+- 娘娘扶摇直上 https://www.dzxishaji.com/book/70umt0t/
+- 我只想上京赶考啊[聊斋] https://www.dzxishaji.com/book/70umt0s/
+- 从1951开始 https://www.dzxishaji.com/book/70umt0r/
+- 魔咒请说普通话[西幻] https://www.dzxishaji.com/book/70umt0q/
+- 全民求生，但剑三 https://www.dzxishaji.com/book/70umt0m/
+- 天幕今天也在直播我搞基建 https://www.dzxishaji.com/book/70umlu7/
+- 起初，我只是想找个冤大头 https://www.dzxishaji.com/book/70umlbf/
+- 上个鬼班[无限] https://www.dzxishaji.com/book/70umhj1/
+- 仙门透明人被迫万人迷 https://www.dzxishaji.com/book/70umgj2/
+- [足球]足坛人生模拟器 https://www.dzxishaji.com/book/70uma8m/
+- 九零重组小家庭 https://www.dzxishaji.com/book/70um9mu/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.dzxishaji.com/book/70um9bh/
+- 让暴君Alpha怀崽后 https://www.dzxishaji.com/book/70um7iv/
+- 在卷王和废物之间选择做吉祥物 https://www.dzxishaji.com/book/70ulvt7/
+- 从维多利亚时代开始 https://www.dzxishaji.com/book/70ult2l/
+- 昭暮 https://www.dzxishaji.com/book/70ulplg/
+- 食明 https://www.dzxishaji.com/book/70ule0a/
+- 诡话第一boss https://www.dzxishaji.com/book/70ulas5/
+- 老实人妻，但顶级魅魔 https://www.dzxishaji.com/book/70ul9ea/
+- 专业女配的自我修养（快穿） https://www.dzxishaji.com/book/70ul8qu/
+- [足球]我的游戏存档成真了？！ https://www.dzxishaji.com/book/70ul3q1/
+- 我与龙傲天寿命共享 https://www.dzxishaji.com/book/70ul2fp/
+- 摄政王家的咸鱼夫郎 https://www.dzxishaji.com/book/70ul1i7/
+- 我骗家里的钱养你啊 https://www.dzxishaji.com/book/70ul114/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.dzxishaji.com/book/70ul00u/
+- 让你们无剧本可走（快穿） https://www.dzxishaji.com/book/70ukum7/
+- 如何正确哄睡暴君 https://www.dzxishaji.com/book/70uktiu/
+- 死遁的亡夫们都回来了 https://www.dzxishaji.com/book/70ukp58/
+- 韩团绿卡不想忍了 https://www.dzxishaji.com/book/70ukk7u/
+- 死对头又在挑衅我 https://www.dzxishaji.com/book/70ukfba/
+- 咦？我爸爸复活啦 https://www.dzxishaji.com/book/70ukem1/
+- 被天使之王骗婚后[诡秘之主] https://www.dzxishaji.com/book/70ukd3e/
+- 沈助理又在隐藏他的超能力 https://www.dzxishaji.com/book/70ukd2l/
+- 同时扮演贵族学院F4和平民校花 https://www.dzxishaji.com/book/70ukcq2/
+- 从童星开始杀穿港娱 https://www.dzxishaji.com/book/70ukat7/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.dzxishaji.com/book/70ukaa7/
+- 苏娘子汴京摆摊日常（美食） https://www.dzxishaji.com/book/70uk80c/
+- 开局绑定郭奉孝，谋定三国风云 https://www.dzxishaji.com/book/70uk7sf/
+- 路人攻了主角攻［快穿］ https://www.dzxishaji.com/book/70uk72b/
+- 直男咒术师的限制级游戏 https://www.dzxishaji.com/book/70uk68u/
+- 我有一座地下城 https://www.dzxishaji.com/book/70uk25v/
+- 漂亮女配是万人迷［快穿］ https://www.dzxishaji.com/book/70uk1mp/
+- 多梦你一会儿 https://www.dzxishaji.com/book/70uk0me/
+- 如何嫁给当朝首辅 https://www.dzxishaji.com/book/70ujunj/
+- 阴阳师也可以打网球 https://www.dzxishaji.com/book/70ujulv/
+- 和治君只是饭搭子的关系 https://www.dzxishaji.com/book/70uju1o/
+- 和贵志君是世界第一的好朋友 https://www.dzxishaji.com/book/70ujttm/
+- 五条老师与他的封建妻子 https://www.dzxishaji.com/book/70ujt2g/
+- 在魔法贵族学院当白月光 https://www.dzxishaji.com/book/70ujrql/
+- 我187了，你敢见我吗？ https://www.dzxishaji.com/book/70ujnth/
+- 和姐姐的前女友欢愉后 https://www.dzxishaji.com/book/70ujkm2/
+- [足球]小小鸟堂堂来袭 https://www.dzxishaji.com/book/70ujeqa/
+- 朕也要被强制吗？ https://www.dzxishaji.com/book/70ujctl/
+- 大唐守军家属 https://www.dzxishaji.com/book/70ujceb/
+- 心动嫌疑人 https://www.dzxishaji.com/book/70ujcb5/
+- 在重生文里考科举 https://www.dzxishaji.com/book/70uja2d/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.dzxishaji.com/book/70uj9cb/
+- 这个位面归我了！[经营] https://www.dzxishaji.com/book/70uj68l/
+- 妻主风流（女尊） https://www.dzxishaji.com/book/70uj5k7/
+- 死亡悖论[无限流] https://www.dzxishaji.com/book/70uj4va/
+- [崩铁]请给玩家一个准确的血条！ https://www.dzxishaji.com/book/70uj3ad/
+- 清冷丞相怀了死对头的崽 https://www.dzxishaji.com/book/70uj1o4/
+- 带清冷女主回乡养螃蟹[种田] https://www.dzxishaji.com/book/70uj105/
+- 村霸非要入赘受气包 https://www.dzxishaji.com/book/70uivpg/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.dzxishaji.com/book/70uiv70/
+- 和山神搭伙开农场的日子 https://www.dzxishaji.com/book/70uiupj/
+- [综英美]和亲友群穿哥谭以后 https://www.dzxishaji.com/book/70uis50/
+- 假意逢承 https://www.dzxishaji.com/book/70uir5i/
+- 被糟蹋的老实人决定反击 https://www.dzxishaji.com/book/70uir4e/
+- 权宋一只统 https://www.dzxishaji.com/book/70uin34/
+- 恶犬攻绑定上司的乖狗系统 https://www.dzxishaji.com/book/70uim0g/
+- 爱好和平但狂拆机甲 https://www.dzxishaji.com/book/70uih9m/
+- 你让魔王组建勇者小队？ https://www.dzxishaji.com/book/70uid5t/
+- 巨物致富：回乡开钓场 https://www.dzxishaji.com/book/70uhhv7/
+- 日化人生[科研] https://www.dzxishaji.com/book/70uhhjh/
+- [封神]圣人生欲 https://www.dzxishaji.com/book/70uhhfu/
+- 我有一座安全城 https://www.dzxishaji.com/book/70uhh81/
+- [娱乐圈]过分美丽的她 https://www.dzxishaji.com/book/70uhgui/
+- 海岛求生：生活玩家种田囤货 https://www.dzxishaji.com/book/70uhgs3/
+- 始乱终弃清冷首辅后 https://www.dzxishaji.com/book/70uhgs1/
+- 我是唯一地上神国 https://www.dzxishaji.com/book/70uhglv/
+- 星际团宠小人鱼 https://www.dzxishaji.com/book/70uhgia/
+- 趁她之危 https://www.dzxishaji.com/book/70uhghm/
+- 完蛋！被恨孕男包围了！ https://www.dzxishaji.com/book/70uhghk/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.dzxishaji.com/book/70uhge6/
+- 清澈女大的六零年代 https://www.dzxishaji.com/book/70uhgdg/
+- 五十年代港城日常 https://www.dzxishaji.com/book/70uhgce/
+- 原配夫人 https://www.dzxishaji.com/book/70uhg5r/
+- 卷王后妈，八零养娃 https://www.dzxishaji.com/book/70uhfqo/
+- 大瑛弟国 https://www.dzxishaji.com/book/70uhfqm/
+- 六零之成了卷王的妹妹 https://www.dzxishaji.com/book/70uhfm0/
+- 成为养成系练习生后 https://www.dzxishaji.com/book/70uhfle/
+- 老公对不起 https://www.dzxishaji.com/book/70uhfim/
+- 全民求生:从小木屋到魔法农场 https://www.dzxishaji.com/book/70uhfhj/
+- 寡妇美人模拟器 https://www.dzxishaji.com/book/70uhffu/
+- 95美国贵族高中模拟 https://www.dzxishaji.com/book/70uhf94/
+- 十九世纪贵族厨房（美食） https://www.dzxishaji.com/book/70uhf5q/
+- 在民俗惊悚片被诸神庇护 https://www.dzxishaji.com/book/70uhesj/
+- 高调装神，猥琐发育 https://www.dzxishaji.com/book/70uheqj/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1380/index.md)

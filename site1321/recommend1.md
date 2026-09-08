@@ -1,175 +1,167 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-09-07 03:27:41
+更新时间：2026-09-08 03:28:37
 
-读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
-
-- [读者香书小说](https://www.duzhe888.com/)
+读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。 https://www.duzhe888.com
 
 ## 最新小说
-- [和八个男人在极寒游戏求生](https://www.duzhe888.com/book/2koepgl/)
-- [全世界名为爱的恶意](https://www.duzhe888.com/book/2koepgj/)
-- [二次分化后他怀了死对头的崽](https://www.duzhe888.com/book/2koepgh/)
-- [[原神]魔法使恋爱指南](https://www.duzhe888.com/book/2koepgg/)
-- [爱情的肯定句](https://www.duzhe888.com/book/2koepgf/)
-- [热恋过期需重追](https://www.duzhe888.com/book/2koepge/)
-- [[全职高手]治疗什么的不干了！](https://www.duzhe888.com/book/2koepgd/)
-- [炮灰的海外亲戚回国啦！](https://www.duzhe888.com/book/2koepgc/)
-- [[足球]雏鸟](https://www.duzhe888.com/book/2koepgb/)
-- [人，今晚土拨鼠站岗](https://www.duzhe888.com/book/2koepga/)
-- [谁说踢球就不能成为名侦探[足球]](https://www.duzhe888.com/book/2koepg9/)
-- [八零法医，带全家致富](https://www.duzhe888.com/book/2koepg8/)
-- [夫人每天都在伪装](https://www.duzhe888.com/book/2koepg7/)
-- [清穿女回来后[天幕]](https://www.duzhe888.com/book/2koepg6/)
-- [恐游作精女配求生指南](https://www.duzhe888.com/book/2koepg5/)
-- [死遁APP](https://www.duzhe888.com/book/2koepg4/)
-- [烈火焚身[巴黎圣母院]](https://www.duzhe888.com/book/2koepg3/)
-- [魔尊闭关十年连生十一子？！](https://www.duzhe888.com/book/2koepg2/)
-- [SSS级异种都是我前任](https://www.duzhe888.com/book/2koepg1/)
-- [穿为龙傲天发妻后](https://www.duzhe888.com/book/2koepg0/)
-- [漫画取材所引发的修罗场](https://www.duzhe888.com/book/2koepfv/)
-- [和治君只是饭搭子的关系](https://www.duzhe888.com/book/2koepfu/)
-- [乖乖女的杂货铺[八零]](https://www.duzhe888.com/book/2koepft/)
-- [魔改剧本后我爆火了[娱乐圈]](https://www.duzhe888.com/book/2koepfs/)
-- [强取师尊后](https://www.duzhe888.com/book/2koepfr/)
-- [大佬的漂亮老婆回来带崽了[八零]](https://www.duzhe888.com/book/2koepfq/)
-- [[综英美]和亲友群穿哥谭以后](https://www.duzhe888.com/book/2koepfp/)
-- [我骗家里的钱养你啊](https://www.duzhe888.com/book/2koepfo/)
-- [你让魔王组建勇者小队？](https://www.duzhe888.com/book/2koepfn/)
-- [世界伏于她刀下[无限]](https://www.duzhe888.com/book/2koepfm/)
-- [双生子反派的端水抑郁妈[九零]](https://www.duzhe888.com/book/2koepfl/)
-- [星露谷，但日本战国](https://www.duzhe888.com/book/2koepfk/)
-- [［综英美］蝙蝠崽？我不是啊！](https://www.duzhe888.com/book/2koepfj/)
-- [[崩铁]请给玩家一个准确的血条！](https://www.duzhe888.com/book/2koepfi/)
-- [我只想上京赶考啊[聊斋]](https://www.duzhe888.com/book/2koepfh/)
-- [欲和离？夫君他目不识丁](https://www.duzhe888.com/book/2koepfg/)
-- [万人嫌从末世回来了](https://www.duzhe888.com/book/2koepfe/)
-- [我们小区穿末世](https://www.duzhe888.com/book/2koepfd/)
-- [占有欲Daddy是我老公？](https://www.duzhe888.com/book/2koepfc/)
-- [恶毒男配只想躺平](https://www.duzhe888.com/book/2koepfb/)
-- [暗恋的价格是三万块](https://www.duzhe888.com/book/2koepfa/)
-- [魔咒请说普通话[西幻]](https://www.duzhe888.com/book/2koepf9/)
-- [谁都不爱的和亲公主](https://www.duzhe888.com/book/2koepf8/)
-- [国运求生：我的金手指是生命树](https://www.duzhe888.com/book/2koepf7/)
-- [穿咒术，但杀猴现场](https://www.duzhe888.com/book/2koepf6/)
-- [康熙宠妃日常](https://www.duzhe888.com/book/2koepf5/)
-- [全民求生，但剑三](https://www.duzhe888.com/book/2koepf4/)
-- [魔法种田，从退队经营农场开始](https://www.duzhe888.com/book/2koepf3/)
-- [禁止继承限制级雌君](https://www.duzhe888.com/book/2koepf2/)
-- [在中世纪做奴隶](https://www.duzhe888.com/book/2koepf1/)
-- [[足球]小小鸟堂堂来袭](https://www.duzhe888.com/book/2koepf0/)
-- [病美人重生日记](https://www.duzhe888.com/book/2koepev/)
-- [同时扮演贵族学院F4和平民校花](https://www.duzhe888.com/book/2koepeu/)
-- [在年代文里跑运输](https://www.duzhe888.com/book/2koepet/)
-- [娘娘扶摇直上](https://www.duzhe888.com/book/2koepes/)
-- [好心的俄罗斯人](https://www.duzhe888.com/book/2koeper/)
-- [[洪荒]成为太清妹妹后](https://www.duzhe888.com/book/2koepeq/)
-- [国师](https://www.duzhe888.com/book/2koepep/)
-- [末世八年春，游戏降临](https://www.duzhe888.com/book/2koepeo/)
-- [如何正确哄睡暴君](https://www.duzhe888.com/book/2koepen/)
-- [从1951开始](https://www.duzhe888.com/book/2koepem/)
-- [怨明月不独照](https://www.duzhe888.com/book/2koepel/)
-- [欲加之罪](https://www.duzhe888.com/book/2koepek/)
-- [前妻她肯定会后悔](https://www.duzhe888.com/book/2koepej/)
-- [咦？我爸爸复活啦](https://www.duzhe888.com/book/2koepei/)
-- [阴郁残疾炮灰被万人迷后[快穿]](https://www.duzhe888.com/book/2koepeh/)
-- [仙尊心尖宠，但被魔尊抢了](https://www.duzhe888.com/book/2koepeg/)
-- [正是冬雪沸腾时](https://www.duzhe888.com/book/2koepef/)
-- [[综英美]哥谭市民，在线抽卡](https://www.duzhe888.com/book/2koepee/)
-- [［西幻］RPG就不要谈恋爱了吧！](https://www.duzhe888.com/book/2koeped/)
-- [恐游里的邻居们[万人迷]](https://www.duzhe888.com/book/2koepec/)
-- [失忆后和死对头有了崽](https://www.duzhe888.com/book/2koepeb/)
-- [等我吃腻了再倒闭可以吗](https://www.duzhe888.com/book/2koepea/)
-- [我司艺人永不塌房](https://www.duzhe888.com/book/2koepds/)
-- [我们生活玩家是这样的](https://www.duzhe888.com/book/2koepad/)
-- [星际团宠小人鱼](https://www.duzhe888.com/book/2koep8p/)
-- [原配夫人](https://www.duzhe888.com/book/2koep7k/)
-- [始乱终弃清冷首辅后](https://www.duzhe888.com/book/2koep7a/)
-- [十九世纪贵族厨房（美食）](https://www.duzhe888.com/book/2koep77/)
-- [[封神]圣人生欲](https://www.duzhe888.com/book/2koep6l/)
-- [高调装神，猥琐发育](https://www.duzhe888.com/book/2koep6g/)
-- [假少爷离开后](https://www.duzhe888.com/book/2koep6e/)
-- [浣熊市蝙蝠崽的哥谭居住指南](https://www.duzhe888.com/book/2koep5g/)
-- [直男咒术师的限制级游戏](https://www.duzhe888.com/book/2koep4k/)
-- [六零之成了卷王的妹妹](https://www.duzhe888.com/book/2koenpq/)
-- [路人攻了主角攻［快穿］](https://www.duzhe888.com/book/2koenn4/)
-- [昭暮](https://www.duzhe888.com/book/2koee6e/)
-- [[足球]拥有分身系统的我靠踢足球建设国家](https://www.duzhe888.com/book/2kodo12/)
-- [老公对不起](https://www.duzhe888.com/book/2kodauo/)
-- [[足球]足坛人生模拟器](https://www.duzhe888.com/book/2koct8k/)
-- [上个鬼班[无限]](https://www.duzhe888.com/book/2kocram/)
-- [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.duzhe888.com/book/2kocor0/)
-- [在卷王和废物之间选择做吉祥物](https://www.duzhe888.com/book/2kock54/)
-- [从维多利亚时代开始](https://www.duzhe888.com/book/2kocdco/)
-- [神豪文男主是我爸](https://www.duzhe888.com/book/2kobvde/)
-- [如何嫁给当朝首辅](https://www.duzhe888.com/book/2kobv7u/)
-- [食明](https://www.duzhe888.com/book/2kobud1/)
-- [诡话第一boss](https://www.duzhe888.com/book/2kobr52/)
-- [让暴君Alpha怀崽后](https://www.duzhe888.com/book/2kobl6h/)
-- [专业女配的自我修养（快穿）](https://www.duzhe888.com/book/2kobl3v/)
-- [日化人生[科研]](https://www.duzhe888.com/book/2kobi7k/)
-- [老实人妻，但顶级魅魔](https://www.duzhe888.com/book/2kobi6l/)
-- [[足球]我的游戏存档成真了？！](https://www.duzhe888.com/book/2kobh00/)
-- [巨物致富：回乡开钓场](https://www.duzhe888.com/book/2kobf0u/)
-- [趁她之危](https://www.duzhe888.com/book/2kobe39/)
-- [让你们无剧本可走（快穿）](https://www.duzhe888.com/book/2kobcvu/)
-- [社畜Beta也能被顶A觊觎吗](https://www.duzhe888.com/book/2kobcrl/)
-- [摄政王家的咸鱼夫郎](https://www.duzhe888.com/book/2kob7dg/)
-- [起初，我只是想找个冤大头](https://www.duzhe888.com/book/2kob6mg/)
-- [怀了前任大哥的崽后](https://www.duzhe888.com/book/8fa29p/)
-- [死遁的亡夫们都回来了](https://www.duzhe888.com/book/8fa1d6/)
-- [沈助理又在隐藏他的超能力](https://www.duzhe888.com/book/8f9v0q/)
-- [成为养成系练习生后](https://www.duzhe888.com/book/8f9ts8/)
-- [假金丝雀深陷修罗场](https://www.duzhe888.com/book/8f9t7s/)
-- [死对头又在挑衅我](https://www.duzhe888.com/book/8f9qe6/)
-- [我有一座地下城](https://www.duzhe888.com/book/8f9oeb/)
-- [美貌单出，杀穿港娱［八零］](https://www.duzhe888.com/book/8f9o3g/)
-- [被天使之王骗婚后[诡秘之主]](https://www.duzhe888.com/book/8f9nd2/)
-- [漂亮女配是万人迷［快穿］](https://www.duzhe888.com/book/8f9me3/)
-- [我187了，你敢见我吗？](https://www.duzhe888.com/book/8f9f6l/)
-- [和贵志君是世界第一的好朋友](https://www.duzhe888.com/book/8f9don/)
-- [和姐姐的前女友欢愉后](https://www.duzhe888.com/book/8f9a45/)
-- [阴阳师也可以打网球](https://www.duzhe888.com/book/8f9a19/)
-- [五条老师与他的封建妻子](https://www.duzhe888.com/book/8f9882/)
-- [我与龙傲天寿命共享](https://www.duzhe888.com/book/8f97ro/)
-- [大唐守军家属](https://www.duzhe888.com/book/8f9312/)
-- [朕也要被强制吗？](https://www.duzhe888.com/book/8f8urc/)
-- [在重生文里考科举](https://www.duzhe888.com/book/8f8ue0/)
-- [妻主风流（女尊）](https://www.duzhe888.com/book/8f8ru6/)
-- [多梦你一会儿](https://www.duzhe888.com/book/8f8mep/)
-- [逃出金丝笼，我力挽山河开国称帝](https://www.duzhe888.com/book/8f8lfd/)
-- [这个位面归我了！[经营]](https://www.duzhe888.com/book/8f8k06/)
-- [韩团绿卡不想忍了](https://www.duzhe888.com/book/8f8jrm/)
-- [被糟蹋的老实人决定反击](https://www.duzhe888.com/book/8f8ip8/)
-- [村霸非要入赘受气包](https://www.duzhe888.com/book/8f8ia0/)
-- [卷王后妈，八零养娃](https://www.duzhe888.com/book/8f8hit/)
-- [清冷丞相怀了死对头的崽](https://www.duzhe888.com/book/8f8gfa/)
-- [让霸刀山庄重回忍界之巅[综剑三]](https://www.duzhe888.com/book/8f8fle/)
-- [心动嫌疑人](https://www.duzhe888.com/book/8f8eat/)
-- [和山神搭伙开农场的日子](https://www.duzhe888.com/book/8f8dag/)
-- [假意逢承](https://www.duzhe888.com/book/8f8bc7/)
-- [恶犬攻绑定上司的乖狗系统](https://www.duzhe888.com/book/8f8adl/)
-- [在民俗惊悚片被诸神庇护](https://www.duzhe888.com/book/8f8a5n/)
-- [带清冷女主回乡养螃蟹[种田]](https://www.duzhe888.com/book/8f8984/)
-- [死亡悖论[无限流]](https://www.duzhe888.com/book/8f8866/)
-- [权宋一只统](https://www.duzhe888.com/book/8f876e/)
-- [爱好和平但狂拆机甲](https://www.duzhe888.com/book/8f871a/)
-- [在魔法贵族学院当白月光](https://www.duzhe888.com/book/r3vre/)
-- [大瑛弟国](https://www.duzhe888.com/book/r3vmo/)
-- [华夏神明震撼星际](https://www.duzhe888.com/book/r3vgv/)
-- [95美国贵族高中模拟](https://www.duzhe888.com/book/r3vc6/)
-- [[娱乐圈]过分美丽的她](https://www.duzhe888.com/book/r3v0d/)
-- [清澈女大的六零年代](https://www.duzhe888.com/book/r3uqd/)
-- [完蛋！被恨孕男包围了！](https://www.duzhe888.com/book/r3ugo/)
-- [全民求生:从小木屋到魔法农场](https://www.duzhe888.com/book/r3ufs/)
-- [海岛求生：生活玩家种田囤货](https://www.duzhe888.com/book/r3uds/)
-- [开局绑定郭奉孝，谋定三国风云](https://www.duzhe888.com/book/2mq7h/)
-- [我是唯一地上神国](https://www.duzhe888.com/book/2mq3v/)
-- [我有一座安全城](https://www.duzhe888.com/book/2mpon/)
-- [高门小婢](https://www.duzhe888.com/book/2mplk/)
-- [苏娘子汴京摆摊日常（美食）](https://www.duzhe888.com/book/2mpfm/)
-- [五十年代港城日常](https://www.duzhe888.com/book/2mpfb/)
+- 全世界名为爱的恶意 https://www.duzhe888.com/book/2koepgj/
+- 二次分化后他怀了死对头的崽 https://www.duzhe888.com/book/2koepgh/
+- [原神]魔法使恋爱指南 https://www.duzhe888.com/book/2koepgg/
+- 爱情的肯定句 https://www.duzhe888.com/book/2koepgf/
+- 热恋过期需重追 https://www.duzhe888.com/book/2koepge/
+- [全职高手]治疗什么的不干了！ https://www.duzhe888.com/book/2koepgd/
+- 炮灰的海外亲戚回国啦！ https://www.duzhe888.com/book/2koepgc/
+- [足球]雏鸟 https://www.duzhe888.com/book/2koepgb/
+- 人，今晚土拨鼠站岗 https://www.duzhe888.com/book/2koepga/
+- 谁说踢球就不能成为名侦探[足球] https://www.duzhe888.com/book/2koepg9/
+- 八零法医，带全家致富 https://www.duzhe888.com/book/2koepg8/
+- 夫人每天都在伪装 https://www.duzhe888.com/book/2koepg7/
+- 清穿女回来后[天幕] https://www.duzhe888.com/book/2koepg6/
+- 恐游作精女配求生指南 https://www.duzhe888.com/book/2koepg5/
+- 死遁APP https://www.duzhe888.com/book/2koepg4/
+- 烈火焚身[巴黎圣母院] https://www.duzhe888.com/book/2koepg3/
+- 魔尊闭关十年连生十一子？！ https://www.duzhe888.com/book/2koepg2/
+- SSS级异种都是我前任 https://www.duzhe888.com/book/2koepg1/
+- 穿为龙傲天发妻后 https://www.duzhe888.com/book/2koepg0/
+- 漫画取材所引发的修罗场 https://www.duzhe888.com/book/2koepfv/
+- 和治君只是饭搭子的关系 https://www.duzhe888.com/book/2koepfu/
+- 乖乖女的杂货铺[八零] https://www.duzhe888.com/book/2koepft/
+- 魔改剧本后我爆火了[娱乐圈] https://www.duzhe888.com/book/2koepfs/
+- 强取师尊后 https://www.duzhe888.com/book/2koepfr/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.duzhe888.com/book/2koepfq/
+- [综英美]和亲友群穿哥谭以后 https://www.duzhe888.com/book/2koepfp/
+- 我骗家里的钱养你啊 https://www.duzhe888.com/book/2koepfo/
+- 你让魔王组建勇者小队？ https://www.duzhe888.com/book/2koepfn/
+- 世界伏于她刀下[无限] https://www.duzhe888.com/book/2koepfm/
+- 双生子反派的端水抑郁妈[九零] https://www.duzhe888.com/book/2koepfl/
+- 星露谷，但日本战国 https://www.duzhe888.com/book/2koepfk/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.duzhe888.com/book/2koepfj/
+- [崩铁]请给玩家一个准确的血条！ https://www.duzhe888.com/book/2koepfi/
+- 我只想上京赶考啊[聊斋] https://www.duzhe888.com/book/2koepfh/
+- 欲和离？夫君他目不识丁 https://www.duzhe888.com/book/2koepfg/
+- 万人嫌从末世回来了 https://www.duzhe888.com/book/2koepfe/
+- 我们小区穿末世 https://www.duzhe888.com/book/2koepfd/
+- 占有欲Daddy是我老公？ https://www.duzhe888.com/book/2koepfc/
+- 恶毒男配只想躺平 https://www.duzhe888.com/book/2koepfb/
+- 暗恋的价格是三万块 https://www.duzhe888.com/book/2koepfa/
+- 魔咒请说普通话[西幻] https://www.duzhe888.com/book/2koepf9/
+- 谁都不爱的和亲公主 https://www.duzhe888.com/book/2koepf8/
+- 国运求生：我的金手指是生命树 https://www.duzhe888.com/book/2koepf7/
+- 穿咒术，但杀猴现场 https://www.duzhe888.com/book/2koepf6/
+- 康熙宠妃日常 https://www.duzhe888.com/book/2koepf5/
+- 全民求生，但剑三 https://www.duzhe888.com/book/2koepf4/
+- 魔法种田，从退队经营农场开始 https://www.duzhe888.com/book/2koepf3/
+- 禁止继承限制级雌君 https://www.duzhe888.com/book/2koepf2/
+- 在中世纪做奴隶 https://www.duzhe888.com/book/2koepf1/
+- [足球]小小鸟堂堂来袭 https://www.duzhe888.com/book/2koepf0/
+- 病美人重生日记 https://www.duzhe888.com/book/2koepev/
+- 同时扮演贵族学院F4和平民校花 https://www.duzhe888.com/book/2koepeu/
+- 在年代文里跑运输 https://www.duzhe888.com/book/2koepet/
+- 娘娘扶摇直上 https://www.duzhe888.com/book/2koepes/
+- 好心的俄罗斯人 https://www.duzhe888.com/book/2koeper/
+- [洪荒]成为太清妹妹后 https://www.duzhe888.com/book/2koepeq/
+- 国师 https://www.duzhe888.com/book/2koepep/
+- 末世八年春，游戏降临 https://www.duzhe888.com/book/2koepeo/
+- 如何正确哄睡暴君 https://www.duzhe888.com/book/2koepen/
+- 从1951开始 https://www.duzhe888.com/book/2koepem/
+- 怨明月不独照 https://www.duzhe888.com/book/2koepel/
+- 欲加之罪 https://www.duzhe888.com/book/2koepek/
+- 前妻她肯定会后悔 https://www.duzhe888.com/book/2koepej/
+- 咦？我爸爸复活啦 https://www.duzhe888.com/book/2koepei/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.duzhe888.com/book/2koepeh/
+- 仙尊心尖宠，但被魔尊抢了 https://www.duzhe888.com/book/2koepeg/
+- 正是冬雪沸腾时 https://www.duzhe888.com/book/2koepef/
+- [综英美]哥谭市民，在线抽卡 https://www.duzhe888.com/book/2koepee/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.duzhe888.com/book/2koeped/
+- 恐游里的邻居们[万人迷] https://www.duzhe888.com/book/2koepec/
+- 失忆后和死对头有了崽 https://www.duzhe888.com/book/2koepeb/
+- 等我吃腻了再倒闭可以吗 https://www.duzhe888.com/book/2koepea/
+- 星际团宠小人鱼 https://www.duzhe888.com/book/2koep8p/
+- 原配夫人 https://www.duzhe888.com/book/2koep7k/
+- 始乱终弃清冷首辅后 https://www.duzhe888.com/book/2koep7a/
+- 十九世纪贵族厨房（美食） https://www.duzhe888.com/book/2koep77/
+- [封神]圣人生欲 https://www.duzhe888.com/book/2koep6l/
+- 高调装神，猥琐发育 https://www.duzhe888.com/book/2koep6g/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.duzhe888.com/book/2koep5g/
+- 直男咒术师的限制级游戏 https://www.duzhe888.com/book/2koep4k/
+- 六零之成了卷王的妹妹 https://www.duzhe888.com/book/2koenpq/
+- 路人攻了主角攻［快穿］ https://www.duzhe888.com/book/2koenn4/
+- 昭暮 https://www.duzhe888.com/book/2koee6e/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.duzhe888.com/book/2kodo12/
+- 老公对不起 https://www.duzhe888.com/book/2kodauo/
+- 九零重组小家庭 https://www.duzhe888.com/book/2kocuum/
+- [足球]足坛人生模拟器 https://www.duzhe888.com/book/2koct8k/
+- 上个鬼班[无限] https://www.duzhe888.com/book/2kocram/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.duzhe888.com/book/2kocor0/
+- 在卷王和废物之间选择做吉祥物 https://www.duzhe888.com/book/2kock54/
+- 从维多利亚时代开始 https://www.duzhe888.com/book/2kocdco/
+- 如何嫁给当朝首辅 https://www.duzhe888.com/book/2kobv7u/
+- 食明 https://www.duzhe888.com/book/2kobud1/
+- 诡话第一boss https://www.duzhe888.com/book/2kobr52/
+- 仙门透明人被迫万人迷 https://www.duzhe888.com/book/2kobp6t/
+- 让暴君Alpha怀崽后 https://www.duzhe888.com/book/2kobl6h/
+- 专业女配的自我修养（快穿） https://www.duzhe888.com/book/2kobl3v/
+- 日化人生[科研] https://www.duzhe888.com/book/2kobi7k/
+- 老实人妻，但顶级魅魔 https://www.duzhe888.com/book/2kobi6l/
+- [足球]我的游戏存档成真了？！ https://www.duzhe888.com/book/2kobh00/
+- 巨物致富：回乡开钓场 https://www.duzhe888.com/book/2kobf0u/
+- 趁她之危 https://www.duzhe888.com/book/2kobe39/
+- 寡妇美人模拟器 https://www.duzhe888.com/book/2kobdo3/
+- 让你们无剧本可走（快穿） https://www.duzhe888.com/book/2kobcvu/
+- 摄政王家的咸鱼夫郎 https://www.duzhe888.com/book/2kob7dg/
+- 起初，我只是想找个冤大头 https://www.duzhe888.com/book/2kob6mg/
+- 天幕今天也在直播我搞基建 https://www.duzhe888.com/book/8fa1gn/
+- 死遁的亡夫们都回来了 https://www.duzhe888.com/book/8fa1d6/
+- 沈助理又在隐藏他的超能力 https://www.duzhe888.com/book/8f9v0q/
+- 成为养成系练习生后 https://www.duzhe888.com/book/8f9ts8/
+- 死对头又在挑衅我 https://www.duzhe888.com/book/8f9qe6/
+- 我有一座地下城 https://www.duzhe888.com/book/8f9oeb/
+- 从童星开始杀穿港娱 https://www.duzhe888.com/book/8f9o3g/
+- 被天使之王骗婚后[诡秘之主] https://www.duzhe888.com/book/8f9nd2/
+- 漂亮女配是万人迷［快穿］ https://www.duzhe888.com/book/8f9me3/
+- 我187了，你敢见我吗？ https://www.duzhe888.com/book/8f9f6l/
+- 和贵志君是世界第一的好朋友 https://www.duzhe888.com/book/8f9don/
+- 和姐姐的前女友欢愉后 https://www.duzhe888.com/book/8f9a45/
+- 阴阳师也可以打网球 https://www.duzhe888.com/book/8f9a19/
+- 五条老师与他的封建妻子 https://www.duzhe888.com/book/8f9882/
+- 我与龙傲天寿命共享 https://www.duzhe888.com/book/8f97ro/
+- 大唐守军家属 https://www.duzhe888.com/book/8f9312/
+- 朕也要被强制吗？ https://www.duzhe888.com/book/8f8urc/
+- 在重生文里考科举 https://www.duzhe888.com/book/8f8ue0/
+- 妻主风流（女尊） https://www.duzhe888.com/book/8f8ru6/
+- 多梦你一会儿 https://www.duzhe888.com/book/8f8mep/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.duzhe888.com/book/8f8lfd/
+- 这个位面归我了！[经营] https://www.duzhe888.com/book/8f8k06/
+- 韩团绿卡不想忍了 https://www.duzhe888.com/book/8f8jrm/
+- 被糟蹋的老实人决定反击 https://www.duzhe888.com/book/8f8ip8/
+- 村霸非要入赘受气包 https://www.duzhe888.com/book/8f8ia0/
+- 卷王后妈，八零养娃 https://www.duzhe888.com/book/8f8hit/
+- 清冷丞相怀了死对头的崽 https://www.duzhe888.com/book/8f8gfa/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.duzhe888.com/book/8f8fle/
+- 心动嫌疑人 https://www.duzhe888.com/book/8f8eat/
+- 和山神搭伙开农场的日子 https://www.duzhe888.com/book/8f8dag/
+- 假意逢承 https://www.duzhe888.com/book/8f8bc7/
+- 恶犬攻绑定上司的乖狗系统 https://www.duzhe888.com/book/8f8adl/
+- 在民俗惊悚片被诸神庇护 https://www.duzhe888.com/book/8f8a5n/
+- 带清冷女主回乡养螃蟹[种田] https://www.duzhe888.com/book/8f8984/
+- 死亡悖论[无限流] https://www.duzhe888.com/book/8f8866/
+- 权宋一只统 https://www.duzhe888.com/book/8f876e/
+- 爱好和平但狂拆机甲 https://www.duzhe888.com/book/8f871a/
+- 在魔法贵族学院当白月光 https://www.duzhe888.com/book/r3vre/
+- 大瑛弟国 https://www.duzhe888.com/book/r3vmo/
+- 95美国贵族高中模拟 https://www.duzhe888.com/book/r3vc6/
+- [娱乐圈]过分美丽的她 https://www.duzhe888.com/book/r3v0d/
+- 清澈女大的六零年代 https://www.duzhe888.com/book/r3uqd/
+- 完蛋！被恨孕男包围了！ https://www.duzhe888.com/book/r3ugo/
+- 全民求生:从小木屋到魔法农场 https://www.duzhe888.com/book/r3ufs/
+- 海岛求生：生活玩家种田囤货 https://www.duzhe888.com/book/r3uds/
+- 开局绑定郭奉孝，谋定三国风云 https://www.duzhe888.com/book/2mq7h/
+- 我是唯一地上神国 https://www.duzhe888.com/book/2mq3v/
+- 我有一座安全城 https://www.duzhe888.com/book/2mpon/
+- 苏娘子汴京摆摊日常（美食） https://www.duzhe888.com/book/2mpfm/
+- 五十年代港城日常 https://www.duzhe888.com/book/2mpfb/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1321/index.md)

@@ -1,175 +1,167 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-09-07 03:37:36
+更新时间：2026-09-08 03:38:20
 
-笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
-
-- [笔趣阁啦](https://www.qingyuchun.com/)
+笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。 https://www.qingyuchun.com
 
 ## 最新小说
-- [和八个男人在极寒游戏求生](https://www.qingyuchun.com/book/10578mk/)
-- [禁止继承限制级雌君](https://www.qingyuchun.com/book/10578mi/)
-- [万人嫌从末世回来了](https://www.qingyuchun.com/book/10578mh/)
-- [好心的俄罗斯人](https://www.qingyuchun.com/book/10578mg/)
-- [如何正确哄睡暴君](https://www.qingyuchun.com/book/10578mf/)
-- [怨明月不独照](https://www.qingyuchun.com/book/10578me/)
-- [在年代文里跑运输](https://www.qingyuchun.com/book/10578md/)
-- [我骗家里的钱养你啊](https://www.qingyuchun.com/book/10578mc/)
-- [炮灰的海外亲戚回国啦！](https://www.qingyuchun.com/book/10578mb/)
-- [从1951开始](https://www.qingyuchun.com/book/10578ma/)
-- [SSS级异种都是我前任](https://www.qingyuchun.com/book/10578m9/)
-- [漫画取材所引发的修罗场](https://www.qingyuchun.com/book/10578m8/)
-- [同时扮演贵族学院F4和平民校花](https://www.qingyuchun.com/book/10578m7/)
-- [人，今晚土拨鼠站岗](https://www.qingyuchun.com/book/10578m6/)
-- [和治君只是饭搭子的关系](https://www.qingyuchun.com/book/10578m5/)
-- [世界伏于她刀下[无限]](https://www.qingyuchun.com/book/10578m4/)
-- [仙尊心尖宠，但被魔尊抢了](https://www.qingyuchun.com/book/10578m3/)
-- [咦？我爸爸复活啦](https://www.qingyuchun.com/book/10578m2/)
-- [前妻她肯定会后悔](https://www.qingyuchun.com/book/10578m1/)
-- [[足球]小小鸟堂堂来袭](https://www.qingyuchun.com/book/10578m0/)
-- [大佬的漂亮老婆回来带崽了[八零]](https://www.qingyuchun.com/book/10578lv/)
-- [娘娘扶摇直上](https://www.qingyuchun.com/book/10578lu/)
-- [[全职高手]治疗什么的不干了！](https://www.qingyuchun.com/book/10578lt/)
-- [全民求生，但剑三](https://www.qingyuchun.com/book/10578ls/)
-- [暗恋的价格是三万块](https://www.qingyuchun.com/book/10578lr/)
-- [烈火焚身[巴黎圣母院]](https://www.qingyuchun.com/book/10578lp/)
-- [夫人每天都在伪装](https://www.qingyuchun.com/book/10578lo/)
-- [星露谷，但日本战国](https://www.qingyuchun.com/book/10578ln/)
-- [国师](https://www.qingyuchun.com/book/10578lm/)
-- [失忆后和死对头有了崽](https://www.qingyuchun.com/book/10578ll/)
-- [国运求生：我的金手指是生命树](https://www.qingyuchun.com/book/10578lk/)
-- [[洪荒]成为太清妹妹后](https://www.qingyuchun.com/book/10578lj/)
-- [你让魔王组建勇者小队？](https://www.qingyuchun.com/book/10578li/)
-- [清穿女回来后[天幕]](https://www.qingyuchun.com/book/10578lh/)
-- [[足球]雏鸟](https://www.qingyuchun.com/book/10578lg/)
-- [[综英美]哥谭市民，在线抽卡](https://www.qingyuchun.com/book/10578lf/)
-- [［综英美］蝙蝠崽？我不是啊！](https://www.qingyuchun.com/book/10578le/)
-- [我只想上京赶考啊[聊斋]](https://www.qingyuchun.com/book/10578ld/)
-- [死遁APP](https://www.qingyuchun.com/book/10578lc/)
-- [八零法医，带全家致富](https://www.qingyuchun.com/book/10578lb/)
-- [[综英美]和亲友群穿哥谭以后](https://www.qingyuchun.com/book/10578la/)
-- [魔尊闭关十年连生十一子？！](https://www.qingyuchun.com/book/10578l9/)
-- [谁都不爱的和亲公主](https://www.qingyuchun.com/book/10578l8/)
-- [正是冬雪沸腾时](https://www.qingyuchun.com/book/10578l7/)
-- [恶毒男配只想躺平](https://www.qingyuchun.com/book/10578l6/)
-- [强取师尊后](https://www.qingyuchun.com/book/10578l5/)
-- [全世界名为爱的恶意](https://www.qingyuchun.com/book/10578l4/)
-- [恐游作精女配求生指南](https://www.qingyuchun.com/book/10578l3/)
-- [康熙宠妃日常](https://www.qingyuchun.com/book/10578l2/)
-- [魔法种田，从退队经营农场开始](https://www.qingyuchun.com/book/10578l1/)
-- [阴郁残疾炮灰被万人迷后[快穿]](https://www.qingyuchun.com/book/10578l0/)
-- [热恋过期需重追](https://www.qingyuchun.com/book/10578kv/)
-- [乖乖女的杂货铺[八零]](https://www.qingyuchun.com/book/10578ku/)
-- [[原神]魔法使恋爱指南](https://www.qingyuchun.com/book/10578kt/)
-- [爱情的肯定句](https://www.qingyuchun.com/book/10578ks/)
-- [在中世纪做奴隶](https://www.qingyuchun.com/book/10578kr/)
-- [二次分化后他怀了死对头的崽](https://www.qingyuchun.com/book/10578kq/)
-- [穿咒术，但杀猴现场](https://www.qingyuchun.com/book/10578kp/)
-- [［西幻］RPG就不要谈恋爱了吧！](https://www.qingyuchun.com/book/10578ko/)
-- [魔咒请说普通话[西幻]](https://www.qingyuchun.com/book/10578kn/)
-- [病美人重生日记](https://www.qingyuchun.com/book/10578km/)
-- [欲和离？夫君他目不识丁](https://www.qingyuchun.com/book/10578kl/)
-- [欲加之罪](https://www.qingyuchun.com/book/10578kk/)
-- [我们小区穿末世](https://www.qingyuchun.com/book/10578kj/)
-- [谁说踢球就不能成为名侦探[足球]](https://www.qingyuchun.com/book/10578ki/)
-- [穿为龙傲天发妻后](https://www.qingyuchun.com/book/10578kg/)
-- [恐游里的邻居们[万人迷]](https://www.qingyuchun.com/book/10578kf/)
-- [魔改剧本后我爆火了[娱乐圈]](https://www.qingyuchun.com/book/10578ke/)
-- [[崩铁]请给玩家一个准确的血条！](https://www.qingyuchun.com/book/10578kd/)
-- [占有欲Daddy是我老公？](https://www.qingyuchun.com/book/10578kc/)
-- [末世八年春，游戏降临](https://www.qingyuchun.com/book/10578kb/)
-- [双生子反派的端水抑郁妈[九零]](https://www.qingyuchun.com/book/10578ka/)
-- [等我吃腻了再倒闭可以吗](https://www.qingyuchun.com/book/10578k9/)
-- [我们生活玩家是这样的](https://www.qingyuchun.com/book/10578j6/)
-- [我司艺人永不塌房](https://www.qingyuchun.com/book/10578hr/)
-- [[封神]圣人生欲](https://www.qingyuchun.com/book/10578eh/)
-- [始乱终弃清冷首辅后](https://www.qingyuchun.com/book/10578e6/)
-- [星际团宠小人鱼](https://www.qingyuchun.com/book/10578e2/)
-- [原配夫人](https://www.qingyuchun.com/book/10578do/)
-- [十九世纪贵族厨房（美食）](https://www.qingyuchun.com/book/10578ci/)
-- [高调装神，猥琐发育](https://www.qingyuchun.com/book/10578ce/)
-- [假少爷离开后](https://www.qingyuchun.com/book/10578cd/)
-- [直男咒术师的限制级游戏](https://www.qingyuchun.com/book/105789t/)
-- [浣熊市蝙蝠崽的哥谭居住指南](https://www.qingyuchun.com/book/105787s/)
-- [六零之成了卷王的妹妹](https://www.qingyuchun.com/book/10576va/)
-- [路人攻了主角攻［快穿］](https://www.qingyuchun.com/book/10576u5/)
-- [昭暮](https://www.qingyuchun.com/book/1056tbq/)
-- [[足球]拥有分身系统的我靠踢足球建设国家](https://www.qingyuchun.com/book/1056hi7/)
-- [老公对不起](https://www.qingyuchun.com/book/1055qo9/)
-- [上个鬼班[无限]](https://www.qingyuchun.com/book/1055ia9/)
-- [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.qingyuchun.com/book/1055h0e/)
-- [[足球]足坛人生模拟器](https://www.qingyuchun.com/book/1055ct5/)
-- [在卷王和废物之间选择做吉祥物](https://www.qingyuchun.com/book/10554pc/)
-- [从维多利亚时代开始](https://www.qingyuchun.com/book/1054u6p/)
-- [神豪文男主是我爸](https://www.qingyuchun.com/book/1054foi/)
-- [如何嫁给当朝首辅](https://www.qingyuchun.com/book/1054fnm/)
-- [食明](https://www.qingyuchun.com/book/1054f21/)
-- [诡话第一boss](https://www.qingyuchun.com/book/1054bt2/)
-- [让暴君Alpha怀崽后](https://www.qingyuchun.com/book/10546l1/)
-- [专业女配的自我修养（快穿）](https://www.qingyuchun.com/book/105455n/)
-- [日化人生[科研]](https://www.qingyuchun.com/book/10544m3/)
-- [老实人妻，但顶级魅魔](https://www.qingyuchun.com/book/10544ia/)
-- [巨物致富：回乡开钓场](https://www.qingyuchun.com/book/1053vqo/)
-- [让你们无剧本可走（快穿）](https://www.qingyuchun.com/book/1053v2s/)
-- [[足球]我的游戏存档成真了？！](https://www.qingyuchun.com/book/1053tj1/)
-- [趁她之危](https://www.qingyuchun.com/book/1053roj/)
-- [社畜Beta也能被顶A觊觎吗](https://www.qingyuchun.com/book/1053rht/)
-- [起初，我只是想找个冤大头](https://www.qingyuchun.com/book/1053p7q/)
-- [摄政王家的咸鱼夫郎](https://www.qingyuchun.com/book/1053koh/)
-- [死遁的亡夫们都回来了](https://www.qingyuchun.com/book/36vpan/)
-- [沈助理又在隐藏他的超能力](https://www.qingyuchun.com/book/36vlen/)
-- [怀了前任大哥的崽后](https://www.qingyuchun.com/book/36vld0/)
-- [成为养成系练习生后](https://www.qingyuchun.com/book/36vh1f/)
-- [美貌单出，杀穿港娱［八零］](https://www.qingyuchun.com/book/36vgqk/)
-- [死对头又在挑衅我](https://www.qingyuchun.com/book/36vfvm/)
-- [假金丝雀深陷修罗场](https://www.qingyuchun.com/book/36veaj/)
-- [我有一座地下城](https://www.qingyuchun.com/book/36vdb7/)
-- [漂亮女配是万人迷［快穿］](https://www.qingyuchun.com/book/36vcvi/)
-- [被天使之王骗婚后[诡秘之主]](https://www.qingyuchun.com/book/36vcbu/)
-- [我187了，你敢见我吗？](https://www.qingyuchun.com/book/36uvvt/)
-- [和贵志君是世界第一的好朋友](https://www.qingyuchun.com/book/36uvvd/)
-- [和姐姐的前女友欢愉后](https://www.qingyuchun.com/book/36uuje/)
-- [阴阳师也可以打网球](https://www.qingyuchun.com/book/36uth9/)
-- [五条老师与他的封建妻子](https://www.qingyuchun.com/book/36usv3/)
-- [我与龙傲天寿命共享](https://www.qingyuchun.com/book/36uqil/)
-- [大唐守军家属](https://www.qingyuchun.com/book/36um9q/)
-- [在重生文里考科举](https://www.qingyuchun.com/book/36ulde/)
-- [朕也要被强制吗？](https://www.qingyuchun.com/book/36ukhr/)
-- [妻主风流（女尊）](https://www.qingyuchun.com/book/36udu4/)
-- [逃出金丝笼，我力挽山河开国称帝](https://www.qingyuchun.com/book/36uc15/)
-- [多梦你一会儿](https://www.qingyuchun.com/book/36ub5l/)
-- [被糟蹋的老实人决定反击](https://www.qingyuchun.com/book/36u89q/)
-- [韩团绿卡不想忍了](https://www.qingyuchun.com/book/36u81t/)
-- [村霸非要入赘受气包](https://www.qingyuchun.com/book/36u7fh/)
-- [让霸刀山庄重回忍界之巅[综剑三]](https://www.qingyuchun.com/book/36u7fc/)
-- [这个位面归我了！[经营]](https://www.qingyuchun.com/book/36u6hk/)
-- [清冷丞相怀了死对头的崽](https://www.qingyuchun.com/book/36u54c/)
-- [卷王后妈，八零养娃](https://www.qingyuchun.com/book/36u4nt/)
-- [和山神搭伙开农场的日子](https://www.qingyuchun.com/book/36u251/)
-- [假意逢承](https://www.qingyuchun.com/book/36u116/)
-- [心动嫌疑人](https://www.qingyuchun.com/book/36u0bn/)
-- [在民俗惊悚片被诸神庇护](https://www.qingyuchun.com/book/36u052/)
-- [恶犬攻绑定上司的乖狗系统](https://www.qingyuchun.com/book/36u00v/)
-- [死亡悖论[无限流]](https://www.qingyuchun.com/book/36tt5i/)
-- [带清冷女主回乡养螃蟹[种田]](https://www.qingyuchun.com/book/36tt45/)
-- [权宋一只统](https://www.qingyuchun.com/book/36tpjh/)
-- [爱好和平但狂拆机甲](https://www.qingyuchun.com/book/36tpg6/)
-- [我有一座安全城](https://www.qingyuchun.com/book/a9c9l/)
-- [苏娘子汴京摆摊日常（美食）](https://www.qingyuchun.com/book/a9c28/)
-- [大瑛弟国](https://www.qingyuchun.com/book/a9buk/)
-- [清澈女大的六零年代](https://www.qingyuchun.com/book/a9btv/)
-- [高门小婢](https://www.qingyuchun.com/book/a9bfm/)
-- [完蛋！被恨孕男包围了！](https://www.qingyuchun.com/book/a9bbq/)
-- [我是唯一地上神国](https://www.qingyuchun.com/book/a9b92/)
-- [海岛求生：生活玩家种田囤货](https://www.qingyuchun.com/book/a9b8t/)
-- [五十年代港城日常](https://www.qingyuchun.com/book/a9b3p/)
-- [全民求生:从小木屋到魔法农场](https://www.qingyuchun.com/book/a9b31/)
-- [在魔法贵族学院当白月光](https://www.qingyuchun.com/book/a9asa/)
-- [开局绑定郭奉孝，谋定三国风云](https://www.qingyuchun.com/book/a9aol/)
-- [华夏神明震撼星际](https://www.qingyuchun.com/book/a9ao9/)
-- [[娱乐圈]过分美丽的她](https://www.qingyuchun.com/book/a9a60/)
-- [95美国贵族高中模拟](https://www.qingyuchun.com/book/10u75/)
+- 禁止继承限制级雌君 https://www.qingyuchun.com/book/10578mi/
+- 万人嫌从末世回来了 https://www.qingyuchun.com/book/10578mh/
+- 好心的俄罗斯人 https://www.qingyuchun.com/book/10578mg/
+- 如何正确哄睡暴君 https://www.qingyuchun.com/book/10578mf/
+- 怨明月不独照 https://www.qingyuchun.com/book/10578me/
+- 在年代文里跑运输 https://www.qingyuchun.com/book/10578md/
+- 我骗家里的钱养你啊 https://www.qingyuchun.com/book/10578mc/
+- 炮灰的海外亲戚回国啦！ https://www.qingyuchun.com/book/10578mb/
+- 从1951开始 https://www.qingyuchun.com/book/10578ma/
+- SSS级异种都是我前任 https://www.qingyuchun.com/book/10578m9/
+- 漫画取材所引发的修罗场 https://www.qingyuchun.com/book/10578m8/
+- 同时扮演贵族学院F4和平民校花 https://www.qingyuchun.com/book/10578m7/
+- 人，今晚土拨鼠站岗 https://www.qingyuchun.com/book/10578m6/
+- 和治君只是饭搭子的关系 https://www.qingyuchun.com/book/10578m5/
+- 世界伏于她刀下[无限] https://www.qingyuchun.com/book/10578m4/
+- 仙尊心尖宠，但被魔尊抢了 https://www.qingyuchun.com/book/10578m3/
+- 咦？我爸爸复活啦 https://www.qingyuchun.com/book/10578m2/
+- 前妻她肯定会后悔 https://www.qingyuchun.com/book/10578m1/
+- [足球]小小鸟堂堂来袭 https://www.qingyuchun.com/book/10578m0/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.qingyuchun.com/book/10578lv/
+- 娘娘扶摇直上 https://www.qingyuchun.com/book/10578lu/
+- [全职高手]治疗什么的不干了！ https://www.qingyuchun.com/book/10578lt/
+- 全民求生，但剑三 https://www.qingyuchun.com/book/10578ls/
+- 暗恋的价格是三万块 https://www.qingyuchun.com/book/10578lr/
+- 烈火焚身[巴黎圣母院] https://www.qingyuchun.com/book/10578lp/
+- 夫人每天都在伪装 https://www.qingyuchun.com/book/10578lo/
+- 星露谷，但日本战国 https://www.qingyuchun.com/book/10578ln/
+- 国师 https://www.qingyuchun.com/book/10578lm/
+- 失忆后和死对头有了崽 https://www.qingyuchun.com/book/10578ll/
+- 国运求生：我的金手指是生命树 https://www.qingyuchun.com/book/10578lk/
+- [洪荒]成为太清妹妹后 https://www.qingyuchun.com/book/10578lj/
+- 你让魔王组建勇者小队？ https://www.qingyuchun.com/book/10578li/
+- 清穿女回来后[天幕] https://www.qingyuchun.com/book/10578lh/
+- [足球]雏鸟 https://www.qingyuchun.com/book/10578lg/
+- [综英美]哥谭市民，在线抽卡 https://www.qingyuchun.com/book/10578lf/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.qingyuchun.com/book/10578le/
+- 我只想上京赶考啊[聊斋] https://www.qingyuchun.com/book/10578ld/
+- 死遁APP https://www.qingyuchun.com/book/10578lc/
+- 八零法医，带全家致富 https://www.qingyuchun.com/book/10578lb/
+- [综英美]和亲友群穿哥谭以后 https://www.qingyuchun.com/book/10578la/
+- 魔尊闭关十年连生十一子？！ https://www.qingyuchun.com/book/10578l9/
+- 谁都不爱的和亲公主 https://www.qingyuchun.com/book/10578l8/
+- 正是冬雪沸腾时 https://www.qingyuchun.com/book/10578l7/
+- 恶毒男配只想躺平 https://www.qingyuchun.com/book/10578l6/
+- 强取师尊后 https://www.qingyuchun.com/book/10578l5/
+- 全世界名为爱的恶意 https://www.qingyuchun.com/book/10578l4/
+- 恐游作精女配求生指南 https://www.qingyuchun.com/book/10578l3/
+- 康熙宠妃日常 https://www.qingyuchun.com/book/10578l2/
+- 魔法种田，从退队经营农场开始 https://www.qingyuchun.com/book/10578l1/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.qingyuchun.com/book/10578l0/
+- 热恋过期需重追 https://www.qingyuchun.com/book/10578kv/
+- 乖乖女的杂货铺[八零] https://www.qingyuchun.com/book/10578ku/
+- [原神]魔法使恋爱指南 https://www.qingyuchun.com/book/10578kt/
+- 爱情的肯定句 https://www.qingyuchun.com/book/10578ks/
+- 在中世纪做奴隶 https://www.qingyuchun.com/book/10578kr/
+- 二次分化后他怀了死对头的崽 https://www.qingyuchun.com/book/10578kq/
+- 穿咒术，但杀猴现场 https://www.qingyuchun.com/book/10578kp/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.qingyuchun.com/book/10578ko/
+- 魔咒请说普通话[西幻] https://www.qingyuchun.com/book/10578kn/
+- 病美人重生日记 https://www.qingyuchun.com/book/10578km/
+- 欲和离？夫君他目不识丁 https://www.qingyuchun.com/book/10578kl/
+- 欲加之罪 https://www.qingyuchun.com/book/10578kk/
+- 我们小区穿末世 https://www.qingyuchun.com/book/10578kj/
+- 谁说踢球就不能成为名侦探[足球] https://www.qingyuchun.com/book/10578ki/
+- 穿为龙傲天发妻后 https://www.qingyuchun.com/book/10578kg/
+- 恐游里的邻居们[万人迷] https://www.qingyuchun.com/book/10578kf/
+- 魔改剧本后我爆火了[娱乐圈] https://www.qingyuchun.com/book/10578ke/
+- [崩铁]请给玩家一个准确的血条！ https://www.qingyuchun.com/book/10578kd/
+- 占有欲Daddy是我老公？ https://www.qingyuchun.com/book/10578kc/
+- 末世八年春，游戏降临 https://www.qingyuchun.com/book/10578kb/
+- 双生子反派的端水抑郁妈[九零] https://www.qingyuchun.com/book/10578ka/
+- 等我吃腻了再倒闭可以吗 https://www.qingyuchun.com/book/10578k9/
+- [封神]圣人生欲 https://www.qingyuchun.com/book/10578eh/
+- 始乱终弃清冷首辅后 https://www.qingyuchun.com/book/10578e6/
+- 星际团宠小人鱼 https://www.qingyuchun.com/book/10578e2/
+- 原配夫人 https://www.qingyuchun.com/book/10578do/
+- 十九世纪贵族厨房（美食） https://www.qingyuchun.com/book/10578ci/
+- 高调装神，猥琐发育 https://www.qingyuchun.com/book/10578ce/
+- 直男咒术师的限制级游戏 https://www.qingyuchun.com/book/105789t/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.qingyuchun.com/book/105787s/
+- 六零之成了卷王的妹妹 https://www.qingyuchun.com/book/10576va/
+- 路人攻了主角攻［快穿］ https://www.qingyuchun.com/book/10576u5/
+- 昭暮 https://www.qingyuchun.com/book/1056tbq/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.qingyuchun.com/book/1056hi7/
+- 老公对不起 https://www.qingyuchun.com/book/1055qo9/
+- 上个鬼班[无限] https://www.qingyuchun.com/book/1055ia9/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.qingyuchun.com/book/1055h0e/
+- [足球]足坛人生模拟器 https://www.qingyuchun.com/book/1055ct5/
+- 九零重组小家庭 https://www.qingyuchun.com/book/10557s8/
+- 在卷王和废物之间选择做吉祥物 https://www.qingyuchun.com/book/10554pc/
+- 从维多利亚时代开始 https://www.qingyuchun.com/book/1054u6p/
+- 如何嫁给当朝首辅 https://www.qingyuchun.com/book/1054fnm/
+- 食明 https://www.qingyuchun.com/book/1054f21/
+- 诡话第一boss https://www.qingyuchun.com/book/1054bt2/
+- 让暴君Alpha怀崽后 https://www.qingyuchun.com/book/10546l1/
+- 仙门透明人被迫万人迷 https://www.qingyuchun.com/book/10546hf/
+- 专业女配的自我修养（快穿） https://www.qingyuchun.com/book/105455n/
+- 日化人生[科研] https://www.qingyuchun.com/book/10544m3/
+- 老实人妻，但顶级魅魔 https://www.qingyuchun.com/book/10544ia/
+- 巨物致富：回乡开钓场 https://www.qingyuchun.com/book/1053vqo/
+- 让你们无剧本可走（快穿） https://www.qingyuchun.com/book/1053v2s/
+- [足球]我的游戏存档成真了？！ https://www.qingyuchun.com/book/1053tj1/
+- 趁她之危 https://www.qingyuchun.com/book/1053roj/
+- 寡妇美人模拟器 https://www.qingyuchun.com/book/1053qjr/
+- 起初，我只是想找个冤大头 https://www.qingyuchun.com/book/1053p7q/
+- 摄政王家的咸鱼夫郎 https://www.qingyuchun.com/book/1053koh/
+- 死遁的亡夫们都回来了 https://www.qingyuchun.com/book/36vpan/
+- 沈助理又在隐藏他的超能力 https://www.qingyuchun.com/book/36vlen/
+- 天幕今天也在直播我搞基建 https://www.qingyuchun.com/book/36vk7r/
+- 成为养成系练习生后 https://www.qingyuchun.com/book/36vh1f/
+- 从童星开始杀穿港娱 https://www.qingyuchun.com/book/36vgqk/
+- 死对头又在挑衅我 https://www.qingyuchun.com/book/36vfvm/
+- 我有一座地下城 https://www.qingyuchun.com/book/36vdb7/
+- 漂亮女配是万人迷［快穿］ https://www.qingyuchun.com/book/36vcvi/
+- 被天使之王骗婚后[诡秘之主] https://www.qingyuchun.com/book/36vcbu/
+- 我187了，你敢见我吗？ https://www.qingyuchun.com/book/36uvvt/
+- 和贵志君是世界第一的好朋友 https://www.qingyuchun.com/book/36uvvd/
+- 和姐姐的前女友欢愉后 https://www.qingyuchun.com/book/36uuje/
+- 阴阳师也可以打网球 https://www.qingyuchun.com/book/36uth9/
+- 五条老师与他的封建妻子 https://www.qingyuchun.com/book/36usv3/
+- 我与龙傲天寿命共享 https://www.qingyuchun.com/book/36uqil/
+- 大唐守军家属 https://www.qingyuchun.com/book/36um9q/
+- 在重生文里考科举 https://www.qingyuchun.com/book/36ulde/
+- 朕也要被强制吗？ https://www.qingyuchun.com/book/36ukhr/
+- 妻主风流（女尊） https://www.qingyuchun.com/book/36udu4/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.qingyuchun.com/book/36uc15/
+- 多梦你一会儿 https://www.qingyuchun.com/book/36ub5l/
+- 被糟蹋的老实人决定反击 https://www.qingyuchun.com/book/36u89q/
+- 韩团绿卡不想忍了 https://www.qingyuchun.com/book/36u81t/
+- 村霸非要入赘受气包 https://www.qingyuchun.com/book/36u7fh/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.qingyuchun.com/book/36u7fc/
+- 这个位面归我了！[经营] https://www.qingyuchun.com/book/36u6hk/
+- 清冷丞相怀了死对头的崽 https://www.qingyuchun.com/book/36u54c/
+- 卷王后妈，八零养娃 https://www.qingyuchun.com/book/36u4nt/
+- 和山神搭伙开农场的日子 https://www.qingyuchun.com/book/36u251/
+- 假意逢承 https://www.qingyuchun.com/book/36u116/
+- 心动嫌疑人 https://www.qingyuchun.com/book/36u0bn/
+- 在民俗惊悚片被诸神庇护 https://www.qingyuchun.com/book/36u052/
+- 恶犬攻绑定上司的乖狗系统 https://www.qingyuchun.com/book/36u00v/
+- 死亡悖论[无限流] https://www.qingyuchun.com/book/36tt5i/
+- 带清冷女主回乡养螃蟹[种田] https://www.qingyuchun.com/book/36tt45/
+- 权宋一只统 https://www.qingyuchun.com/book/36tpjh/
+- 爱好和平但狂拆机甲 https://www.qingyuchun.com/book/36tpg6/
+- 我有一座安全城 https://www.qingyuchun.com/book/a9c9l/
+- 苏娘子汴京摆摊日常（美食） https://www.qingyuchun.com/book/a9c28/
+- 大瑛弟国 https://www.qingyuchun.com/book/a9buk/
+- 清澈女大的六零年代 https://www.qingyuchun.com/book/a9btv/
+- 完蛋！被恨孕男包围了！ https://www.qingyuchun.com/book/a9bbq/
+- 我是唯一地上神国 https://www.qingyuchun.com/book/a9b92/
+- 海岛求生：生活玩家种田囤货 https://www.qingyuchun.com/book/a9b8t/
+- 五十年代港城日常 https://www.qingyuchun.com/book/a9b3p/
+- 全民求生:从小木屋到魔法农场 https://www.qingyuchun.com/book/a9b31/
+- 在魔法贵族学院当白月光 https://www.qingyuchun.com/book/a9asa/
+- 开局绑定郭奉孝，谋定三国风云 https://www.qingyuchun.com/book/a9aol/
+- [娱乐圈]过分美丽的她 https://www.qingyuchun.com/book/a9a60/
+- 95美国贵族高中模拟 https://www.qingyuchun.com/book/10u75/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1291/index.md)

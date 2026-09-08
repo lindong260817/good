@@ -1,175 +1,167 @@
 
 # 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
 
-更新时间：2026-09-07 03:23:56
+更新时间：2026-09-08 03:24:48
 
-瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！
-
-- [瑞文文学网](https://www.49ig.com/)
+瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！ https://www.49ig.com
 
 ## 最新小说
-- [和八个男人在极寒游戏求生](https://www.49ig.com/book/436ebvc/)
-- [魔改剧本后我爆火了[娱乐圈]](https://www.49ig.com/book/436e8jg/)
-- [恐游里的邻居们[万人迷]](https://www.49ig.com/book/436e8je/)
-- [魔咒请说普通话[西幻]](https://www.49ig.com/book/436e8j8/)
-- [国师](https://www.49ig.com/book/436e8j4/)
-- [清穿女回来后[天幕]](https://www.49ig.com/book/436e8iu/)
-- [星露谷，但日本战国](https://www.49ig.com/book/436e8ir/)
-- [怨明月不独照](https://www.49ig.com/book/436e8im/)
-- [我只想上京赶考啊[聊斋]](https://www.49ig.com/book/436e8il/)
-- [［西幻］RPG就不要谈恋爱了吧！](https://www.49ig.com/book/436e8ik/)
-- [爱情的肯定句](https://www.49ig.com/book/436e8ih/)
-- [国运求生：我的金手指是生命树](https://www.49ig.com/book/436e8ie/)
-- [乖乖女的杂货铺[八零]](https://www.49ig.com/book/436e8i7/)
-- [谁说踢球就不能成为名侦探[足球]](https://www.49ig.com/book/436e8i6/)
-- [死遁APP](https://www.49ig.com/book/436e8i5/)
-- [双生子反派的端水抑郁妈[九零]](https://www.49ig.com/book/436e8i2/)
-- [世界伏于她刀下[无限]](https://www.49ig.com/book/436e8i0/)
-- [欲和离？夫君他目不识丁](https://www.49ig.com/book/436e8hv/)
-- [[全职高手]治疗什么的不干了！](https://www.49ig.com/book/436e8ht/)
-- [[原神]魔法使恋爱指南](https://www.49ig.com/book/436e8hs/)
-- [强取师尊后](https://www.49ig.com/book/436e8hr/)
-- [魔法种田，从退队经营农场开始](https://www.49ig.com/book/436e8hq/)
-- [末世八年春，游戏降临](https://www.49ig.com/book/436e8ho/)
-- [八零法医，带全家致富](https://www.49ig.com/book/436e8hj/)
-- [夫人每天都在伪装](https://www.49ig.com/book/436e8hi/)
-- [万人嫌从末世回来了](https://www.49ig.com/book/436e8he/)
-- [魔尊闭关十年连生十一子？！](https://www.49ig.com/book/436e8ha/)
-- [[综英美]哥谭市民，在线抽卡](https://www.49ig.com/book/436e8h9/)
-- [禁止继承限制级雌君](https://www.49ig.com/book/436e8h8/)
-- [漫画取材所引发的修罗场](https://www.49ig.com/book/436e8h7/)
-- [失忆后和死对头有了崽](https://www.49ig.com/book/436e8h6/)
-- [恶毒男配只想躺平](https://www.49ig.com/book/436e8gu/)
-- [穿为龙傲天发妻后](https://www.49ig.com/book/436e8gt/)
-- [占有欲Daddy是我老公？](https://www.49ig.com/book/436e8go/)
-- [正是冬雪沸腾时](https://www.49ig.com/book/436e8gj/)
-- [二次分化后他怀了死对头的崽](https://www.49ig.com/book/436e8gi/)
-- [恐游作精女配求生指南](https://www.49ig.com/book/436e8gh/)
-- [[足球]雏鸟](https://www.49ig.com/book/436e8ge/)
-- [全民求生，但剑三](https://www.49ig.com/book/436e8g8/)
-- [烈火焚身[巴黎圣母院]](https://www.49ig.com/book/436e8g7/)
-- [仙尊心尖宠，但被魔尊抢了](https://www.49ig.com/book/436e8g0/)
-- [SSS级异种都是我前任](https://www.49ig.com/book/436e8fu/)
-- [在中世纪做奴隶](https://www.49ig.com/book/436e8ft/)
-- [康熙宠妃日常](https://www.49ig.com/book/436e8fs/)
-- [病美人重生日记](https://www.49ig.com/book/436e8fr/)
-- [我们小区穿末世](https://www.49ig.com/book/436e8fo/)
-- [前妻她肯定会后悔](https://www.49ig.com/book/436e8fn/)
-- [[洪荒]成为太清妹妹后](https://www.49ig.com/book/436e8fm/)
-- [欲加之罪](https://www.49ig.com/book/436e8fi/)
-- [炮灰的海外亲戚回国啦！](https://www.49ig.com/book/436e8fh/)
-- [热恋过期需重追](https://www.49ig.com/book/436e8fg/)
-- [在年代文里跑运输](https://www.49ig.com/book/436e8fe/)
-- [暗恋的价格是三万块](https://www.49ig.com/book/436e8fa/)
-- [专业女配的自我修养（快穿）](https://www.49ig.com/book/436e8f9/)
-- [谁都不爱的和亲公主](https://www.49ig.com/book/436e8f5/)
-- [大佬的漂亮老婆回来带崽了[八零]](https://www.49ig.com/book/436e8f4/)
-- [从1951开始](https://www.49ig.com/book/436e8f3/)
-- [［综英美］蝙蝠崽？我不是啊！](https://www.49ig.com/book/436e8eu/)
-- [人，今晚土拨鼠站岗](https://www.49ig.com/book/436e8eq/)
-- [好心的俄罗斯人](https://www.49ig.com/book/436e8en/)
-- [起初，我只是想找个冤大头](https://www.49ig.com/book/436e8b0/)
-- [华夏神明震撼星际](https://www.49ig.com/book/436e1t0/)
-- [上个鬼班[无限]](https://www.49ig.com/book/436e11a/)
-- [[足球]足坛人生模拟器](https://www.49ig.com/book/436e0c2/)
-- [让暴君Alpha怀崽后](https://www.49ig.com/book/436dr4g/)
-- [在卷王和废物之间选择做吉祥物](https://www.49ig.com/book/436dm8r/)
-- [从维多利亚时代开始](https://www.49ig.com/book/436dj9u/)
-- [昭暮](https://www.49ig.com/book/436deq2/)
-- [食明](https://www.49ig.com/book/436d4km/)
-- [诡话第一boss](https://www.49ig.com/book/436d19r/)
-- [老实人妻，但顶级魅魔](https://www.49ig.com/book/436d0ac/)
-- [我骗家里的钱养你啊](https://www.49ig.com/book/436cvj4/)
-- [神豪文男主是我爸](https://www.49ig.com/book/436ctia/)
-- [[足球]拥有分身系统的我靠踢足球建设国家](https://www.49ig.com/book/436ct4h/)
-- [我与龙傲天寿命共享](https://www.49ig.com/book/436csuq/)
-- [我们生活玩家是这样的](https://www.49ig.com/book/436crfk/)
-- [[足球]我的游戏存档成真了？！](https://www.49ig.com/book/436cqb4/)
-- [怀了前任大哥的崽后](https://www.49ig.com/book/436cq6f/)
-- [摄政王家的咸鱼夫郎](https://www.49ig.com/book/436cq59/)
-- [阴郁残疾炮灰被万人迷后[快穿]](https://www.49ig.com/book/436cpin/)
-- [如何正确哄睡暴君](https://www.49ig.com/book/436cntc/)
-- [死遁的亡夫们都回来了](https://www.49ig.com/book/436cnic/)
-- [让你们无剧本可走（快穿）](https://www.49ig.com/book/436cl8p/)
-- [社畜Beta也能被顶A觊觎吗](https://www.49ig.com/book/436cl86/)
-- [韩团绿卡不想忍了](https://www.49ig.com/book/436cd06/)
-- [咦？我爸爸复活啦](https://www.49ig.com/book/436c9m6/)
-- [假金丝雀深陷修罗场](https://www.49ig.com/book/436c8ud/)
-- [苏娘子汴京摆摊日常（美食）](https://www.49ig.com/book/436c8n3/)
-- [同时扮演贵族学院F4和平民校花](https://www.49ig.com/book/436c877/)
-- [被天使之王骗婚后[诡秘之主]](https://www.49ig.com/book/436c7dv/)
-- [死对头又在挑衅我](https://www.49ig.com/book/436c64t/)
-- [开局绑定郭奉孝，谋定三国风云](https://www.49ig.com/book/436c61a/)
-- [浣熊市蝙蝠崽的哥谭居住指南](https://www.49ig.com/book/436c5ug/)
-- [沈助理又在隐藏他的超能力](https://www.49ig.com/book/436c5k5/)
-- [美貌单出，杀穿港娱［八零］](https://www.49ig.com/book/436c4af/)
-- [路人攻了主角攻［快穿］](https://www.49ig.com/book/436c3m5/)
-- [我司艺人永不塌房](https://www.49ig.com/book/436bvbi/)
-- [如何嫁给当朝首辅](https://www.49ig.com/book/436bupe/)
-- [直男咒术师的限制级游戏](https://www.49ig.com/book/436bt93/)
-- [我有一座地下城](https://www.49ig.com/book/436bsi0/)
-- [漂亮女配是万人迷［快穿］](https://www.49ig.com/book/436br27/)
-- [多梦你一会儿](https://www.49ig.com/book/436bnpv/)
-- [全世界名为爱的恶意](https://www.49ig.com/book/436bnds/)
-- [和治君只是饭搭子的关系](https://www.49ig.com/book/436blnp/)
-- [和贵志君是世界第一的好朋友](https://www.49ig.com/book/436bkpf/)
-- [阴阳师也可以打网球](https://www.49ig.com/book/436bkln/)
-- [在魔法贵族学院当白月光](https://www.49ig.com/book/436bjoi/)
-- [五条老师与他的封建妻子](https://www.49ig.com/book/436bjj8/)
-- [[足球]小小鸟堂堂来袭](https://www.49ig.com/book/436bi2v/)
-- [我187了，你敢见我吗？](https://www.49ig.com/book/436bgbd/)
-- [和姐姐的前女友欢愉后](https://www.49ig.com/book/436belc/)
-- [大唐守军家属](https://www.49ig.com/book/436b54m/)
-- [等我吃腻了再倒闭可以吗](https://www.49ig.com/book/436b4t6/)
-- [心动嫌疑人](https://www.49ig.com/book/436b4ad/)
-- [朕也要被强制吗？](https://www.49ig.com/book/436b48e/)
-- [[综英美]和亲友群穿哥谭以后](https://www.49ig.com/book/436b1tu/)
-- [[崩铁]请给玩家一个准确的血条！](https://www.49ig.com/book/436b18r/)
-- [在重生文里考科举](https://www.49ig.com/book/436b0n5/)
-- [死亡悖论[无限流]](https://www.49ig.com/book/436b0cs/)
-- [让霸刀山庄重回忍界之巅[综剑三]](https://www.49ig.com/book/436atsj/)
-- [带清冷女主回乡养螃蟹[种田]](https://www.49ig.com/book/436asf1/)
-- [这个位面归我了！[经营]](https://www.49ig.com/book/436as5l/)
-- [穿咒术，但杀猴现场](https://www.49ig.com/book/436arq5/)
-- [妻主风流（女尊）](https://www.49ig.com/book/436ar1n/)
-- [清冷丞相怀了死对头的崽](https://www.49ig.com/book/436apl6/)
-- [逃出金丝笼，我力挽山河开国称帝](https://www.49ig.com/book/436aoob/)
-- [和山神搭伙开农场的日子](https://www.49ig.com/book/436an9d/)
-- [假意逢承](https://www.49ig.com/book/436amtj/)
-- [被糟蹋的老实人决定反击](https://www.49ig.com/book/436am1n/)
-- [村霸非要入赘受气包](https://www.49ig.com/book/436alvn/)
-- [恶犬攻绑定上司的乖狗系统](https://www.49ig.com/book/436aead/)
-- [权宋一只统](https://www.49ig.com/book/436adik/)
-- [娘娘扶摇直上](https://www.49ig.com/book/436acq0/)
-- [爱好和平但狂拆机甲](https://www.49ig.com/book/436a865/)
-- [你让魔王组建勇者小队？](https://www.49ig.com/book/436a3f5/)
-- [海岛求生：生活玩家种田囤货](https://www.49ig.com/book/43698bi/)
-- [十九世纪贵族厨房（美食）](https://www.49ig.com/book/436988r/)
-- [完蛋！被恨孕男包围了！](https://www.49ig.com/book/436980a/)
-- [原配夫人](https://www.49ig.com/book/43697s7/)
-- [始乱终弃清冷首辅后](https://www.49ig.com/book/43697pk/)
-- [假少爷离开后](https://www.49ig.com/book/43697ag/)
-- [高调装神，猥琐发育](https://www.49ig.com/book/4369798/)
-- [趁她之危](https://www.49ig.com/book/436976s/)
-- [[娱乐圈]过分美丽的她](https://www.49ig.com/book/436975g/)
-- [在民俗惊悚片被诸神庇护](https://www.49ig.com/book/43696ve/)
-- [六零之成了卷王的妹妹](https://www.49ig.com/book/43696pr/)
-- [95美国贵族高中模拟](https://www.49ig.com/book/43696pa/)
-- [星际团宠小人鱼](https://www.49ig.com/book/43696p6/)
-- [老公对不起](https://www.49ig.com/book/43696lq/)
-- [巨物致富：回乡开钓场](https://www.49ig.com/book/43696jh/)
-- [[封神]圣人生欲](https://www.49ig.com/book/43696e5/)
-- [我是唯一地上神国](https://www.49ig.com/book/43696ds/)
-- [日化人生[科研]](https://www.49ig.com/book/43696ck/)
-- [全民求生:从小木屋到魔法农场](https://www.49ig.com/book/436968e/)
-- [大瑛弟国](https://www.49ig.com/book/436965v/)
-- [成为养成系练习生后](https://www.49ig.com/book/43695od/)
-- [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.49ig.com/book/43695jp/)
-- [五十年代港城日常](https://www.49ig.com/book/43695i9/)
-- [清澈女大的六零年代](https://www.49ig.com/book/43695dl/)
-- [高门小婢](https://www.49ig.com/book/43695b8/)
-- [卷王后妈，八零养娃](https://www.49ig.com/book/436956l/)
-- [我有一座安全城](https://www.49ig.com/book/4369561/)
+- 魔改剧本后我爆火了[娱乐圈] https://www.49ig.com/book/436e8jg/
+- 恐游里的邻居们[万人迷] https://www.49ig.com/book/436e8je/
+- 魔咒请说普通话[西幻] https://www.49ig.com/book/436e8j8/
+- 国师 https://www.49ig.com/book/436e8j4/
+- 清穿女回来后[天幕] https://www.49ig.com/book/436e8iu/
+- 星露谷，但日本战国 https://www.49ig.com/book/436e8ir/
+- 怨明月不独照 https://www.49ig.com/book/436e8im/
+- 我只想上京赶考啊[聊斋] https://www.49ig.com/book/436e8il/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.49ig.com/book/436e8ik/
+- 爱情的肯定句 https://www.49ig.com/book/436e8ih/
+- 国运求生：我的金手指是生命树 https://www.49ig.com/book/436e8ie/
+- 乖乖女的杂货铺[八零] https://www.49ig.com/book/436e8i7/
+- 谁说踢球就不能成为名侦探[足球] https://www.49ig.com/book/436e8i6/
+- 死遁APP https://www.49ig.com/book/436e8i5/
+- 双生子反派的端水抑郁妈[九零] https://www.49ig.com/book/436e8i2/
+- 世界伏于她刀下[无限] https://www.49ig.com/book/436e8i0/
+- 欲和离？夫君他目不识丁 https://www.49ig.com/book/436e8hv/
+- [全职高手]治疗什么的不干了！ https://www.49ig.com/book/436e8ht/
+- [原神]魔法使恋爱指南 https://www.49ig.com/book/436e8hs/
+- 强取师尊后 https://www.49ig.com/book/436e8hr/
+- 魔法种田，从退队经营农场开始 https://www.49ig.com/book/436e8hq/
+- 末世八年春，游戏降临 https://www.49ig.com/book/436e8ho/
+- 八零法医，带全家致富 https://www.49ig.com/book/436e8hj/
+- 夫人每天都在伪装 https://www.49ig.com/book/436e8hi/
+- 万人嫌从末世回来了 https://www.49ig.com/book/436e8he/
+- 魔尊闭关十年连生十一子？！ https://www.49ig.com/book/436e8ha/
+- [综英美]哥谭市民，在线抽卡 https://www.49ig.com/book/436e8h9/
+- 禁止继承限制级雌君 https://www.49ig.com/book/436e8h8/
+- 漫画取材所引发的修罗场 https://www.49ig.com/book/436e8h7/
+- 失忆后和死对头有了崽 https://www.49ig.com/book/436e8h6/
+- 恶毒男配只想躺平 https://www.49ig.com/book/436e8gu/
+- 穿为龙傲天发妻后 https://www.49ig.com/book/436e8gt/
+- 占有欲Daddy是我老公？ https://www.49ig.com/book/436e8go/
+- 正是冬雪沸腾时 https://www.49ig.com/book/436e8gj/
+- 二次分化后他怀了死对头的崽 https://www.49ig.com/book/436e8gi/
+- 恐游作精女配求生指南 https://www.49ig.com/book/436e8gh/
+- [足球]雏鸟 https://www.49ig.com/book/436e8ge/
+- 全民求生，但剑三 https://www.49ig.com/book/436e8g8/
+- 烈火焚身[巴黎圣母院] https://www.49ig.com/book/436e8g7/
+- 仙尊心尖宠，但被魔尊抢了 https://www.49ig.com/book/436e8g0/
+- SSS级异种都是我前任 https://www.49ig.com/book/436e8fu/
+- 在中世纪做奴隶 https://www.49ig.com/book/436e8ft/
+- 康熙宠妃日常 https://www.49ig.com/book/436e8fs/
+- 病美人重生日记 https://www.49ig.com/book/436e8fr/
+- 我们小区穿末世 https://www.49ig.com/book/436e8fo/
+- 前妻她肯定会后悔 https://www.49ig.com/book/436e8fn/
+- [洪荒]成为太清妹妹后 https://www.49ig.com/book/436e8fm/
+- 欲加之罪 https://www.49ig.com/book/436e8fi/
+- 炮灰的海外亲戚回国啦！ https://www.49ig.com/book/436e8fh/
+- 热恋过期需重追 https://www.49ig.com/book/436e8fg/
+- 在年代文里跑运输 https://www.49ig.com/book/436e8fe/
+- 暗恋的价格是三万块 https://www.49ig.com/book/436e8fa/
+- 专业女配的自我修养（快穿） https://www.49ig.com/book/436e8f9/
+- 谁都不爱的和亲公主 https://www.49ig.com/book/436e8f5/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.49ig.com/book/436e8f4/
+- 从1951开始 https://www.49ig.com/book/436e8f3/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.49ig.com/book/436e8eu/
+- 人，今晚土拨鼠站岗 https://www.49ig.com/book/436e8eq/
+- 好心的俄罗斯人 https://www.49ig.com/book/436e8en/
+- 起初，我只是想找个冤大头 https://www.49ig.com/book/436e8b0/
+- 天幕今天也在直播我搞基建 https://www.49ig.com/book/436e8ac/
+- 仙门透明人被迫万人迷 https://www.49ig.com/book/436e3su/
+- 上个鬼班[无限] https://www.49ig.com/book/436e11a/
+- [足球]足坛人生模拟器 https://www.49ig.com/book/436e0c2/
+- 让暴君Alpha怀崽后 https://www.49ig.com/book/436dr4g/
+- 在卷王和废物之间选择做吉祥物 https://www.49ig.com/book/436dm8r/
+- 从维多利亚时代开始 https://www.49ig.com/book/436dj9u/
+- 昭暮 https://www.49ig.com/book/436deq2/
+- 九零重组小家庭 https://www.49ig.com/book/436ddsl/
+- 食明 https://www.49ig.com/book/436d4km/
+- 诡话第一boss https://www.49ig.com/book/436d19r/
+- 老实人妻，但顶级魅魔 https://www.49ig.com/book/436d0ac/
+- 我骗家里的钱养你啊 https://www.49ig.com/book/436cvj4/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.49ig.com/book/436ct4h/
+- 我与龙傲天寿命共享 https://www.49ig.com/book/436csuq/
+- [足球]我的游戏存档成真了？！ https://www.49ig.com/book/436cqb4/
+- 摄政王家的咸鱼夫郎 https://www.49ig.com/book/436cq59/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.49ig.com/book/436cpin/
+- 如何正确哄睡暴君 https://www.49ig.com/book/436cntc/
+- 死遁的亡夫们都回来了 https://www.49ig.com/book/436cnic/
+- 让你们无剧本可走（快穿） https://www.49ig.com/book/436cl8p/
+- 韩团绿卡不想忍了 https://www.49ig.com/book/436cd06/
+- 咦？我爸爸复活啦 https://www.49ig.com/book/436c9m6/
+- 苏娘子汴京摆摊日常（美食） https://www.49ig.com/book/436c8n3/
+- 同时扮演贵族学院F4和平民校花 https://www.49ig.com/book/436c877/
+- 被天使之王骗婚后[诡秘之主] https://www.49ig.com/book/436c7dv/
+- 死对头又在挑衅我 https://www.49ig.com/book/436c64t/
+- 开局绑定郭奉孝，谋定三国风云 https://www.49ig.com/book/436c61a/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.49ig.com/book/436c5ug/
+- 沈助理又在隐藏他的超能力 https://www.49ig.com/book/436c5k5/
+- 从童星开始杀穿港娱 https://www.49ig.com/book/436c4af/
+- 路人攻了主角攻［快穿］ https://www.49ig.com/book/436c3m5/
+- 如何嫁给当朝首辅 https://www.49ig.com/book/436bupe/
+- 直男咒术师的限制级游戏 https://www.49ig.com/book/436bt93/
+- 我有一座地下城 https://www.49ig.com/book/436bsi0/
+- 漂亮女配是万人迷［快穿］ https://www.49ig.com/book/436br27/
+- 多梦你一会儿 https://www.49ig.com/book/436bnpv/
+- 全世界名为爱的恶意 https://www.49ig.com/book/436bnds/
+- 和治君只是饭搭子的关系 https://www.49ig.com/book/436blnp/
+- 和贵志君是世界第一的好朋友 https://www.49ig.com/book/436bkpf/
+- 阴阳师也可以打网球 https://www.49ig.com/book/436bkln/
+- 在魔法贵族学院当白月光 https://www.49ig.com/book/436bjoi/
+- 五条老师与他的封建妻子 https://www.49ig.com/book/436bjj8/
+- [足球]小小鸟堂堂来袭 https://www.49ig.com/book/436bi2v/
+- 我187了，你敢见我吗？ https://www.49ig.com/book/436bgbd/
+- 和姐姐的前女友欢愉后 https://www.49ig.com/book/436belc/
+- 大唐守军家属 https://www.49ig.com/book/436b54m/
+- 等我吃腻了再倒闭可以吗 https://www.49ig.com/book/436b4t6/
+- 心动嫌疑人 https://www.49ig.com/book/436b4ad/
+- 朕也要被强制吗？ https://www.49ig.com/book/436b48e/
+- [综英美]和亲友群穿哥谭以后 https://www.49ig.com/book/436b1tu/
+- [崩铁]请给玩家一个准确的血条！ https://www.49ig.com/book/436b18r/
+- 在重生文里考科举 https://www.49ig.com/book/436b0n5/
+- 死亡悖论[无限流] https://www.49ig.com/book/436b0cs/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.49ig.com/book/436atsj/
+- 带清冷女主回乡养螃蟹[种田] https://www.49ig.com/book/436asf1/
+- 这个位面归我了！[经营] https://www.49ig.com/book/436as5l/
+- 穿咒术，但杀猴现场 https://www.49ig.com/book/436arq5/
+- 妻主风流（女尊） https://www.49ig.com/book/436ar1n/
+- 清冷丞相怀了死对头的崽 https://www.49ig.com/book/436apl6/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.49ig.com/book/436aoob/
+- 和山神搭伙开农场的日子 https://www.49ig.com/book/436an9d/
+- 假意逢承 https://www.49ig.com/book/436amtj/
+- 被糟蹋的老实人决定反击 https://www.49ig.com/book/436am1n/
+- 村霸非要入赘受气包 https://www.49ig.com/book/436alvn/
+- 恶犬攻绑定上司的乖狗系统 https://www.49ig.com/book/436aead/
+- 权宋一只统 https://www.49ig.com/book/436adik/
+- 娘娘扶摇直上 https://www.49ig.com/book/436acq0/
+- 爱好和平但狂拆机甲 https://www.49ig.com/book/436a865/
+- 你让魔王组建勇者小队？ https://www.49ig.com/book/436a3f5/
+- 海岛求生：生活玩家种田囤货 https://www.49ig.com/book/43698bi/
+- 十九世纪贵族厨房（美食） https://www.49ig.com/book/436988r/
+- 完蛋！被恨孕男包围了！ https://www.49ig.com/book/436980a/
+- 原配夫人 https://www.49ig.com/book/43697s7/
+- 始乱终弃清冷首辅后 https://www.49ig.com/book/43697pk/
+- 高调装神，猥琐发育 https://www.49ig.com/book/4369798/
+- 寡妇美人模拟器 https://www.49ig.com/book/4369776/
+- 趁她之危 https://www.49ig.com/book/436976s/
+- [娱乐圈]过分美丽的她 https://www.49ig.com/book/436975g/
+- 在民俗惊悚片被诸神庇护 https://www.49ig.com/book/43696ve/
+- 六零之成了卷王的妹妹 https://www.49ig.com/book/43696pr/
+- 95美国贵族高中模拟 https://www.49ig.com/book/43696pa/
+- 星际团宠小人鱼 https://www.49ig.com/book/43696p6/
+- 老公对不起 https://www.49ig.com/book/43696lq/
+- 巨物致富：回乡开钓场 https://www.49ig.com/book/43696jh/
+- [封神]圣人生欲 https://www.49ig.com/book/43696e5/
+- 我是唯一地上神国 https://www.49ig.com/book/43696ds/
+- 日化人生[科研] https://www.49ig.com/book/43696ck/
+- 全民求生:从小木屋到魔法农场 https://www.49ig.com/book/436968e/
+- 大瑛弟国 https://www.49ig.com/book/436965v/
+- 成为养成系练习生后 https://www.49ig.com/book/43695od/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.49ig.com/book/43695jp/
+- 五十年代港城日常 https://www.49ig.com/book/43695i9/
+- 清澈女大的六零年代 https://www.49ig.com/book/43695dl/
+- 卷王后妈，八零养娃 https://www.49ig.com/book/436956l/
+- 我有一座安全城 https://www.49ig.com/book/4369561/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1409/index.md)

@@ -1,175 +1,167 @@
 
 # 落秋文学网 - 免费全本小说阅读,最新章节更新,无弹窗广告
 
-更新时间：2026-09-07 03:43:22
+更新时间：2026-09-08 03:44:12
 
-落秋文学网提供最快最新的网络小说更新服务，推荐最好看的网络小说排行榜。全站支持无弹窗广告阅读体验，全本小说均可免费在线阅读。
-
-- [落秋文学网](https://www.wenxue868.com/)
+落秋文学网提供最快最新的网络小说更新服务，推荐最好看的网络小说排行榜。全站支持无弹窗广告阅读体验，全本小说均可免费在线阅读。 https://www.wenxue868.com
 
 ## 最新小说
-- [和八个男人在极寒游戏求生](https://www.wenxue868.com/book/rlcn86/)
-- [魔改剧本后我爆火了[娱乐圈]](https://www.wenxue868.com/book/rlcn81/)
-- [人，今晚土拨鼠站岗](https://www.wenxue868.com/book/rlcn80/)
-- [在中世纪做奴隶](https://www.wenxue868.com/book/rlcn7v/)
-- [魔咒请说普通话[西幻]](https://www.wenxue868.com/book/rlcn7u/)
-- [清穿女回来后[天幕]](https://www.wenxue868.com/book/rlcn7t/)
-- [万人嫌从末世回来了](https://www.wenxue868.com/book/rlcn7r/)
-- [八零法医，带全家致富](https://www.wenxue868.com/book/rlcn7q/)
-- [占有欲Daddy是我老公？](https://www.wenxue868.com/book/rlcn7p/)
-- [娘娘扶摇直上](https://www.wenxue868.com/book/rlcn7m/)
-- [失忆后和死对头有了崽](https://www.wenxue868.com/book/rlcn7k/)
-- [[综英美]哥谭市民，在线抽卡](https://www.wenxue868.com/book/rlcn7i/)
-- [禁止继承限制级雌君](https://www.wenxue868.com/book/rlcn7h/)
-- [爱情的肯定句](https://www.wenxue868.com/book/rlcn7d/)
-- [你让魔王组建勇者小队？](https://www.wenxue868.com/book/rlcn7c/)
-- [欲加之罪](https://www.wenxue868.com/book/rlcn74/)
-- [怨明月不独照](https://www.wenxue868.com/book/rlcn71/)
-- [[全职高手]治疗什么的不干了！](https://www.wenxue868.com/book/rlcn6v/)
-- [恐游里的邻居们[万人迷]](https://www.wenxue868.com/book/rlcn6t/)
-- [强取师尊后](https://www.wenxue868.com/book/rlcn6o/)
-- [[原神]魔法使恋爱指南](https://www.wenxue868.com/book/rlcn6l/)
-- [恐游作精女配求生指南](https://www.wenxue868.com/book/rlcn6g/)
-- [病美人重生日记](https://www.wenxue868.com/book/rlcn6e/)
-- [世界伏于她刀下[无限]](https://www.wenxue868.com/book/rlcn6d/)
-- [热恋过期需重追](https://www.wenxue868.com/book/rlcn6b/)
-- [双生子反派的端水抑郁妈[九零]](https://www.wenxue868.com/book/rlcn62/)
-- [乖乖女的杂货铺[八零]](https://www.wenxue868.com/book/rlcn61/)
-- [穿咒术，但杀猴现场](https://www.wenxue868.com/book/rlcn5v/)
-- [大佬的漂亮老婆回来带崽了[八零]](https://www.wenxue868.com/book/rlcn5s/)
-- [夫人每天都在伪装](https://www.wenxue868.com/book/rlcn5r/)
-- [仙尊心尖宠，但被魔尊抢了](https://www.wenxue868.com/book/rlcn5n/)
-- [国师](https://www.wenxue868.com/book/rlcn5l/)
-- [康熙宠妃日常](https://www.wenxue868.com/book/rlcn5k/)
-- [烈火焚身[巴黎圣母院]](https://www.wenxue868.com/book/rlcn5j/)
-- [欲和离？夫君他目不识丁](https://www.wenxue868.com/book/rlcn5e/)
-- [国运求生：我的金手指是生命树](https://www.wenxue868.com/book/rlcn5d/)
-- [漫画取材所引发的修罗场](https://www.wenxue868.com/book/rlcn59/)
-- [谁都不爱的和亲公主](https://www.wenxue868.com/book/rlcn58/)
-- [［综英美］蝙蝠崽？我不是啊！](https://www.wenxue868.com/book/rlcn57/)
-- [炮灰的海外亲戚回国啦！](https://www.wenxue868.com/book/rlcn52/)
-- [[洪荒]成为太清妹妹后](https://www.wenxue868.com/book/rlcn4v/)
-- [等我吃腻了再倒闭可以吗](https://www.wenxue868.com/book/rlcn4t/)
-- [穿为龙傲天发妻后](https://www.wenxue868.com/book/rlcn4q/)
-- [二次分化后他怀了死对头的崽](https://www.wenxue868.com/book/rlcn4p/)
-- [[综英美]和亲友群穿哥谭以后](https://www.wenxue868.com/book/rlcn4n/)
-- [魔法种田，从退队经营农场开始](https://www.wenxue868.com/book/rlcn4k/)
-- [暗恋的价格是三万块](https://www.wenxue868.com/book/rlcn4j/)
-- [好心的俄罗斯人](https://www.wenxue868.com/book/rlcn4f/)
-- [星露谷，但日本战国](https://www.wenxue868.com/book/rlcn4e/)
-- [前妻她肯定会后悔](https://www.wenxue868.com/book/rlcn4d/)
-- [我只想上京赶考啊[聊斋]](https://www.wenxue868.com/book/rlcn48/)
-- [死遁APP](https://www.wenxue868.com/book/rlcn46/)
-- [谁说踢球就不能成为名侦探[足球]](https://www.wenxue868.com/book/rlcn45/)
-- [SSS级异种都是我前任](https://www.wenxue868.com/book/rlcn43/)
-- [在年代文里跑运输](https://www.wenxue868.com/book/rlcn3t/)
-- [全民求生，但剑三](https://www.wenxue868.com/book/rlcn3m/)
-- [魔尊闭关十年连生十一子？！](https://www.wenxue868.com/book/rlcn3j/)
-- [末世八年春，游戏降临](https://www.wenxue868.com/book/rlcn3h/)
-- [恶毒男配只想躺平](https://www.wenxue868.com/book/rlcn3d/)
-- [［西幻］RPG就不要谈恋爱了吧！](https://www.wenxue868.com/book/rlcn3c/)
-- [从1951开始](https://www.wenxue868.com/book/rlcn3b/)
-- [正是冬雪沸腾时](https://www.wenxue868.com/book/rlcn35/)
-- [全世界名为爱的恶意](https://www.wenxue868.com/book/rlcn32/)
-- [[足球]雏鸟](https://www.wenxue868.com/book/rlcn30/)
-- [我们小区穿末世](https://www.wenxue868.com/book/rlcn2v/)
-- [起初，我只是想找个冤大头](https://www.wenxue868.com/book/rlccri/)
-- [我们生活玩家是这样的](https://www.wenxue868.com/book/rlcaor/)
-- [[足球]拥有分身系统的我靠踢足球建设国家](https://www.wenxue868.com/book/rlcaoh/)
-- [上个鬼班[无限]](https://www.wenxue868.com/book/rlc69p/)
-- [华夏神明震撼星际](https://www.wenxue868.com/book/rlc07g/)
-- [让暴君Alpha怀崽后](https://www.wenxue868.com/book/rlbv17/)
-- [[足球]足坛人生模拟器](https://www.wenxue868.com/book/rlbuk1/)
-- [神豪文男主是我爸](https://www.wenxue868.com/book/rlbq3f/)
-- [在卷王和废物之间选择做吉祥物](https://www.wenxue868.com/book/rlbkh0/)
-- [从维多利亚时代开始](https://www.wenxue868.com/book/rlbh90/)
-- [昭暮](https://www.wenxue868.com/book/rlbf34/)
-- [原配夫人](https://www.wenxue868.com/book/rlbbh7/)
-- [星际团宠小人鱼](https://www.wenxue868.com/book/rlbbgl/)
-- [十九世纪贵族厨房（美食）](https://www.wenxue868.com/book/rlbbeh/)
-- [始乱终弃清冷首辅后](https://www.wenxue868.com/book/rlbbc1/)
-- [完蛋！被恨孕男包围了！](https://www.wenxue868.com/book/rlb4cl/)
-- [高调装神，猥琐发育](https://www.wenxue868.com/book/rlb4cb/)
-- [食明](https://www.wenxue868.com/book/rlb2cn/)
-- [诡话第一boss](https://www.wenxue868.com/book/rlauv2/)
-- [老实人妻，但顶级魅魔](https://www.wenxue868.com/book/rlat3r/)
-- [专业女配的自我修养（快穿）](https://www.wenxue868.com/book/rlasic/)
-- [[足球]我的游戏存档成真了？！](https://www.wenxue868.com/book/rlao1o/)
-- [摄政王家的咸鱼夫郎](https://www.wenxue868.com/book/rlalf9/)
-- [社畜Beta也能被顶A觊觎吗](https://www.wenxue868.com/book/rlaku8/)
-- [让你们无剧本可走（快穿）](https://www.wenxue868.com/book/rlak0j/)
-- [我与龙傲天寿命共享](https://www.wenxue868.com/book/rlaip9/)
-- [如何正确哄睡暴君](https://www.wenxue868.com/book/rlahgo/)
-- [我骗家里的钱养你啊](https://www.wenxue868.com/book/rlac1s/)
-- [阴郁残疾炮灰被万人迷后[快穿]](https://www.wenxue868.com/book/rlaang/)
-- [怀了前任大哥的崽后](https://www.wenxue868.com/book/rlaacu/)
-- [死遁的亡夫们都回来了](https://www.wenxue868.com/book/rlaa5g/)
-- [沈助理又在隐藏他的超能力](https://www.wenxue868.com/book/rla3a1/)
-- [死对头又在挑衅我](https://www.wenxue868.com/book/rla37s/)
-- [在民俗惊悚片被诸神庇护](https://www.wenxue868.com/book/rla295/)
-- [被天使之王骗婚后[诡秘之主]](https://www.wenxue868.com/book/rla0hp/)
-- [假金丝雀深陷修罗场](https://www.wenxue868.com/book/rl9vh8/)
-- [韩团绿卡不想忍了](https://www.wenxue868.com/book/rl9ukd/)
-- [同时扮演贵族学院F4和平民校花](https://www.wenxue868.com/book/rl9trm/)
-- [咦？我爸爸复活啦](https://www.wenxue868.com/book/rl9sn6/)
-- [美貌单出，杀穿港娱［八零］](https://www.wenxue868.com/book/rl9sn5/)
-- [开局绑定郭奉孝，谋定三国风云](https://www.wenxue868.com/book/rl9ptc/)
-- [路人攻了主角攻［快穿］](https://www.wenxue868.com/book/rl9oe4/)
-- [苏娘子汴京摆摊日常（美食）](https://www.wenxue868.com/book/rl9nkk/)
-- [我有一座地下城](https://www.wenxue868.com/book/rl9mr4/)
-- [漂亮女配是万人迷［快穿］](https://www.wenxue868.com/book/rl9laa/)
-- [和治君只是饭搭子的关系](https://www.wenxue868.com/book/rl9ia9/)
-- [如何嫁给当朝首辅](https://www.wenxue868.com/book/rl9i1t/)
-- [多梦你一会儿](https://www.wenxue868.com/book/rl9hit/)
-- [阴阳师也可以打网球](https://www.wenxue868.com/book/rl9hi9/)
-- [和贵志君是世界第一的好朋友](https://www.wenxue868.com/book/rl9gd1/)
-- [[封神]圣人生欲](https://www.wenxue868.com/book/rl9gc1/)
-- [卷王后妈，八零养娃](https://www.wenxue868.com/book/rl9fct/)
-- [在魔法贵族学院当白月光](https://www.wenxue868.com/book/rl9dku/)
-- [五条老师与他的封建妻子](https://www.wenxue868.com/book/rl9cg9/)
-- [我司艺人永不塌房](https://www.wenxue868.com/book/rl9c08/)
-- [我187了，你敢见我吗？](https://www.wenxue868.com/book/rl9ak3/)
-- [和姐姐的前女友欢愉后](https://www.wenxue868.com/book/rl99cm/)
-- [朕也要被强制吗？](https://www.wenxue868.com/book/rl90o7/)
-- [大唐守军家属](https://www.wenxue868.com/book/rl8upl/)
-- [在重生文里考科举](https://www.wenxue868.com/book/rl8ud0/)
-- [[足球]小小鸟堂堂来袭](https://www.wenxue868.com/book/rl8t64/)
-- [妻主风流（女尊）](https://www.wenxue868.com/book/rl8q09/)
-- [死亡悖论[无限流]](https://www.wenxue868.com/book/rl8pqn/)
-- [心动嫌疑人](https://www.wenxue868.com/book/rl8pc9/)
-- [让霸刀山庄重回忍界之巅[综剑三]](https://www.wenxue868.com/book/rl8ok4/)
-- [这个位面归我了！[经营]](https://www.wenxue868.com/book/rl8n3p/)
-- [带清冷女主回乡养螃蟹[种田]](https://www.wenxue868.com/book/rl8lds/)
-- [逃出金丝笼，我力挽山河开国称帝](https://www.wenxue868.com/book/rl8kbi/)
-- [村霸非要入赘受气包](https://www.wenxue868.com/book/rl8jue/)
-- [[崩铁]请给玩家一个准确的血条！](https://www.wenxue868.com/book/rl8jom/)
-- [清冷丞相怀了死对头的崽](https://www.wenxue868.com/book/rl8jga/)
-- [被糟蹋的老实人决定反击](https://www.wenxue868.com/book/rl8g8f/)
-- [和山神搭伙开农场的日子](https://www.wenxue868.com/book/rl8fco/)
-- [假意逢承](https://www.wenxue868.com/book/rl8erp/)
-- [趁她之危](https://www.wenxue868.com/book/rl8dq8/)
-- [恶犬攻绑定上司的乖狗系统](https://www.wenxue868.com/book/rl8aom/)
-- [权宋一只统](https://www.wenxue868.com/book/rl88hg/)
-- [爱好和平但狂拆机甲](https://www.wenxue868.com/book/rl822n/)
-- [大瑛弟国](https://www.wenxue868.com/book/rl7650/)
-- [老公对不起](https://www.wenxue868.com/book/rl75ke/)
-- [高门小婢](https://www.wenxue868.com/book/rl75ij/)
-- [六零之成了卷王的妹妹](https://www.wenxue868.com/book/rl75g4/)
-- [假少爷离开后](https://www.wenxue868.com/book/rl75aq/)
-- [清澈女大的六零年代](https://www.wenxue868.com/book/rl74so/)
-- [95美国贵族高中模拟](https://www.wenxue868.com/book/rl74kj/)
-- [浣熊市蝙蝠崽的哥谭居住指南](https://www.wenxue868.com/book/rl74il/)
-- [成为养成系练习生后](https://www.wenxue868.com/book/rl74fq/)
-- [我是唯一地上神国](https://www.wenxue868.com/book/rl74e1/)
-- [我有一座安全城](https://www.wenxue868.com/book/rl74b5/)
-- [直男咒术师的限制级游戏](https://www.wenxue868.com/book/rl7471/)
-- [海岛求生：生活玩家种田囤货](https://www.wenxue868.com/book/rl73tv/)
-- [五十年代港城日常](https://www.wenxue868.com/book/rl73lm/)
-- [日化人生[科研]](https://www.wenxue868.com/book/rl73gq/)
-- [[娱乐圈]过分美丽的她](https://www.wenxue868.com/book/rl73d2/)
-- [全民求生:从小木屋到魔法农场](https://www.wenxue868.com/book/rl7313/)
-- [巨物致富：回乡开钓场](https://www.wenxue868.com/book/rl730l/)
-- [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.wenxue868.com/book/rl72uu/)
+- 魔改剧本后我爆火了[娱乐圈] https://www.wenxue868.com/book/rlcn81/
+- 人，今晚土拨鼠站岗 https://www.wenxue868.com/book/rlcn80/
+- 在中世纪做奴隶 https://www.wenxue868.com/book/rlcn7v/
+- 魔咒请说普通话[西幻] https://www.wenxue868.com/book/rlcn7u/
+- 清穿女回来后[天幕] https://www.wenxue868.com/book/rlcn7t/
+- 万人嫌从末世回来了 https://www.wenxue868.com/book/rlcn7r/
+- 八零法医，带全家致富 https://www.wenxue868.com/book/rlcn7q/
+- 占有欲Daddy是我老公？ https://www.wenxue868.com/book/rlcn7p/
+- 娘娘扶摇直上 https://www.wenxue868.com/book/rlcn7m/
+- 失忆后和死对头有了崽 https://www.wenxue868.com/book/rlcn7k/
+- [综英美]哥谭市民，在线抽卡 https://www.wenxue868.com/book/rlcn7i/
+- 禁止继承限制级雌君 https://www.wenxue868.com/book/rlcn7h/
+- 爱情的肯定句 https://www.wenxue868.com/book/rlcn7d/
+- 你让魔王组建勇者小队？ https://www.wenxue868.com/book/rlcn7c/
+- 欲加之罪 https://www.wenxue868.com/book/rlcn74/
+- 怨明月不独照 https://www.wenxue868.com/book/rlcn71/
+- [全职高手]治疗什么的不干了！ https://www.wenxue868.com/book/rlcn6v/
+- 恐游里的邻居们[万人迷] https://www.wenxue868.com/book/rlcn6t/
+- 强取师尊后 https://www.wenxue868.com/book/rlcn6o/
+- [原神]魔法使恋爱指南 https://www.wenxue868.com/book/rlcn6l/
+- 恐游作精女配求生指南 https://www.wenxue868.com/book/rlcn6g/
+- 病美人重生日记 https://www.wenxue868.com/book/rlcn6e/
+- 世界伏于她刀下[无限] https://www.wenxue868.com/book/rlcn6d/
+- 热恋过期需重追 https://www.wenxue868.com/book/rlcn6b/
+- 双生子反派的端水抑郁妈[九零] https://www.wenxue868.com/book/rlcn62/
+- 乖乖女的杂货铺[八零] https://www.wenxue868.com/book/rlcn61/
+- 穿咒术，但杀猴现场 https://www.wenxue868.com/book/rlcn5v/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.wenxue868.com/book/rlcn5s/
+- 夫人每天都在伪装 https://www.wenxue868.com/book/rlcn5r/
+- 仙尊心尖宠，但被魔尊抢了 https://www.wenxue868.com/book/rlcn5n/
+- 国师 https://www.wenxue868.com/book/rlcn5l/
+- 康熙宠妃日常 https://www.wenxue868.com/book/rlcn5k/
+- 烈火焚身[巴黎圣母院] https://www.wenxue868.com/book/rlcn5j/
+- 欲和离？夫君他目不识丁 https://www.wenxue868.com/book/rlcn5e/
+- 国运求生：我的金手指是生命树 https://www.wenxue868.com/book/rlcn5d/
+- 漫画取材所引发的修罗场 https://www.wenxue868.com/book/rlcn59/
+- 谁都不爱的和亲公主 https://www.wenxue868.com/book/rlcn58/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.wenxue868.com/book/rlcn57/
+- 炮灰的海外亲戚回国啦！ https://www.wenxue868.com/book/rlcn52/
+- [洪荒]成为太清妹妹后 https://www.wenxue868.com/book/rlcn4v/
+- 等我吃腻了再倒闭可以吗 https://www.wenxue868.com/book/rlcn4t/
+- 穿为龙傲天发妻后 https://www.wenxue868.com/book/rlcn4q/
+- 二次分化后他怀了死对头的崽 https://www.wenxue868.com/book/rlcn4p/
+- [综英美]和亲友群穿哥谭以后 https://www.wenxue868.com/book/rlcn4n/
+- 魔法种田，从退队经营农场开始 https://www.wenxue868.com/book/rlcn4k/
+- 暗恋的价格是三万块 https://www.wenxue868.com/book/rlcn4j/
+- 好心的俄罗斯人 https://www.wenxue868.com/book/rlcn4f/
+- 星露谷，但日本战国 https://www.wenxue868.com/book/rlcn4e/
+- 前妻她肯定会后悔 https://www.wenxue868.com/book/rlcn4d/
+- 我只想上京赶考啊[聊斋] https://www.wenxue868.com/book/rlcn48/
+- 死遁APP https://www.wenxue868.com/book/rlcn46/
+- 谁说踢球就不能成为名侦探[足球] https://www.wenxue868.com/book/rlcn45/
+- SSS级异种都是我前任 https://www.wenxue868.com/book/rlcn43/
+- 在年代文里跑运输 https://www.wenxue868.com/book/rlcn3t/
+- 全民求生，但剑三 https://www.wenxue868.com/book/rlcn3m/
+- 魔尊闭关十年连生十一子？！ https://www.wenxue868.com/book/rlcn3j/
+- 末世八年春，游戏降临 https://www.wenxue868.com/book/rlcn3h/
+- 恶毒男配只想躺平 https://www.wenxue868.com/book/rlcn3d/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.wenxue868.com/book/rlcn3c/
+- 从1951开始 https://www.wenxue868.com/book/rlcn3b/
+- 正是冬雪沸腾时 https://www.wenxue868.com/book/rlcn35/
+- 全世界名为爱的恶意 https://www.wenxue868.com/book/rlcn32/
+- [足球]雏鸟 https://www.wenxue868.com/book/rlcn30/
+- 我们小区穿末世 https://www.wenxue868.com/book/rlcn2v/
+- 起初，我只是想找个冤大头 https://www.wenxue868.com/book/rlccri/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.wenxue868.com/book/rlcaoh/
+- 上个鬼班[无限] https://www.wenxue868.com/book/rlc69p/
+- 九零重组小家庭 https://www.wenxue868.com/book/rlbvj6/
+- 让暴君Alpha怀崽后 https://www.wenxue868.com/book/rlbv17/
+- [足球]足坛人生模拟器 https://www.wenxue868.com/book/rlbuk1/
+- 在卷王和废物之间选择做吉祥物 https://www.wenxue868.com/book/rlbkh0/
+- 从维多利亚时代开始 https://www.wenxue868.com/book/rlbh90/
+- 昭暮 https://www.wenxue868.com/book/rlbf34/
+- 原配夫人 https://www.wenxue868.com/book/rlbbh7/
+- 星际团宠小人鱼 https://www.wenxue868.com/book/rlbbgl/
+- 十九世纪贵族厨房（美食） https://www.wenxue868.com/book/rlbbeh/
+- 始乱终弃清冷首辅后 https://www.wenxue868.com/book/rlbbc1/
+- 完蛋！被恨孕男包围了！ https://www.wenxue868.com/book/rlb4cl/
+- 高调装神，猥琐发育 https://www.wenxue868.com/book/rlb4cb/
+- 食明 https://www.wenxue868.com/book/rlb2cn/
+- 诡话第一boss https://www.wenxue868.com/book/rlauv2/
+- 老实人妻，但顶级魅魔 https://www.wenxue868.com/book/rlat3r/
+- 专业女配的自我修养（快穿） https://www.wenxue868.com/book/rlasic/
+- [足球]我的游戏存档成真了？！ https://www.wenxue868.com/book/rlao1o/
+- 摄政王家的咸鱼夫郎 https://www.wenxue868.com/book/rlalf9/
+- 让你们无剧本可走（快穿） https://www.wenxue868.com/book/rlak0j/
+- 我与龙傲天寿命共享 https://www.wenxue868.com/book/rlaip9/
+- 如何正确哄睡暴君 https://www.wenxue868.com/book/rlahgo/
+- 我骗家里的钱养你啊 https://www.wenxue868.com/book/rlac1s/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.wenxue868.com/book/rlaang/
+- 死遁的亡夫们都回来了 https://www.wenxue868.com/book/rlaa5g/
+- 沈助理又在隐藏他的超能力 https://www.wenxue868.com/book/rla3a1/
+- 死对头又在挑衅我 https://www.wenxue868.com/book/rla37s/
+- 在民俗惊悚片被诸神庇护 https://www.wenxue868.com/book/rla295/
+- 被天使之王骗婚后[诡秘之主] https://www.wenxue868.com/book/rla0hp/
+- 韩团绿卡不想忍了 https://www.wenxue868.com/book/rl9ukd/
+- 同时扮演贵族学院F4和平民校花 https://www.wenxue868.com/book/rl9trm/
+- 咦？我爸爸复活啦 https://www.wenxue868.com/book/rl9sn6/
+- 从童星开始杀穿港娱 https://www.wenxue868.com/book/rl9sn5/
+- 开局绑定郭奉孝，谋定三国风云 https://www.wenxue868.com/book/rl9ptc/
+- 路人攻了主角攻［快穿］ https://www.wenxue868.com/book/rl9oe4/
+- 苏娘子汴京摆摊日常（美食） https://www.wenxue868.com/book/rl9nkk/
+- 我有一座地下城 https://www.wenxue868.com/book/rl9mr4/
+- 漂亮女配是万人迷［快穿］ https://www.wenxue868.com/book/rl9laa/
+- 和治君只是饭搭子的关系 https://www.wenxue868.com/book/rl9ia9/
+- 如何嫁给当朝首辅 https://www.wenxue868.com/book/rl9i1t/
+- 多梦你一会儿 https://www.wenxue868.com/book/rl9hit/
+- 阴阳师也可以打网球 https://www.wenxue868.com/book/rl9hi9/
+- 和贵志君是世界第一的好朋友 https://www.wenxue868.com/book/rl9gd1/
+- [封神]圣人生欲 https://www.wenxue868.com/book/rl9gc1/
+- 卷王后妈，八零养娃 https://www.wenxue868.com/book/rl9fct/
+- 在魔法贵族学院当白月光 https://www.wenxue868.com/book/rl9dku/
+- 五条老师与他的封建妻子 https://www.wenxue868.com/book/rl9cg9/
+- 我187了，你敢见我吗？ https://www.wenxue868.com/book/rl9ak3/
+- 和姐姐的前女友欢愉后 https://www.wenxue868.com/book/rl99cm/
+- 朕也要被强制吗？ https://www.wenxue868.com/book/rl90o7/
+- 大唐守军家属 https://www.wenxue868.com/book/rl8upl/
+- 在重生文里考科举 https://www.wenxue868.com/book/rl8ud0/
+- [足球]小小鸟堂堂来袭 https://www.wenxue868.com/book/rl8t64/
+- 妻主风流（女尊） https://www.wenxue868.com/book/rl8q09/
+- 死亡悖论[无限流] https://www.wenxue868.com/book/rl8pqn/
+- 心动嫌疑人 https://www.wenxue868.com/book/rl8pc9/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.wenxue868.com/book/rl8ok4/
+- 这个位面归我了！[经营] https://www.wenxue868.com/book/rl8n3p/
+- 带清冷女主回乡养螃蟹[种田] https://www.wenxue868.com/book/rl8lds/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.wenxue868.com/book/rl8kbi/
+- 村霸非要入赘受气包 https://www.wenxue868.com/book/rl8jue/
+- [崩铁]请给玩家一个准确的血条！ https://www.wenxue868.com/book/rl8jom/
+- 清冷丞相怀了死对头的崽 https://www.wenxue868.com/book/rl8jga/
+- 被糟蹋的老实人决定反击 https://www.wenxue868.com/book/rl8g8f/
+- 和山神搭伙开农场的日子 https://www.wenxue868.com/book/rl8fco/
+- 假意逢承 https://www.wenxue868.com/book/rl8erp/
+- 趁她之危 https://www.wenxue868.com/book/rl8dq8/
+- 恶犬攻绑定上司的乖狗系统 https://www.wenxue868.com/book/rl8aom/
+- 权宋一只统 https://www.wenxue868.com/book/rl88hg/
+- 爱好和平但狂拆机甲 https://www.wenxue868.com/book/rl822n/
+- 大瑛弟国 https://www.wenxue868.com/book/rl7650/
+- 老公对不起 https://www.wenxue868.com/book/rl75ke/
+- 六零之成了卷王的妹妹 https://www.wenxue868.com/book/rl75g4/
+- 寡妇美人模拟器 https://www.wenxue868.com/book/rl755n/
+- 清澈女大的六零年代 https://www.wenxue868.com/book/rl74so/
+- 95美国贵族高中模拟 https://www.wenxue868.com/book/rl74kj/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.wenxue868.com/book/rl74il/
+- 成为养成系练习生后 https://www.wenxue868.com/book/rl74fq/
+- 我是唯一地上神国 https://www.wenxue868.com/book/rl74e1/
+- 我有一座安全城 https://www.wenxue868.com/book/rl74b5/
+- 直男咒术师的限制级游戏 https://www.wenxue868.com/book/rl7471/
+- 海岛求生：生活玩家种田囤货 https://www.wenxue868.com/book/rl73tv/
+- 五十年代港城日常 https://www.wenxue868.com/book/rl73lm/
+- 日化人生[科研] https://www.wenxue868.com/book/rl73gq/
+- [娱乐圈]过分美丽的她 https://www.wenxue868.com/book/rl73d2/
+- 全民求生:从小木屋到魔法农场 https://www.wenxue868.com/book/rl7313/
+- 天幕今天也在直播我搞基建 https://www.wenxue868.com/book/rl730n/
+- 巨物致富：回乡开钓场 https://www.wenxue868.com/book/rl730l/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.wenxue868.com/book/rl72uu/
+- 仙门透明人被迫万人迷 https://www.wenxue868.com/book/rl72sn/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1372/index.md)

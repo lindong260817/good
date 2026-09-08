@@ -1,175 +1,167 @@
 
 # 耽美小说 - 最新全本免费手机小说阅读推荐
 
-更新时间：2026-09-07 03:38:59
+更新时间：2026-09-08 03:39:46
 
-耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！
-
-- [耽美小说](https://www.shgifts8.com/)
+耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！ https://www.shgifts8.com
 
 ## 最新小说
-- [和八个男人在极寒游戏求生](https://www.shgifts8.com/book/32uib9c/)
-- [爱情的肯定句](https://www.shgifts8.com/book/32ui7ui/)
-- [欲加之罪](https://www.shgifts8.com/book/32ui7ug/)
-- [前妻她肯定会后悔](https://www.shgifts8.com/book/32ui7uf/)
-- [仙尊心尖宠，但被魔尊抢了](https://www.shgifts8.com/book/32ui7ub/)
-- [SSS级异种都是我前任](https://www.shgifts8.com/book/32ui7u8/)
-- [夫人每天都在伪装](https://www.shgifts8.com/book/32ui7u6/)
-- [［综英美］蝙蝠崽？我不是啊！](https://www.shgifts8.com/book/32ui7u2/)
-- [世界伏于她刀下[无限]](https://www.shgifts8.com/book/32ui7u1/)
-- [怨明月不独照](https://www.shgifts8.com/book/32ui7ts/)
-- [从1951开始](https://www.shgifts8.com/book/32ui7tq/)
-- [病美人重生日记](https://www.shgifts8.com/book/32ui7to/)
-- [二次分化后他怀了死对头的崽](https://www.shgifts8.com/book/32ui7tm/)
-- [[原神]魔法使恋爱指南](https://www.shgifts8.com/book/32ui7tj/)
-- [禁止继承限制级雌君](https://www.shgifts8.com/book/32ui7th/)
-- [[洪荒]成为太清妹妹后](https://www.shgifts8.com/book/32ui7tg/)
-- [全民求生，但剑三](https://www.shgifts8.com/book/32ui7tb/)
-- [欲和离？夫君他目不识丁](https://www.shgifts8.com/book/32ui7ta/)
-- [在年代文里跑运输](https://www.shgifts8.com/book/32ui7t3/)
-- [恶毒男配只想躺平](https://www.shgifts8.com/book/32ui7t1/)
-- [星露谷，但日本战国](https://www.shgifts8.com/book/32ui7t0/)
-- [好心的俄罗斯人](https://www.shgifts8.com/book/32ui7sv/)
-- [魔咒请说普通话[西幻]](https://www.shgifts8.com/book/32ui7st/)
-- [漫画取材所引发的修罗场](https://www.shgifts8.com/book/32ui7ss/)
-- [我们小区穿末世](https://www.shgifts8.com/book/32ui7so/)
-- [恐游作精女配求生指南](https://www.shgifts8.com/book/32ui7sn/)
-- [恐游里的邻居们[万人迷]](https://www.shgifts8.com/book/32ui7sk/)
-- [[全职高手]治疗什么的不干了！](https://www.shgifts8.com/book/32ui7s9/)
-- [穿为龙傲天发妻后](https://www.shgifts8.com/book/32ui7s7/)
-- [清穿女回来后[天幕]](https://www.shgifts8.com/book/32ui7s4/)
-- [[足球]雏鸟](https://www.shgifts8.com/book/32ui7s3/)
-- [暗恋的价格是三万块](https://www.shgifts8.com/book/32ui7s2/)
-- [专业女配的自我修养（快穿）](https://www.shgifts8.com/book/32ui7s1/)
-- [正是冬雪沸腾时](https://www.shgifts8.com/book/32ui7s0/)
-- [末世八年春，游戏降临](https://www.shgifts8.com/book/32ui7rv/)
-- [谁都不爱的和亲公主](https://www.shgifts8.com/book/32ui7ru/)
-- [人，今晚土拨鼠站岗](https://www.shgifts8.com/book/32ui7rs/)
-- [强取师尊后](https://www.shgifts8.com/book/32ui7rq/)
-- [我只想上京赶考啊[聊斋]](https://www.shgifts8.com/book/32ui7rp/)
-- [万人嫌从末世回来了](https://www.shgifts8.com/book/32ui7rk/)
-- [双生子反派的端水抑郁妈[九零]](https://www.shgifts8.com/book/32ui7rj/)
-- [占有欲Daddy是我老公？](https://www.shgifts8.com/book/32ui7ri/)
-- [乖乖女的杂货铺[八零]](https://www.shgifts8.com/book/32ui7rh/)
-- [炮灰的海外亲戚回国啦！](https://www.shgifts8.com/book/32ui7re/)
-- [魔改剧本后我爆火了[娱乐圈]](https://www.shgifts8.com/book/32ui7ra/)
-- [[综英美]哥谭市民，在线抽卡](https://www.shgifts8.com/book/32ui7r7/)
-- [死遁APP](https://www.shgifts8.com/book/32ui7r2/)
-- [热恋过期需重追](https://www.shgifts8.com/book/32ui7qv/)
-- [失忆后和死对头有了崽](https://www.shgifts8.com/book/32ui7qu/)
-- [谁说踢球就不能成为名侦探[足球]](https://www.shgifts8.com/book/32ui7qp/)
-- [在中世纪做奴隶](https://www.shgifts8.com/book/32ui7qk/)
-- [八零法医，带全家致富](https://www.shgifts8.com/book/32ui7qh/)
-- [国运求生：我的金手指是生命树](https://www.shgifts8.com/book/32ui7qc/)
-- [魔尊闭关十年连生十一子？！](https://www.shgifts8.com/book/32ui7q9/)
-- [［西幻］RPG就不要谈恋爱了吧！](https://www.shgifts8.com/book/32ui7q8/)
-- [康熙宠妃日常](https://www.shgifts8.com/book/32ui7q2/)
-- [魔法种田，从退队经营农场开始](https://www.shgifts8.com/book/32ui7pr/)
-- [大佬的漂亮老婆回来带崽了[八零]](https://www.shgifts8.com/book/32ui7pq/)
-- [国师](https://www.shgifts8.com/book/32ui7pp/)
-- [烈火焚身[巴黎圣母院]](https://www.shgifts8.com/book/32ui7po/)
-- [起初，我只是想找个冤大头](https://www.shgifts8.com/book/32ui7k1/)
-- [华夏神明震撼星际](https://www.shgifts8.com/book/32ui126/)
-- [上个鬼班[无限]](https://www.shgifts8.com/book/32ui0bj/)
-- [[足球]足坛人生模拟器](https://www.shgifts8.com/book/32uhvpi/)
-- [让暴君Alpha怀崽后](https://www.shgifts8.com/book/32uhqgt/)
-- [在卷王和废物之间选择做吉祥物](https://www.shgifts8.com/book/32uhle1/)
-- [从维多利亚时代开始](https://www.shgifts8.com/book/32uhihv/)
-- [昭暮](https://www.shgifts8.com/book/32uhe5t/)
-- [食明](https://www.shgifts8.com/book/32uh3uv/)
-- [诡话第一boss](https://www.shgifts8.com/book/32uh0mq/)
-- [我骗家里的钱养你啊](https://www.shgifts8.com/book/32ugvlu/)
-- [老实人妻，但顶级魅魔](https://www.shgifts8.com/book/32ugvh0/)
-- [我与龙傲天寿命共享](https://www.shgifts8.com/book/32ugs9p/)
-- [[足球]拥有分身系统的我靠踢足球建设国家](https://www.shgifts8.com/book/32ugs8h/)
-- [神豪文男主是我爸](https://www.shgifts8.com/book/32ugrsb/)
-- [我们生活玩家是这样的](https://www.shgifts8.com/book/32ugql9/)
-- [[足球]我的游戏存档成真了？！](https://www.shgifts8.com/book/32ugq1v/)
-- [阴郁残疾炮灰被万人迷后[快穿]](https://www.shgifts8.com/book/32ugq1n/)
-- [如何正确哄睡暴君](https://www.shgifts8.com/book/32ugptj/)
-- [怀了前任大哥的崽后](https://www.shgifts8.com/book/32ugnoo/)
-- [摄政王家的咸鱼夫郎](https://www.shgifts8.com/book/32ugnd2/)
-- [社畜Beta也能被顶A觊觎吗](https://www.shgifts8.com/book/32ugmt5/)
-- [让你们无剧本可走（快穿）](https://www.shgifts8.com/book/32uglu6/)
-- [死遁的亡夫们都回来了](https://www.shgifts8.com/book/32uglmj/)
-- [韩团绿卡不想忍了](https://www.shgifts8.com/book/32ugd83/)
-- [咦？我爸爸复活啦](https://www.shgifts8.com/book/32ugand/)
-- [同时扮演贵族学院F4和平民校花](https://www.shgifts8.com/book/32ug81q/)
-- [被天使之王骗婚后[诡秘之主]](https://www.shgifts8.com/book/32ug7nc/)
-- [苏娘子汴京摆摊日常（美食）](https://www.shgifts8.com/book/32ug6n0/)
-- [假金丝雀深陷修罗场](https://www.shgifts8.com/book/32ug5sh/)
-- [死对头又在挑衅我](https://www.shgifts8.com/book/32ug5cu/)
-- [浣熊市蝙蝠崽的哥谭居住指南](https://www.shgifts8.com/book/32ug4lt/)
-- [沈助理又在隐藏他的超能力](https://www.shgifts8.com/book/32ug4go/)
-- [开局绑定郭奉孝，谋定三国风云](https://www.shgifts8.com/book/32ug3s5/)
-- [美貌单出，杀穿港娱［八零］](https://www.shgifts8.com/book/32ug3f5/)
-- [路人攻了主角攻［快穿］](https://www.shgifts8.com/book/32ug384/)
-- [如何嫁给当朝首辅](https://www.shgifts8.com/book/32ufvj1/)
-- [我司艺人永不塌房](https://www.shgifts8.com/book/32uftsh/)
-- [漂亮女配是万人迷［快穿］](https://www.shgifts8.com/book/32ufrp7/)
-- [我有一座地下城](https://www.shgifts8.com/book/32ufrc3/)
-- [直男咒术师的限制级游戏](https://www.shgifts8.com/book/32ufrar/)
-- [多梦你一会儿](https://www.shgifts8.com/book/32ufppi/)
-- [和贵志君是世界第一的好朋友](https://www.shgifts8.com/book/32ufmc0/)
-- [和治君只是饭搭子的关系](https://www.shgifts8.com/book/32ufm6l/)
-- [阴阳师也可以打网球](https://www.shgifts8.com/book/32ufm0u/)
-- [全世界名为爱的恶意](https://www.shgifts8.com/book/32uflle/)
-- [在魔法贵族学院当白月光](https://www.shgifts8.com/book/32ufjop/)
-- [[足球]小小鸟堂堂来袭](https://www.shgifts8.com/book/32ufjkt/)
-- [五条老师与他的封建妻子](https://www.shgifts8.com/book/32ufhl1/)
-- [我187了，你敢见我吗？](https://www.shgifts8.com/book/32uff9t/)
-- [和姐姐的前女友欢愉后](https://www.shgifts8.com/book/32ufbqk/)
-- [朕也要被强制吗？](https://www.shgifts8.com/book/32uf54f/)
-- [大唐守军家属](https://www.shgifts8.com/book/32uf4bi/)
-- [等我吃腻了再倒闭可以吗](https://www.shgifts8.com/book/32uf3ug/)
-- [心动嫌疑人](https://www.shgifts8.com/book/32uf3k6/)
-- [[综英美]和亲友群穿哥谭以后](https://www.shgifts8.com/book/32uf22h/)
-- [在重生文里考科举](https://www.shgifts8.com/book/32uf1vk/)
-- [死亡悖论[无限流]](https://www.shgifts8.com/book/32uf182/)
-- [[崩铁]请给玩家一个准确的血条！](https://www.shgifts8.com/book/32uf0vn/)
-- [让霸刀山庄重回忍界之巅[综剑三]](https://www.shgifts8.com/book/32uev5p/)
-- [带清冷女主回乡养螃蟹[种田]](https://www.shgifts8.com/book/32uerjv/)
-- [妻主风流（女尊）](https://www.shgifts8.com/book/32uer5s/)
-- [这个位面归我了！[经营]](https://www.shgifts8.com/book/32ueqom/)
-- [穿咒术，但杀猴现场](https://www.shgifts8.com/book/32ueqjn/)
-- [清冷丞相怀了死对头的崽](https://www.shgifts8.com/book/32ueog5/)
-- [逃出金丝笼，我力挽山河开国称帝](https://www.shgifts8.com/book/32ueo2p/)
-- [和山神搭伙开农场的日子](https://www.shgifts8.com/book/32uemhi/)
-- [被糟蹋的老实人决定反击](https://www.shgifts8.com/book/32uelq3/)
-- [村霸非要入赘受气包](https://www.shgifts8.com/book/32uel7l/)
-- [假意逢承](https://www.shgifts8.com/book/32ueksc/)
-- [娘娘扶摇直上](https://www.shgifts8.com/book/32uedg0/)
-- [权宋一只统](https://www.shgifts8.com/book/32uecp9/)
-- [恶犬攻绑定上司的乖狗系统](https://www.shgifts8.com/book/32ueb89/)
-- [爱好和平但狂拆机甲](https://www.shgifts8.com/book/32ue80e/)
-- [你让魔王组建勇者小队？](https://www.shgifts8.com/book/32ue2gq/)
-- [始乱终弃清冷首辅后](https://www.shgifts8.com/book/32ud7ge/)
-- [日化人生[科研]](https://www.shgifts8.com/book/32ud7e3/)
-- [95美国贵族高中模拟](https://www.shgifts8.com/book/32ud7ct/)
-- [成为养成系练习生后](https://www.shgifts8.com/book/32ud7a7/)
-- [全民求生:从小木屋到魔法农场](https://www.shgifts8.com/book/32ud76t/)
-- [高门小婢](https://www.shgifts8.com/book/32ud74p/)
-- [大瑛弟国](https://www.shgifts8.com/book/32ud6ma/)
-- [趁她之危](https://www.shgifts8.com/book/32ud6gc/)
-- [卷王后妈，八零养娃](https://www.shgifts8.com/book/32ud6f9/)
-- [十九世纪贵族厨房（美食）](https://www.shgifts8.com/book/32ud6d3/)
-- [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shgifts8.com/book/32ud69n/)
-- [完蛋！被恨孕男包围了！](https://www.shgifts8.com/book/32ud60n/)
-- [老公对不起](https://www.shgifts8.com/book/32ud5v8/)
-- [我是唯一地上神国](https://www.shgifts8.com/book/32ud5um/)
-- [[封神]圣人生欲](https://www.shgifts8.com/book/32ud5t4/)
-- [五十年代港城日常](https://www.shgifts8.com/book/32ud5i9/)
-- [[娱乐圈]过分美丽的她](https://www.shgifts8.com/book/32ud5i5/)
-- [高调装神，猥琐发育](https://www.shgifts8.com/book/32ud5eo/)
-- [海岛求生：生活玩家种田囤货](https://www.shgifts8.com/book/32ud5dc/)
-- [我有一座安全城](https://www.shgifts8.com/book/32ud5b9/)
-- [清澈女大的六零年代](https://www.shgifts8.com/book/32ud545/)
-- [原配夫人](https://www.shgifts8.com/book/32ud52l/)
-- [巨物致富：回乡开钓场](https://www.shgifts8.com/book/32ud52d/)
-- [在民俗惊悚片被诸神庇护](https://www.shgifts8.com/book/32ud4qa/)
-- [六零之成了卷王的妹妹](https://www.shgifts8.com/book/32ud4pb/)
-- [假少爷离开后](https://www.shgifts8.com/book/32ud4mg/)
-- [星际团宠小人鱼](https://www.shgifts8.com/book/32ud4io/)
+- 爱情的肯定句 https://www.shgifts8.com/book/32ui7ui/
+- 欲加之罪 https://www.shgifts8.com/book/32ui7ug/
+- 前妻她肯定会后悔 https://www.shgifts8.com/book/32ui7uf/
+- 仙尊心尖宠，但被魔尊抢了 https://www.shgifts8.com/book/32ui7ub/
+- SSS级异种都是我前任 https://www.shgifts8.com/book/32ui7u8/
+- 夫人每天都在伪装 https://www.shgifts8.com/book/32ui7u6/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.shgifts8.com/book/32ui7u2/
+- 世界伏于她刀下[无限] https://www.shgifts8.com/book/32ui7u1/
+- 怨明月不独照 https://www.shgifts8.com/book/32ui7ts/
+- 从1951开始 https://www.shgifts8.com/book/32ui7tq/
+- 病美人重生日记 https://www.shgifts8.com/book/32ui7to/
+- 二次分化后他怀了死对头的崽 https://www.shgifts8.com/book/32ui7tm/
+- [原神]魔法使恋爱指南 https://www.shgifts8.com/book/32ui7tj/
+- 禁止继承限制级雌君 https://www.shgifts8.com/book/32ui7th/
+- [洪荒]成为太清妹妹后 https://www.shgifts8.com/book/32ui7tg/
+- 全民求生，但剑三 https://www.shgifts8.com/book/32ui7tb/
+- 欲和离？夫君他目不识丁 https://www.shgifts8.com/book/32ui7ta/
+- 在年代文里跑运输 https://www.shgifts8.com/book/32ui7t3/
+- 恶毒男配只想躺平 https://www.shgifts8.com/book/32ui7t1/
+- 星露谷，但日本战国 https://www.shgifts8.com/book/32ui7t0/
+- 好心的俄罗斯人 https://www.shgifts8.com/book/32ui7sv/
+- 魔咒请说普通话[西幻] https://www.shgifts8.com/book/32ui7st/
+- 漫画取材所引发的修罗场 https://www.shgifts8.com/book/32ui7ss/
+- 我们小区穿末世 https://www.shgifts8.com/book/32ui7so/
+- 恐游作精女配求生指南 https://www.shgifts8.com/book/32ui7sn/
+- 恐游里的邻居们[万人迷] https://www.shgifts8.com/book/32ui7sk/
+- [全职高手]治疗什么的不干了！ https://www.shgifts8.com/book/32ui7s9/
+- 穿为龙傲天发妻后 https://www.shgifts8.com/book/32ui7s7/
+- 清穿女回来后[天幕] https://www.shgifts8.com/book/32ui7s4/
+- [足球]雏鸟 https://www.shgifts8.com/book/32ui7s3/
+- 暗恋的价格是三万块 https://www.shgifts8.com/book/32ui7s2/
+- 专业女配的自我修养（快穿） https://www.shgifts8.com/book/32ui7s1/
+- 正是冬雪沸腾时 https://www.shgifts8.com/book/32ui7s0/
+- 末世八年春，游戏降临 https://www.shgifts8.com/book/32ui7rv/
+- 谁都不爱的和亲公主 https://www.shgifts8.com/book/32ui7ru/
+- 人，今晚土拨鼠站岗 https://www.shgifts8.com/book/32ui7rs/
+- 强取师尊后 https://www.shgifts8.com/book/32ui7rq/
+- 我只想上京赶考啊[聊斋] https://www.shgifts8.com/book/32ui7rp/
+- 万人嫌从末世回来了 https://www.shgifts8.com/book/32ui7rk/
+- 双生子反派的端水抑郁妈[九零] https://www.shgifts8.com/book/32ui7rj/
+- 占有欲Daddy是我老公？ https://www.shgifts8.com/book/32ui7ri/
+- 乖乖女的杂货铺[八零] https://www.shgifts8.com/book/32ui7rh/
+- 炮灰的海外亲戚回国啦！ https://www.shgifts8.com/book/32ui7re/
+- 魔改剧本后我爆火了[娱乐圈] https://www.shgifts8.com/book/32ui7ra/
+- [综英美]哥谭市民，在线抽卡 https://www.shgifts8.com/book/32ui7r7/
+- 死遁APP https://www.shgifts8.com/book/32ui7r2/
+- 热恋过期需重追 https://www.shgifts8.com/book/32ui7qv/
+- 失忆后和死对头有了崽 https://www.shgifts8.com/book/32ui7qu/
+- 谁说踢球就不能成为名侦探[足球] https://www.shgifts8.com/book/32ui7qp/
+- 在中世纪做奴隶 https://www.shgifts8.com/book/32ui7qk/
+- 八零法医，带全家致富 https://www.shgifts8.com/book/32ui7qh/
+- 国运求生：我的金手指是生命树 https://www.shgifts8.com/book/32ui7qc/
+- 魔尊闭关十年连生十一子？！ https://www.shgifts8.com/book/32ui7q9/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.shgifts8.com/book/32ui7q8/
+- 康熙宠妃日常 https://www.shgifts8.com/book/32ui7q2/
+- 魔法种田，从退队经营农场开始 https://www.shgifts8.com/book/32ui7pr/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.shgifts8.com/book/32ui7pq/
+- 国师 https://www.shgifts8.com/book/32ui7pp/
+- 烈火焚身[巴黎圣母院] https://www.shgifts8.com/book/32ui7po/
+- 天幕今天也在直播我搞基建 https://www.shgifts8.com/book/32ui7kb/
+- 起初，我只是想找个冤大头 https://www.shgifts8.com/book/32ui7k1/
+- 仙门透明人被迫万人迷 https://www.shgifts8.com/book/32ui37d/
+- 上个鬼班[无限] https://www.shgifts8.com/book/32ui0bj/
+- [足球]足坛人生模拟器 https://www.shgifts8.com/book/32uhvpi/
+- 让暴君Alpha怀崽后 https://www.shgifts8.com/book/32uhqgt/
+- 在卷王和废物之间选择做吉祥物 https://www.shgifts8.com/book/32uhle1/
+- 从维多利亚时代开始 https://www.shgifts8.com/book/32uhihv/
+- 昭暮 https://www.shgifts8.com/book/32uhe5t/
+- 九零重组小家庭 https://www.shgifts8.com/book/32uhda6/
+- 食明 https://www.shgifts8.com/book/32uh3uv/
+- 诡话第一boss https://www.shgifts8.com/book/32uh0mq/
+- 我骗家里的钱养你啊 https://www.shgifts8.com/book/32ugvlu/
+- 老实人妻，但顶级魅魔 https://www.shgifts8.com/book/32ugvh0/
+- 我与龙傲天寿命共享 https://www.shgifts8.com/book/32ugs9p/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.shgifts8.com/book/32ugs8h/
+- [足球]我的游戏存档成真了？！ https://www.shgifts8.com/book/32ugq1v/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.shgifts8.com/book/32ugq1n/
+- 如何正确哄睡暴君 https://www.shgifts8.com/book/32ugptj/
+- 摄政王家的咸鱼夫郎 https://www.shgifts8.com/book/32ugnd2/
+- 让你们无剧本可走（快穿） https://www.shgifts8.com/book/32uglu6/
+- 死遁的亡夫们都回来了 https://www.shgifts8.com/book/32uglmj/
+- 韩团绿卡不想忍了 https://www.shgifts8.com/book/32ugd83/
+- 咦？我爸爸复活啦 https://www.shgifts8.com/book/32ugand/
+- 同时扮演贵族学院F4和平民校花 https://www.shgifts8.com/book/32ug81q/
+- 被天使之王骗婚后[诡秘之主] https://www.shgifts8.com/book/32ug7nc/
+- 苏娘子汴京摆摊日常（美食） https://www.shgifts8.com/book/32ug6n0/
+- 死对头又在挑衅我 https://www.shgifts8.com/book/32ug5cu/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.shgifts8.com/book/32ug4lt/
+- 沈助理又在隐藏他的超能力 https://www.shgifts8.com/book/32ug4go/
+- 开局绑定郭奉孝，谋定三国风云 https://www.shgifts8.com/book/32ug3s5/
+- 从童星开始杀穿港娱 https://www.shgifts8.com/book/32ug3f5/
+- 路人攻了主角攻［快穿］ https://www.shgifts8.com/book/32ug384/
+- 如何嫁给当朝首辅 https://www.shgifts8.com/book/32ufvj1/
+- 漂亮女配是万人迷［快穿］ https://www.shgifts8.com/book/32ufrp7/
+- 我有一座地下城 https://www.shgifts8.com/book/32ufrc3/
+- 直男咒术师的限制级游戏 https://www.shgifts8.com/book/32ufrar/
+- 多梦你一会儿 https://www.shgifts8.com/book/32ufppi/
+- 和贵志君是世界第一的好朋友 https://www.shgifts8.com/book/32ufmc0/
+- 和治君只是饭搭子的关系 https://www.shgifts8.com/book/32ufm6l/
+- 阴阳师也可以打网球 https://www.shgifts8.com/book/32ufm0u/
+- 全世界名为爱的恶意 https://www.shgifts8.com/book/32uflle/
+- 在魔法贵族学院当白月光 https://www.shgifts8.com/book/32ufjop/
+- [足球]小小鸟堂堂来袭 https://www.shgifts8.com/book/32ufjkt/
+- 五条老师与他的封建妻子 https://www.shgifts8.com/book/32ufhl1/
+- 我187了，你敢见我吗？ https://www.shgifts8.com/book/32uff9t/
+- 和姐姐的前女友欢愉后 https://www.shgifts8.com/book/32ufbqk/
+- 朕也要被强制吗？ https://www.shgifts8.com/book/32uf54f/
+- 大唐守军家属 https://www.shgifts8.com/book/32uf4bi/
+- 等我吃腻了再倒闭可以吗 https://www.shgifts8.com/book/32uf3ug/
+- 心动嫌疑人 https://www.shgifts8.com/book/32uf3k6/
+- [综英美]和亲友群穿哥谭以后 https://www.shgifts8.com/book/32uf22h/
+- 在重生文里考科举 https://www.shgifts8.com/book/32uf1vk/
+- 死亡悖论[无限流] https://www.shgifts8.com/book/32uf182/
+- [崩铁]请给玩家一个准确的血条！ https://www.shgifts8.com/book/32uf0vn/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.shgifts8.com/book/32uev5p/
+- 带清冷女主回乡养螃蟹[种田] https://www.shgifts8.com/book/32uerjv/
+- 妻主风流（女尊） https://www.shgifts8.com/book/32uer5s/
+- 这个位面归我了！[经营] https://www.shgifts8.com/book/32ueqom/
+- 穿咒术，但杀猴现场 https://www.shgifts8.com/book/32ueqjn/
+- 清冷丞相怀了死对头的崽 https://www.shgifts8.com/book/32ueog5/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.shgifts8.com/book/32ueo2p/
+- 和山神搭伙开农场的日子 https://www.shgifts8.com/book/32uemhi/
+- 被糟蹋的老实人决定反击 https://www.shgifts8.com/book/32uelq3/
+- 村霸非要入赘受气包 https://www.shgifts8.com/book/32uel7l/
+- 假意逢承 https://www.shgifts8.com/book/32ueksc/
+- 娘娘扶摇直上 https://www.shgifts8.com/book/32uedg0/
+- 权宋一只统 https://www.shgifts8.com/book/32uecp9/
+- 恶犬攻绑定上司的乖狗系统 https://www.shgifts8.com/book/32ueb89/
+- 爱好和平但狂拆机甲 https://www.shgifts8.com/book/32ue80e/
+- 你让魔王组建勇者小队？ https://www.shgifts8.com/book/32ue2gq/
+- 始乱终弃清冷首辅后 https://www.shgifts8.com/book/32ud7ge/
+- 日化人生[科研] https://www.shgifts8.com/book/32ud7e3/
+- 95美国贵族高中模拟 https://www.shgifts8.com/book/32ud7ct/
+- 成为养成系练习生后 https://www.shgifts8.com/book/32ud7a7/
+- 全民求生:从小木屋到魔法农场 https://www.shgifts8.com/book/32ud76t/
+- 大瑛弟国 https://www.shgifts8.com/book/32ud6ma/
+- 趁她之危 https://www.shgifts8.com/book/32ud6gc/
+- 卷王后妈，八零养娃 https://www.shgifts8.com/book/32ud6f9/
+- 十九世纪贵族厨房（美食） https://www.shgifts8.com/book/32ud6d3/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.shgifts8.com/book/32ud69n/
+- 完蛋！被恨孕男包围了！ https://www.shgifts8.com/book/32ud60n/
+- 老公对不起 https://www.shgifts8.com/book/32ud5v8/
+- 我是唯一地上神国 https://www.shgifts8.com/book/32ud5um/
+- 寡妇美人模拟器 https://www.shgifts8.com/book/32ud5ui/
+- [封神]圣人生欲 https://www.shgifts8.com/book/32ud5t4/
+- 五十年代港城日常 https://www.shgifts8.com/book/32ud5i9/
+- [娱乐圈]过分美丽的她 https://www.shgifts8.com/book/32ud5i5/
+- 高调装神，猥琐发育 https://www.shgifts8.com/book/32ud5eo/
+- 海岛求生：生活玩家种田囤货 https://www.shgifts8.com/book/32ud5dc/
+- 我有一座安全城 https://www.shgifts8.com/book/32ud5b9/
+- 清澈女大的六零年代 https://www.shgifts8.com/book/32ud545/
+- 原配夫人 https://www.shgifts8.com/book/32ud52l/
+- 巨物致富：回乡开钓场 https://www.shgifts8.com/book/32ud52d/
+- 在民俗惊悚片被诸神庇护 https://www.shgifts8.com/book/32ud4qa/
+- 六零之成了卷王的妹妹 https://www.shgifts8.com/book/32ud4pb/
+- 星际团宠小人鱼 https://www.shgifts8.com/book/32ud4io/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1405/index.md)

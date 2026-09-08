@@ -1,175 +1,167 @@
 
 # 读者电子书-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-09-07 03:27:25
+更新时间：2026-09-08 03:28:21
 
-读者电子书提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
-
-- [读者电子书](https://www.duzhe368.com/)
+读者电子书提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。 https://www.duzhe368.com
 
 ## 最新小说
-- [和八个男人在极寒游戏求生](https://www.duzhe368.com/book/3hfvb7j/)
-- [漫画取材所引发的修罗场](https://www.duzhe368.com/book/3hfvb7f/)
-- [二次分化后他怀了死对头的崽](https://www.duzhe368.com/book/3hfvb7d/)
-- [暗恋的价格是三万块](https://www.duzhe368.com/book/3hfvb7c/)
-- [全民求生，但剑三](https://www.duzhe368.com/book/3hfvb76/)
-- [正是冬雪沸腾时](https://www.duzhe368.com/book/3hfvb75/)
-- [SSS级异种都是我前任](https://www.duzhe368.com/book/3hfvb74/)
-- [欲和离？夫君他目不识丁](https://www.duzhe368.com/book/3hfvb72/)
-- [禁止继承限制级雌君](https://www.duzhe368.com/book/3hfvb70/)
-- [人，今晚土拨鼠站岗](https://www.duzhe368.com/book/3hfvb6r/)
-- [星露谷，但日本战国](https://www.duzhe368.com/book/3hfvb6q/)
-- [烈火焚身[巴黎圣母院]](https://www.duzhe368.com/book/3hfvb6o/)
-- [国运求生：我的金手指是生命树](https://www.duzhe368.com/book/3hfvb6n/)
-- [恐游里的邻居们[万人迷]](https://www.duzhe368.com/book/3hfvb6k/)
-- [占有欲Daddy是我老公？](https://www.duzhe368.com/book/3hfvb6i/)
-- [病美人重生日记](https://www.duzhe368.com/book/3hfvb6c/)
-- [娘娘扶摇直上](https://www.duzhe368.com/book/3hfvb6a/)
-- [失忆后和死对头有了崽](https://www.duzhe368.com/book/3hfvb69/)
-- [清穿女回来后[天幕]](https://www.duzhe368.com/book/3hfvb68/)
-- [恶毒男配只想躺平](https://www.duzhe368.com/book/3hfvb65/)
-- [你让魔王组建勇者小队？](https://www.duzhe368.com/book/3hfvb63/)
-- [爱情的肯定句](https://www.duzhe368.com/book/3hfvb60/)
-- [热恋过期需重追](https://www.duzhe368.com/book/3hfvb5v/)
-- [仙尊心尖宠，但被魔尊抢了](https://www.duzhe368.com/book/3hfvb5s/)
-- [炮灰的海外亲戚回国啦！](https://www.duzhe368.com/book/3hfvb5q/)
-- [魔法种田，从退队经营农场开始](https://www.duzhe368.com/book/3hfvb5p/)
-- [国师](https://www.duzhe368.com/book/3hfvb5o/)
-- [死遁APP](https://www.duzhe368.com/book/3hfvb5n/)
-- [乖乖女的杂货铺[八零]](https://www.duzhe368.com/book/3hfvb5m/)
-- [魔尊闭关十年连生十一子？！](https://www.duzhe368.com/book/3hfvb5l/)
-- [我们小区穿末世](https://www.duzhe368.com/book/3hfvb5j/)
-- [万人嫌从末世回来了](https://www.duzhe368.com/book/3hfvb5d/)
-- [康熙宠妃日常](https://www.duzhe368.com/book/3hfvb53/)
-- [全世界名为爱的恶意](https://www.duzhe368.com/book/3hfvb52/)
-- [八零法医，带全家致富](https://www.duzhe368.com/book/3hfvb4t/)
-- [末世八年春，游戏降临](https://www.duzhe368.com/book/3hfvb4s/)
-- [等我吃腻了再倒闭可以吗](https://www.duzhe368.com/book/3hfvb4r/)
-- [强取师尊后](https://www.duzhe368.com/book/3hfvb4p/)
-- [恐游作精女配求生指南](https://www.duzhe368.com/book/3hfvb4o/)
-- [魔咒请说普通话[西幻]](https://www.duzhe368.com/book/3hfvb4k/)
-- [大佬的漂亮老婆回来带崽了[八零]](https://www.duzhe368.com/book/3hfvb4g/)
-- [[足球]雏鸟](https://www.duzhe368.com/book/3hfvb4d/)
-- [［西幻］RPG就不要谈恋爱了吧！](https://www.duzhe368.com/book/3hfvb49/)
-- [谁说踢球就不能成为名侦探[足球]](https://www.duzhe368.com/book/3hfvb46/)
-- [谁都不爱的和亲公主](https://www.duzhe368.com/book/3hfvb45/)
-- [[全职高手]治疗什么的不干了！](https://www.duzhe368.com/book/3hfvb42/)
-- [世界伏于她刀下[无限]](https://www.duzhe368.com/book/3hfvb3v/)
-- [穿为龙傲天发妻后](https://www.duzhe368.com/book/3hfvb3u/)
-- [双生子反派的端水抑郁妈[九零]](https://www.duzhe368.com/book/3hfvb3r/)
-- [在年代文里跑运输](https://www.duzhe368.com/book/3hfvb3o/)
-- [［综英美］蝙蝠崽？我不是啊！](https://www.duzhe368.com/book/3hfvb3m/)
-- [穿咒术，但杀猴现场](https://www.duzhe368.com/book/3hfvb3l/)
-- [我只想上京赶考啊[聊斋]](https://www.duzhe368.com/book/3hfvb3i/)
-- [[洪荒]成为太清妹妹后](https://www.duzhe368.com/book/3hfvb3e/)
-- [魔改剧本后我爆火了[娱乐圈]](https://www.duzhe368.com/book/3hfvb39/)
-- [前妻她肯定会后悔](https://www.duzhe368.com/book/3hfvb32/)
-- [欲加之罪](https://www.duzhe368.com/book/3hfvb30/)
-- [从1951开始](https://www.duzhe368.com/book/3hfvb2v/)
-- [[综英美]哥谭市民，在线抽卡](https://www.duzhe368.com/book/3hfvb2u/)
-- [夫人每天都在伪装](https://www.duzhe368.com/book/3hfvb2s/)
-- [在中世纪做奴隶](https://www.duzhe368.com/book/3hfvb2r/)
-- [[综英美]和亲友群穿哥谭以后](https://www.duzhe368.com/book/3hfvb2o/)
-- [[原神]魔法使恋爱指南](https://www.duzhe368.com/book/3hfvb2i/)
-- [怨明月不独照](https://www.duzhe368.com/book/3hfvb2e/)
-- [好心的俄罗斯人](https://www.duzhe368.com/book/3hfvb2d/)
-- [起初，我只是想找个冤大头](https://www.duzhe368.com/book/3hfv13b/)
-- [[足球]拥有分身系统的我靠踢足球建设国家](https://www.duzhe368.com/book/3hfuv15/)
-- [我们生活玩家是这样的](https://www.duzhe368.com/book/3hfuv0f/)
-- [上个鬼班[无限]](https://www.duzhe368.com/book/3hfuqbt/)
-- [华夏神明震撼星际](https://www.duzhe368.com/book/3hfuk36/)
-- [让暴君Alpha怀崽后](https://www.duzhe368.com/book/3hfuj8e/)
-- [[足球]足坛人生模拟器](https://www.duzhe368.com/book/3hfuiim/)
-- [神豪文男主是我爸](https://www.duzhe368.com/book/3hfue5d/)
-- [在卷王和废物之间选择做吉祥物](https://www.duzhe368.com/book/3hfu8iu/)
-- [从维多利亚时代开始](https://www.duzhe368.com/book/3hfu576/)
-- [昭暮](https://www.duzhe368.com/book/3hfu3i1/)
-- [十九世纪贵族厨房（美食）](https://www.duzhe368.com/book/3hfu082/)
-- [原配夫人](https://www.duzhe368.com/book/3hfu075/)
-- [星际团宠小人鱼](https://www.duzhe368.com/book/3hfu02v/)
-- [始乱终弃清冷首辅后](https://www.duzhe368.com/book/3hfu024/)
-- [高调装神，猥琐发育](https://www.duzhe368.com/book/3hftp55/)
-- [完蛋！被恨孕男包围了！](https://www.duzhe368.com/book/3hftp38/)
-- [食明](https://www.duzhe368.com/book/3hftm3n/)
-- [诡话第一boss](https://www.duzhe368.com/book/3hftj50/)
-- [专业女配的自我修养（快穿）](https://www.duzhe368.com/book/3hfti44/)
-- [老实人妻，但顶级魅魔](https://www.duzhe368.com/book/3hftgkm/)
-- [[足球]我的游戏存档成真了？！](https://www.duzhe368.com/book/3hftani/)
-- [摄政王家的咸鱼夫郎](https://www.duzhe368.com/book/3hft98j/)
-- [让你们无剧本可走（快穿）](https://www.duzhe368.com/book/3hft7nl/)
-- [我与龙傲天寿命共享](https://www.duzhe368.com/book/3hft7jd/)
-- [社畜Beta也能被顶A觊觎吗](https://www.duzhe368.com/book/3hft714/)
-- [如何正确哄睡暴君](https://www.duzhe368.com/book/3hft43q/)
-- [怀了前任大哥的崽后](https://www.duzhe368.com/book/3hft0gh/)
-- [我骗家里的钱养你啊](https://www.duzhe368.com/book/3hfsvhu/)
-- [死遁的亡夫们都回来了](https://www.duzhe368.com/book/3hfsukn/)
-- [阴郁残疾炮灰被万人迷后[快穿]](https://www.duzhe368.com/book/3hfsu05/)
-- [在民俗惊悚片被诸神庇护](https://www.duzhe368.com/book/3hfsmqe/)
-- [死对头又在挑衅我](https://www.duzhe368.com/book/3hfsmlq/)
-- [沈助理又在隐藏他的超能力](https://www.duzhe368.com/book/3hfslur/)
-- [假金丝雀深陷修罗场](https://www.duzhe368.com/book/3hfsj6f/)
-- [被天使之王骗婚后[诡秘之主]](https://www.duzhe368.com/book/3hfsim6/)
-- [咦？我爸爸复活啦](https://www.duzhe368.com/book/3hfsh5l/)
-- [美貌单出，杀穿港娱［八零］](https://www.duzhe368.com/book/3hfsh54/)
-- [同时扮演贵族学院F4和平民校花](https://www.duzhe368.com/book/3hfsgak/)
-- [路人攻了主角攻［快穿］](https://www.duzhe368.com/book/3hfsf1j/)
-- [开局绑定郭奉孝，谋定三国风云](https://www.duzhe368.com/book/3hfsf15/)
-- [韩团绿卡不想忍了](https://www.duzhe368.com/book/3hfseca/)
-- [苏娘子汴京摆摊日常（美食）](https://www.duzhe368.com/book/3hfsbkf/)
-- [我有一座地下城](https://www.duzhe368.com/book/3hfsbfb/)
-- [漂亮女配是万人迷［快穿］](https://www.duzhe368.com/book/3hfsbdh/)
-- [阴阳师也可以打网球](https://www.duzhe368.com/book/3hfs503/)
-- [如何嫁给当朝首辅](https://www.duzhe368.com/book/3hfs4i9/)
-- [多梦你一会儿](https://www.duzhe368.com/book/3hfs4ds/)
-- [[封神]圣人生欲](https://www.duzhe368.com/book/3hfs47l/)
-- [和贵志君是世界第一的好朋友](https://www.duzhe368.com/book/3hfs3qc/)
-- [和治君只是饭搭子的关系](https://www.duzhe368.com/book/3hfs3n1/)
-- [五条老师与他的封建妻子](https://www.duzhe368.com/book/3hfs20i/)
-- [卷王后妈，八零养娃](https://www.duzhe368.com/book/3hfs0rp/)
-- [在魔法贵族学院当白月光](https://www.duzhe368.com/book/3hfs0km/)
-- [我司艺人永不塌房](https://www.duzhe368.com/book/3hfs02r/)
-- [我187了，你敢见我吗？](https://www.duzhe368.com/book/3hfru2d/)
-- [和姐姐的前女友欢愉后](https://www.duzhe368.com/book/3hfrrih/)
-- [大唐守军家属](https://www.duzhe368.com/book/3hfrknf/)
-- [在重生文里考科举](https://www.duzhe368.com/book/3hfrjti/)
-- [朕也要被强制吗？](https://www.duzhe368.com/book/3hfrija/)
-- [[足球]小小鸟堂堂来袭](https://www.duzhe368.com/book/3hfrfn9/)
-- [让霸刀山庄重回忍界之巅[综剑三]](https://www.duzhe368.com/book/3hfreqg/)
-- [死亡悖论[无限流]](https://www.duzhe368.com/book/3hfre4t/)
-- [妻主风流（女尊）](https://www.duzhe368.com/book/3hfrdgf/)
-- [心动嫌疑人](https://www.duzhe368.com/book/3hfrcu8/)
-- [带清冷女主回乡养螃蟹[种田]](https://www.duzhe368.com/book/3hfrbff/)
-- [这个位面归我了！[经营]](https://www.duzhe368.com/book/3hframm/)
-- [趁她之危](https://www.duzhe368.com/book/3hfr9uq/)
-- [逃出金丝笼，我力挽山河开国称帝](https://www.duzhe368.com/book/3hfr8g0/)
-- [村霸非要入赘受气包](https://www.duzhe368.com/book/3hfr7tn/)
-- [清冷丞相怀了死对头的崽](https://www.duzhe368.com/book/3hfr6vu/)
-- [[崩铁]请给玩家一个准确的血条！](https://www.duzhe368.com/book/3hfr6pu/)
-- [被糟蹋的老实人决定反击](https://www.duzhe368.com/book/3hfr3v0/)
-- [和山神搭伙开农场的日子](https://www.duzhe368.com/book/3hfr3g4/)
-- [假意逢承](https://www.duzhe368.com/book/3hfr1aj/)
-- [恶犬攻绑定上司的乖狗系统](https://www.duzhe368.com/book/3hfqvn6/)
-- [权宋一只统](https://www.duzhe368.com/book/3hfqqqm/)
-- [爱好和平但狂拆机甲](https://www.duzhe368.com/book/3hfqn0f/)
-- [我是唯一地上神国](https://www.duzhe368.com/book/3hfppvf/)
-- [[娱乐圈]过分美丽的她](https://www.duzhe368.com/book/3hfppge/)
-- [日化人生[科研]](https://www.duzhe368.com/book/3hfppfb/)
-- [假少爷离开后](https://www.duzhe368.com/book/3hfppdd/)
-- [大瑛弟国](https://www.duzhe368.com/book/3hfpp62/)
-- [95美国贵族高中模拟](https://www.duzhe368.com/book/3hfpp5l/)
-- [六零之成了卷王的妹妹](https://www.duzhe368.com/book/3hfpp3i/)
-- [老公对不起](https://www.duzhe368.com/book/3hfpor6/)
-- [我有一座安全城](https://www.duzhe368.com/book/3hfpoio/)
-- [巨物致富：回乡开钓场](https://www.duzhe368.com/book/3hfpoei/)
-- [成为养成系练习生后](https://www.duzhe368.com/book/3hfpoe0/)
-- [五十年代港城日常](https://www.duzhe368.com/book/3hfpoaf/)
-- [高门小婢](https://www.duzhe368.com/book/3hfpo7t/)
-- [全民求生:从小木屋到魔法农场](https://www.duzhe368.com/book/3hfpnbc/)
-- [海岛求生：生活玩家种田囤货](https://www.duzhe368.com/book/3hfpnb9/)
-- [浣熊市蝙蝠崽的哥谭居住指南](https://www.duzhe368.com/book/3hfpn89/)
-- [清澈女大的六零年代](https://www.duzhe368.com/book/3hfpn2v/)
-- [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.duzhe368.com/book/3hfpmur/)
-- [直男咒术师的限制级游戏](https://www.duzhe368.com/book/3hfpmre/)
+- 漫画取材所引发的修罗场 https://www.duzhe368.com/book/3hfvb7f/
+- 二次分化后他怀了死对头的崽 https://www.duzhe368.com/book/3hfvb7d/
+- 暗恋的价格是三万块 https://www.duzhe368.com/book/3hfvb7c/
+- 全民求生，但剑三 https://www.duzhe368.com/book/3hfvb76/
+- 正是冬雪沸腾时 https://www.duzhe368.com/book/3hfvb75/
+- SSS级异种都是我前任 https://www.duzhe368.com/book/3hfvb74/
+- 欲和离？夫君他目不识丁 https://www.duzhe368.com/book/3hfvb72/
+- 禁止继承限制级雌君 https://www.duzhe368.com/book/3hfvb70/
+- 人，今晚土拨鼠站岗 https://www.duzhe368.com/book/3hfvb6r/
+- 星露谷，但日本战国 https://www.duzhe368.com/book/3hfvb6q/
+- 烈火焚身[巴黎圣母院] https://www.duzhe368.com/book/3hfvb6o/
+- 国运求生：我的金手指是生命树 https://www.duzhe368.com/book/3hfvb6n/
+- 恐游里的邻居们[万人迷] https://www.duzhe368.com/book/3hfvb6k/
+- 占有欲Daddy是我老公？ https://www.duzhe368.com/book/3hfvb6i/
+- 病美人重生日记 https://www.duzhe368.com/book/3hfvb6c/
+- 娘娘扶摇直上 https://www.duzhe368.com/book/3hfvb6a/
+- 失忆后和死对头有了崽 https://www.duzhe368.com/book/3hfvb69/
+- 清穿女回来后[天幕] https://www.duzhe368.com/book/3hfvb68/
+- 恶毒男配只想躺平 https://www.duzhe368.com/book/3hfvb65/
+- 你让魔王组建勇者小队？ https://www.duzhe368.com/book/3hfvb63/
+- 爱情的肯定句 https://www.duzhe368.com/book/3hfvb60/
+- 热恋过期需重追 https://www.duzhe368.com/book/3hfvb5v/
+- 仙尊心尖宠，但被魔尊抢了 https://www.duzhe368.com/book/3hfvb5s/
+- 炮灰的海外亲戚回国啦！ https://www.duzhe368.com/book/3hfvb5q/
+- 魔法种田，从退队经营农场开始 https://www.duzhe368.com/book/3hfvb5p/
+- 国师 https://www.duzhe368.com/book/3hfvb5o/
+- 死遁APP https://www.duzhe368.com/book/3hfvb5n/
+- 乖乖女的杂货铺[八零] https://www.duzhe368.com/book/3hfvb5m/
+- 魔尊闭关十年连生十一子？！ https://www.duzhe368.com/book/3hfvb5l/
+- 我们小区穿末世 https://www.duzhe368.com/book/3hfvb5j/
+- 万人嫌从末世回来了 https://www.duzhe368.com/book/3hfvb5d/
+- 康熙宠妃日常 https://www.duzhe368.com/book/3hfvb53/
+- 全世界名为爱的恶意 https://www.duzhe368.com/book/3hfvb52/
+- 八零法医，带全家致富 https://www.duzhe368.com/book/3hfvb4t/
+- 末世八年春，游戏降临 https://www.duzhe368.com/book/3hfvb4s/
+- 等我吃腻了再倒闭可以吗 https://www.duzhe368.com/book/3hfvb4r/
+- 强取师尊后 https://www.duzhe368.com/book/3hfvb4p/
+- 恐游作精女配求生指南 https://www.duzhe368.com/book/3hfvb4o/
+- 魔咒请说普通话[西幻] https://www.duzhe368.com/book/3hfvb4k/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.duzhe368.com/book/3hfvb4g/
+- [足球]雏鸟 https://www.duzhe368.com/book/3hfvb4d/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.duzhe368.com/book/3hfvb49/
+- 谁说踢球就不能成为名侦探[足球] https://www.duzhe368.com/book/3hfvb46/
+- 谁都不爱的和亲公主 https://www.duzhe368.com/book/3hfvb45/
+- [全职高手]治疗什么的不干了！ https://www.duzhe368.com/book/3hfvb42/
+- 世界伏于她刀下[无限] https://www.duzhe368.com/book/3hfvb3v/
+- 穿为龙傲天发妻后 https://www.duzhe368.com/book/3hfvb3u/
+- 双生子反派的端水抑郁妈[九零] https://www.duzhe368.com/book/3hfvb3r/
+- 在年代文里跑运输 https://www.duzhe368.com/book/3hfvb3o/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.duzhe368.com/book/3hfvb3m/
+- 穿咒术，但杀猴现场 https://www.duzhe368.com/book/3hfvb3l/
+- 我只想上京赶考啊[聊斋] https://www.duzhe368.com/book/3hfvb3i/
+- [洪荒]成为太清妹妹后 https://www.duzhe368.com/book/3hfvb3e/
+- 魔改剧本后我爆火了[娱乐圈] https://www.duzhe368.com/book/3hfvb39/
+- 前妻她肯定会后悔 https://www.duzhe368.com/book/3hfvb32/
+- 欲加之罪 https://www.duzhe368.com/book/3hfvb30/
+- 从1951开始 https://www.duzhe368.com/book/3hfvb2v/
+- [综英美]哥谭市民，在线抽卡 https://www.duzhe368.com/book/3hfvb2u/
+- 夫人每天都在伪装 https://www.duzhe368.com/book/3hfvb2s/
+- 在中世纪做奴隶 https://www.duzhe368.com/book/3hfvb2r/
+- [综英美]和亲友群穿哥谭以后 https://www.duzhe368.com/book/3hfvb2o/
+- [原神]魔法使恋爱指南 https://www.duzhe368.com/book/3hfvb2i/
+- 怨明月不独照 https://www.duzhe368.com/book/3hfvb2e/
+- 好心的俄罗斯人 https://www.duzhe368.com/book/3hfvb2d/
+- 起初，我只是想找个冤大头 https://www.duzhe368.com/book/3hfv13b/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.duzhe368.com/book/3hfuv15/
+- 上个鬼班[无限] https://www.duzhe368.com/book/3hfuqbt/
+- 九零重组小家庭 https://www.duzhe368.com/book/3hfujkd/
+- 让暴君Alpha怀崽后 https://www.duzhe368.com/book/3hfuj8e/
+- [足球]足坛人生模拟器 https://www.duzhe368.com/book/3hfuiim/
+- 在卷王和废物之间选择做吉祥物 https://www.duzhe368.com/book/3hfu8iu/
+- 从维多利亚时代开始 https://www.duzhe368.com/book/3hfu576/
+- 昭暮 https://www.duzhe368.com/book/3hfu3i1/
+- 十九世纪贵族厨房（美食） https://www.duzhe368.com/book/3hfu082/
+- 原配夫人 https://www.duzhe368.com/book/3hfu075/
+- 星际团宠小人鱼 https://www.duzhe368.com/book/3hfu02v/
+- 始乱终弃清冷首辅后 https://www.duzhe368.com/book/3hfu024/
+- 高调装神，猥琐发育 https://www.duzhe368.com/book/3hftp55/
+- 完蛋！被恨孕男包围了！ https://www.duzhe368.com/book/3hftp38/
+- 食明 https://www.duzhe368.com/book/3hftm3n/
+- 诡话第一boss https://www.duzhe368.com/book/3hftj50/
+- 专业女配的自我修养（快穿） https://www.duzhe368.com/book/3hfti44/
+- 老实人妻，但顶级魅魔 https://www.duzhe368.com/book/3hftgkm/
+- [足球]我的游戏存档成真了？！ https://www.duzhe368.com/book/3hftani/
+- 摄政王家的咸鱼夫郎 https://www.duzhe368.com/book/3hft98j/
+- 让你们无剧本可走（快穿） https://www.duzhe368.com/book/3hft7nl/
+- 我与龙傲天寿命共享 https://www.duzhe368.com/book/3hft7jd/
+- 如何正确哄睡暴君 https://www.duzhe368.com/book/3hft43q/
+- 我骗家里的钱养你啊 https://www.duzhe368.com/book/3hfsvhu/
+- 死遁的亡夫们都回来了 https://www.duzhe368.com/book/3hfsukn/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.duzhe368.com/book/3hfsu05/
+- 在民俗惊悚片被诸神庇护 https://www.duzhe368.com/book/3hfsmqe/
+- 死对头又在挑衅我 https://www.duzhe368.com/book/3hfsmlq/
+- 沈助理又在隐藏他的超能力 https://www.duzhe368.com/book/3hfslur/
+- 被天使之王骗婚后[诡秘之主] https://www.duzhe368.com/book/3hfsim6/
+- 咦？我爸爸复活啦 https://www.duzhe368.com/book/3hfsh5l/
+- 从童星开始杀穿港娱 https://www.duzhe368.com/book/3hfsh54/
+- 同时扮演贵族学院F4和平民校花 https://www.duzhe368.com/book/3hfsgak/
+- 路人攻了主角攻［快穿］ https://www.duzhe368.com/book/3hfsf1j/
+- 开局绑定郭奉孝，谋定三国风云 https://www.duzhe368.com/book/3hfsf15/
+- 韩团绿卡不想忍了 https://www.duzhe368.com/book/3hfseca/
+- 苏娘子汴京摆摊日常（美食） https://www.duzhe368.com/book/3hfsbkf/
+- 我有一座地下城 https://www.duzhe368.com/book/3hfsbfb/
+- 漂亮女配是万人迷［快穿］ https://www.duzhe368.com/book/3hfsbdh/
+- 阴阳师也可以打网球 https://www.duzhe368.com/book/3hfs503/
+- 如何嫁给当朝首辅 https://www.duzhe368.com/book/3hfs4i9/
+- 多梦你一会儿 https://www.duzhe368.com/book/3hfs4ds/
+- [封神]圣人生欲 https://www.duzhe368.com/book/3hfs47l/
+- 和贵志君是世界第一的好朋友 https://www.duzhe368.com/book/3hfs3qc/
+- 和治君只是饭搭子的关系 https://www.duzhe368.com/book/3hfs3n1/
+- 五条老师与他的封建妻子 https://www.duzhe368.com/book/3hfs20i/
+- 卷王后妈，八零养娃 https://www.duzhe368.com/book/3hfs0rp/
+- 在魔法贵族学院当白月光 https://www.duzhe368.com/book/3hfs0km/
+- 我187了，你敢见我吗？ https://www.duzhe368.com/book/3hfru2d/
+- 和姐姐的前女友欢愉后 https://www.duzhe368.com/book/3hfrrih/
+- 大唐守军家属 https://www.duzhe368.com/book/3hfrknf/
+- 在重生文里考科举 https://www.duzhe368.com/book/3hfrjti/
+- 朕也要被强制吗？ https://www.duzhe368.com/book/3hfrija/
+- [足球]小小鸟堂堂来袭 https://www.duzhe368.com/book/3hfrfn9/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.duzhe368.com/book/3hfreqg/
+- 死亡悖论[无限流] https://www.duzhe368.com/book/3hfre4t/
+- 妻主风流（女尊） https://www.duzhe368.com/book/3hfrdgf/
+- 心动嫌疑人 https://www.duzhe368.com/book/3hfrcu8/
+- 带清冷女主回乡养螃蟹[种田] https://www.duzhe368.com/book/3hfrbff/
+- 这个位面归我了！[经营] https://www.duzhe368.com/book/3hframm/
+- 趁她之危 https://www.duzhe368.com/book/3hfr9uq/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.duzhe368.com/book/3hfr8g0/
+- 村霸非要入赘受气包 https://www.duzhe368.com/book/3hfr7tn/
+- 清冷丞相怀了死对头的崽 https://www.duzhe368.com/book/3hfr6vu/
+- [崩铁]请给玩家一个准确的血条！ https://www.duzhe368.com/book/3hfr6pu/
+- 被糟蹋的老实人决定反击 https://www.duzhe368.com/book/3hfr3v0/
+- 和山神搭伙开农场的日子 https://www.duzhe368.com/book/3hfr3g4/
+- 假意逢承 https://www.duzhe368.com/book/3hfr1aj/
+- 恶犬攻绑定上司的乖狗系统 https://www.duzhe368.com/book/3hfqvn6/
+- 权宋一只统 https://www.duzhe368.com/book/3hfqqqm/
+- 爱好和平但狂拆机甲 https://www.duzhe368.com/book/3hfqn0f/
+- 我是唯一地上神国 https://www.duzhe368.com/book/3hfppvf/
+- [娱乐圈]过分美丽的她 https://www.duzhe368.com/book/3hfppge/
+- 日化人生[科研] https://www.duzhe368.com/book/3hfppfb/
+- 大瑛弟国 https://www.duzhe368.com/book/3hfpp62/
+- 95美国贵族高中模拟 https://www.duzhe368.com/book/3hfpp5l/
+- 六零之成了卷王的妹妹 https://www.duzhe368.com/book/3hfpp3i/
+- 寡妇美人模拟器 https://www.duzhe368.com/book/3hfpp2l/
+- 老公对不起 https://www.duzhe368.com/book/3hfpor6/
+- 我有一座安全城 https://www.duzhe368.com/book/3hfpoio/
+- 巨物致富：回乡开钓场 https://www.duzhe368.com/book/3hfpoei/
+- 成为养成系练习生后 https://www.duzhe368.com/book/3hfpoe0/
+- 五十年代港城日常 https://www.duzhe368.com/book/3hfpoaf/
+- 仙门透明人被迫万人迷 https://www.duzhe368.com/book/3hfpnep/
+- 全民求生:从小木屋到魔法农场 https://www.duzhe368.com/book/3hfpnbc/
+- 海岛求生：生活玩家种田囤货 https://www.duzhe368.com/book/3hfpnb9/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.duzhe368.com/book/3hfpn89/
+- 天幕今天也在直播我搞基建 https://www.duzhe368.com/book/3hfpn75/
+- 清澈女大的六零年代 https://www.duzhe368.com/book/3hfpn2v/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.duzhe368.com/book/3hfpmur/
+- 直男咒术师的限制级游戏 https://www.duzhe368.com/book/3hfpmre/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1352/index.md)

@@ -1,175 +1,167 @@
 
 # 爱阅读-最新优质免费无弹窗小说在线阅读
 
-更新时间：2026-09-07 03:47:51
+更新时间：2026-09-08 03:48:48
 
-爱阅读提供清爽干净、页面整洁没弹窗的网络小说阅读体验。这里有大量的免费小说、完本小说供您选择，包括热门言情小说、玄幻小说、仙侠小说等多种类型。是广大书友必备的纯绿色小说阅读网站。
-
-- [爱阅读小说网](https://www.yuedu788.com/)
+爱阅读提供清爽干净、页面整洁没弹窗的网络小说阅读体验。这里有大量的免费小说、完本小说供您选择，包括热门言情小说、玄幻小说、仙侠小说等多种类型。是广大书友必备的纯绿色小说阅读网站。 https://www.yuedu788.com
 
 ## 最新小说
-- [和八个男人在极寒游戏求生](https://www.yuedu788.com/book/1on7blr/)
-- [SSS级异种都是我前任](https://www.yuedu788.com/book/1on7blp/)
-- [八零法医，带全家致富](https://www.yuedu788.com/book/1on7blm/)
-- [国师](https://www.yuedu788.com/book/1on7bll/)
-- [[综英美]哥谭市民，在线抽卡](https://www.yuedu788.com/book/1on7blj/)
-- [魔尊闭关十年连生十一子？！](https://www.yuedu788.com/book/1on7blh/)
-- [人，今晚土拨鼠站岗](https://www.yuedu788.com/book/1on7bld/)
-- [二次分化后他怀了死对头的崽](https://www.yuedu788.com/book/1on7blb/)
-- [等我吃腻了再倒闭可以吗](https://www.yuedu788.com/book/1on7bla/)
-- [恐游作精女配求生指南](https://www.yuedu788.com/book/1on7bl9/)
-- [乖乖女的杂货铺[八零]](https://www.yuedu788.com/book/1on7bl7/)
-- [清穿女回来后[天幕]](https://www.yuedu788.com/book/1on7bl5/)
-- [谁都不爱的和亲公主](https://www.yuedu788.com/book/1on7bkt/)
-- [在年代文里跑运输](https://www.yuedu788.com/book/1on7bkr/)
-- [［西幻］RPG就不要谈恋爱了吧！](https://www.yuedu788.com/book/1on7bkn/)
-- [占有欲Daddy是我老公？](https://www.yuedu788.com/book/1on7bkl/)
-- [[洪荒]成为太清妹妹后](https://www.yuedu788.com/book/1on7bkf/)
-- [怨明月不独照](https://www.yuedu788.com/book/1on7bkc/)
-- [热恋过期需重追](https://www.yuedu788.com/book/1on7bk9/)
-- [好心的俄罗斯人](https://www.yuedu788.com/book/1on7bk7/)
-- [失忆后和死对头有了崽](https://www.yuedu788.com/book/1on7bk6/)
-- [魔法种田，从退队经营农场开始](https://www.yuedu788.com/book/1on7bk3/)
-- [[全职高手]治疗什么的不干了！](https://www.yuedu788.com/book/1on7bk2/)
-- [双生子反派的端水抑郁妈[九零]](https://www.yuedu788.com/book/1on7bk1/)
-- [欲和离？夫君他目不识丁](https://www.yuedu788.com/book/1on7bjp/)
-- [全世界名为爱的恶意](https://www.yuedu788.com/book/1on7bjn/)
-- [[足球]雏鸟](https://www.yuedu788.com/book/1on7bjl/)
-- [[综英美]和亲友群穿哥谭以后](https://www.yuedu788.com/book/1on7bji/)
-- [正是冬雪沸腾时](https://www.yuedu788.com/book/1on7bjh/)
-- [夫人每天都在伪装](https://www.yuedu788.com/book/1on7bjg/)
-- [我们小区穿末世](https://www.yuedu788.com/book/1on7bj8/)
-- [病美人重生日记](https://www.yuedu788.com/book/1on7bj3/)
-- [漫画取材所引发的修罗场](https://www.yuedu788.com/book/1on7bj2/)
-- [魔咒请说普通话[西幻]](https://www.yuedu788.com/book/1on7bj0/)
-- [谁说踢球就不能成为名侦探[足球]](https://www.yuedu788.com/book/1on7bis/)
-- [欲加之罪](https://www.yuedu788.com/book/1on7bio/)
-- [暗恋的价格是三万块](https://www.yuedu788.com/book/1on7bin/)
-- [前妻她肯定会后悔](https://www.yuedu788.com/book/1on7bil/)
-- [娘娘扶摇直上](https://www.yuedu788.com/book/1on7bik/)
-- [在中世纪做奴隶](https://www.yuedu788.com/book/1on7bij/)
-- [烈火焚身[巴黎圣母院]](https://www.yuedu788.com/book/1on7bih/)
-- [世界伏于她刀下[无限]](https://www.yuedu788.com/book/1on7big/)
-- [康熙宠妃日常](https://www.yuedu788.com/book/1on7bie/)
-- [炮灰的海外亲戚回国啦！](https://www.yuedu788.com/book/1on7bic/)
-- [全民求生，但剑三](https://www.yuedu788.com/book/1on7bia/)
-- [强取师尊后](https://www.yuedu788.com/book/1on7bi5/)
-- [穿为龙傲天发妻后](https://www.yuedu788.com/book/1on7bi4/)
-- [仙尊心尖宠，但被魔尊抢了](https://www.yuedu788.com/book/1on7bi1/)
-- [末世八年春，游戏降临](https://www.yuedu788.com/book/1on7bhv/)
-- [禁止继承限制级雌君](https://www.yuedu788.com/book/1on7bhu/)
-- [从1951开始](https://www.yuedu788.com/book/1on7bht/)
-- [国运求生：我的金手指是生命树](https://www.yuedu788.com/book/1on7bhs/)
-- [恶毒男配只想躺平](https://www.yuedu788.com/book/1on7bhm/)
-- [恐游里的邻居们[万人迷]](https://www.yuedu788.com/book/1on7bhl/)
-- [死遁APP](https://www.yuedu788.com/book/1on7bhc/)
-- [星露谷，但日本战国](https://www.yuedu788.com/book/1on7bhb/)
-- [万人嫌从末世回来了](https://www.yuedu788.com/book/1on7bh9/)
-- [我只想上京赶考啊[聊斋]](https://www.yuedu788.com/book/1on7bh8/)
-- [魔改剧本后我爆火了[娱乐圈]](https://www.yuedu788.com/book/1on7bh4/)
-- [穿咒术，但杀猴现场](https://www.yuedu788.com/book/1on7bh3/)
-- [你让魔王组建勇者小队？](https://www.yuedu788.com/book/1on7bh2/)
-- [[原神]魔法使恋爱指南](https://www.yuedu788.com/book/1on7bh0/)
-- [［综英美］蝙蝠崽？我不是啊！](https://www.yuedu788.com/book/1on7bgv/)
-- [大佬的漂亮老婆回来带崽了[八零]](https://www.yuedu788.com/book/1on7bgu/)
-- [爱情的肯定句](https://www.yuedu788.com/book/1on7bgo/)
-- [起初，我只是想找个冤大头](https://www.yuedu788.com/book/1on718c/)
-- [我们生活玩家是这样的](https://www.yuedu788.com/book/1on6v52/)
-- [[足球]拥有分身系统的我靠踢足球建设国家](https://www.yuedu788.com/book/1on6v37/)
-- [上个鬼班[无限]](https://www.yuedu788.com/book/1on6qma/)
-- [华夏神明震撼星际](https://www.yuedu788.com/book/1on6kgu/)
-- [让暴君Alpha怀崽后](https://www.yuedu788.com/book/1on6jes/)
-- [[足球]足坛人生模拟器](https://www.yuedu788.com/book/1on6ivh/)
-- [神豪文男主是我爸](https://www.yuedu788.com/book/1on6ec9/)
-- [在卷王和废物之间选择做吉祥物](https://www.yuedu788.com/book/1on68s2/)
-- [从维多利亚时代开始](https://www.yuedu788.com/book/1on65o1/)
-- [昭暮](https://www.yuedu788.com/book/1on63in/)
-- [始乱终弃清冷首辅后](https://www.yuedu788.com/book/1on5vvb/)
-- [原配夫人](https://www.yuedu788.com/book/1on5vti/)
-- [十九世纪贵族厨房（美食）](https://www.yuedu788.com/book/1on5vpf/)
-- [星际团宠小人鱼](https://www.yuedu788.com/book/1on5von/)
-- [高调装神，猥琐发育](https://www.yuedu788.com/book/1on5om4/)
-- [完蛋！被恨孕男包围了！](https://www.yuedu788.com/book/1on5ojq/)
-- [食明](https://www.yuedu788.com/book/1on5mju/)
-- [诡话第一boss](https://www.yuedu788.com/book/1on5jco/)
-- [专业女配的自我修养（快穿）](https://www.yuedu788.com/book/1on5h9b/)
-- [老实人妻，但顶级魅魔](https://www.yuedu788.com/book/1on5gni/)
-- [[足球]我的游戏存档成真了？！](https://www.yuedu788.com/book/1on5atv/)
-- [让你们无剧本可走（快穿）](https://www.yuedu788.com/book/1on59gm/)
-- [社畜Beta也能被顶A觊觎吗](https://www.yuedu788.com/book/1on59co/)
-- [我与龙傲天寿命共享](https://www.yuedu788.com/book/1on58ug/)
-- [摄政王家的咸鱼夫郎](https://www.yuedu788.com/book/1on58cr/)
-- [如何正确哄睡暴君](https://www.yuedu788.com/book/1on54f7/)
-- [阴郁残疾炮灰被万人迷后[快穿]](https://www.yuedu788.com/book/1on4vpq/)
-- [怀了前任大哥的崽后](https://www.yuedu788.com/book/1on4ven/)
-- [我骗家里的钱养你啊](https://www.yuedu788.com/book/1on4v5g/)
-- [死遁的亡夫们都回来了](https://www.yuedu788.com/book/1on4ufr/)
-- [死对头又在挑衅我](https://www.yuedu788.com/book/1on4o6e/)
-- [沈助理又在隐藏他的超能力](https://www.yuedu788.com/book/1on4n90/)
-- [在民俗惊悚片被诸神庇护](https://www.yuedu788.com/book/1on4mll/)
-- [假金丝雀深陷修罗场](https://www.yuedu788.com/book/1on4l8p/)
-- [韩团绿卡不想忍了](https://www.yuedu788.com/book/1on4kvk/)
-- [被天使之王骗婚后[诡秘之主]](https://www.yuedu788.com/book/1on4jo9/)
-- [咦？我爸爸复活啦](https://www.yuedu788.com/book/1on4ifi/)
-- [美貌单出，杀穿港娱［八零］](https://www.yuedu788.com/book/1on4h10/)
-- [同时扮演贵族学院F4和平民校花](https://www.yuedu788.com/book/1on4gc1/)
-- [开局绑定郭奉孝，谋定三国风云](https://www.yuedu788.com/book/1on4env/)
-- [路人攻了主角攻［快穿］](https://www.yuedu788.com/book/1on4el7/)
-- [苏娘子汴京摆摊日常（美食）](https://www.yuedu788.com/book/1on4chp/)
-- [漂亮女配是万人迷［快穿］](https://www.yuedu788.com/book/1on4a32/)
-- [我有一座地下城](https://www.yuedu788.com/book/1on49r8/)
-- [阴阳师也可以打网球](https://www.yuedu788.com/book/1on46iq/)
-- [和治君只是饭搭子的关系](https://www.yuedu788.com/book/1on4654/)
-- [和贵志君是世界第一的好朋友](https://www.yuedu788.com/book/1on44gl/)
-- [多梦你一会儿](https://www.yuedu788.com/book/1on44bq/)
-- [[封神]圣人生欲](https://www.yuedu788.com/book/1on44b3/)
-- [如何嫁给当朝首辅](https://www.yuedu788.com/book/1on447g/)
-- [卷王后妈，八零养娃](https://www.yuedu788.com/book/1on4320/)
-- [在魔法贵族学院当白月光](https://www.yuedu788.com/book/1on420a/)
-- [五条老师与他的封建妻子](https://www.yuedu788.com/book/1on41sj/)
-- [我司艺人永不塌房](https://www.yuedu788.com/book/1on40lu/)
-- [我187了，你敢见我吗？](https://www.yuedu788.com/book/1on3uv8/)
-- [和姐姐的前女友欢愉后](https://www.yuedu788.com/book/1on3rgf/)
-- [大唐守军家属](https://www.yuedu788.com/book/1on3k81/)
-- [在重生文里考科举](https://www.yuedu788.com/book/1on3jon/)
-- [朕也要被强制吗？](https://www.yuedu788.com/book/1on3j6l/)
-- [[足球]小小鸟堂堂来袭](https://www.yuedu788.com/book/1on3fmp/)
-- [妻主风流（女尊）](https://www.yuedu788.com/book/1on3erh/)
-- [让霸刀山庄重回忍界之巅[综剑三]](https://www.yuedu788.com/book/1on3e61/)
-- [心动嫌疑人](https://www.yuedu788.com/book/1on3df1/)
-- [死亡悖论[无限流]](https://www.yuedu788.com/book/1on3cuh/)
-- [带清冷女主回乡养螃蟹[种田]](https://www.yuedu788.com/book/1on3b1n/)
-- [这个位面归我了！[经营]](https://www.yuedu788.com/book/1on39mp/)
-- [逃出金丝笼，我力挽山河开国称帝](https://www.yuedu788.com/book/1on38j8/)
-- [[崩铁]请给玩家一个准确的血条！](https://www.yuedu788.com/book/1on38ir/)
-- [村霸非要入赘受气包](https://www.yuedu788.com/book/1on3890/)
-- [清冷丞相怀了死对头的崽](https://www.yuedu788.com/book/1on377a/)
-- [被糟蹋的老实人决定反击](https://www.yuedu788.com/book/1on368q/)
-- [和山神搭伙开农场的日子](https://www.yuedu788.com/book/1on35t6/)
-- [假意逢承](https://www.yuedu788.com/book/1on32ol/)
-- [趁她之危](https://www.yuedu788.com/book/1on32i0/)
-- [恶犬攻绑定上司的乖狗系统](https://www.yuedu788.com/book/1on3095/)
-- [权宋一只统](https://www.yuedu788.com/book/1on2t9e/)
-- [爱好和平但狂拆机甲](https://www.yuedu788.com/book/1on2no1/)
-- [大瑛弟国](https://www.yuedu788.com/book/1on1qfs/)
-- [95美国贵族高中模拟](https://www.yuedu788.com/book/1on1qb5/)
-- [高门小婢](https://www.yuedu788.com/book/1on1puk/)
-- [我有一座安全城](https://www.yuedu788.com/book/1on1psd/)
-- [海岛求生：生活玩家种田囤货](https://www.yuedu788.com/book/1on1p8r/)
-- [[娱乐圈]过分美丽的她](https://www.yuedu788.com/book/1on1p5i/)
-- [巨物致富：回乡开钓场](https://www.yuedu788.com/book/1on1oph/)
-- [我是唯一地上神国](https://www.yuedu788.com/book/1on1omb/)
-- [老公对不起](https://www.yuedu788.com/book/1on1oep/)
-- [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.yuedu788.com/book/1on1o0m/)
-- [六零之成了卷王的妹妹](https://www.yuedu788.com/book/1on1nvr/)
-- [假少爷离开后](https://www.yuedu788.com/book/1on1nv5/)
-- [日化人生[科研]](https://www.yuedu788.com/book/1on1ntm/)
-- [五十年代港城日常](https://www.yuedu788.com/book/1on1nra/)
-- [全民求生:从小木屋到魔法农场](https://www.yuedu788.com/book/1on1nr5/)
-- [清澈女大的六零年代](https://www.yuedu788.com/book/1on1npr/)
-- [直男咒术师的限制级游戏](https://www.yuedu788.com/book/1on1no0/)
-- [浣熊市蝙蝠崽的哥谭居住指南](https://www.yuedu788.com/book/1on1nmj/)
-- [成为养成系练习生后](https://www.yuedu788.com/book/1on1ngd/)
+- SSS级异种都是我前任 https://www.yuedu788.com/book/1on7blp/
+- 八零法医，带全家致富 https://www.yuedu788.com/book/1on7blm/
+- 国师 https://www.yuedu788.com/book/1on7bll/
+- [综英美]哥谭市民，在线抽卡 https://www.yuedu788.com/book/1on7blj/
+- 魔尊闭关十年连生十一子？！ https://www.yuedu788.com/book/1on7blh/
+- 人，今晚土拨鼠站岗 https://www.yuedu788.com/book/1on7bld/
+- 二次分化后他怀了死对头的崽 https://www.yuedu788.com/book/1on7blb/
+- 等我吃腻了再倒闭可以吗 https://www.yuedu788.com/book/1on7bla/
+- 恐游作精女配求生指南 https://www.yuedu788.com/book/1on7bl9/
+- 乖乖女的杂货铺[八零] https://www.yuedu788.com/book/1on7bl7/
+- 清穿女回来后[天幕] https://www.yuedu788.com/book/1on7bl5/
+- 谁都不爱的和亲公主 https://www.yuedu788.com/book/1on7bkt/
+- 在年代文里跑运输 https://www.yuedu788.com/book/1on7bkr/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.yuedu788.com/book/1on7bkn/
+- 占有欲Daddy是我老公？ https://www.yuedu788.com/book/1on7bkl/
+- [洪荒]成为太清妹妹后 https://www.yuedu788.com/book/1on7bkf/
+- 怨明月不独照 https://www.yuedu788.com/book/1on7bkc/
+- 热恋过期需重追 https://www.yuedu788.com/book/1on7bk9/
+- 好心的俄罗斯人 https://www.yuedu788.com/book/1on7bk7/
+- 失忆后和死对头有了崽 https://www.yuedu788.com/book/1on7bk6/
+- 魔法种田，从退队经营农场开始 https://www.yuedu788.com/book/1on7bk3/
+- [全职高手]治疗什么的不干了！ https://www.yuedu788.com/book/1on7bk2/
+- 双生子反派的端水抑郁妈[九零] https://www.yuedu788.com/book/1on7bk1/
+- 欲和离？夫君他目不识丁 https://www.yuedu788.com/book/1on7bjp/
+- 全世界名为爱的恶意 https://www.yuedu788.com/book/1on7bjn/
+- [足球]雏鸟 https://www.yuedu788.com/book/1on7bjl/
+- [综英美]和亲友群穿哥谭以后 https://www.yuedu788.com/book/1on7bji/
+- 正是冬雪沸腾时 https://www.yuedu788.com/book/1on7bjh/
+- 夫人每天都在伪装 https://www.yuedu788.com/book/1on7bjg/
+- 我们小区穿末世 https://www.yuedu788.com/book/1on7bj8/
+- 病美人重生日记 https://www.yuedu788.com/book/1on7bj3/
+- 漫画取材所引发的修罗场 https://www.yuedu788.com/book/1on7bj2/
+- 魔咒请说普通话[西幻] https://www.yuedu788.com/book/1on7bj0/
+- 谁说踢球就不能成为名侦探[足球] https://www.yuedu788.com/book/1on7bis/
+- 欲加之罪 https://www.yuedu788.com/book/1on7bio/
+- 暗恋的价格是三万块 https://www.yuedu788.com/book/1on7bin/
+- 前妻她肯定会后悔 https://www.yuedu788.com/book/1on7bil/
+- 娘娘扶摇直上 https://www.yuedu788.com/book/1on7bik/
+- 在中世纪做奴隶 https://www.yuedu788.com/book/1on7bij/
+- 烈火焚身[巴黎圣母院] https://www.yuedu788.com/book/1on7bih/
+- 世界伏于她刀下[无限] https://www.yuedu788.com/book/1on7big/
+- 康熙宠妃日常 https://www.yuedu788.com/book/1on7bie/
+- 炮灰的海外亲戚回国啦！ https://www.yuedu788.com/book/1on7bic/
+- 全民求生，但剑三 https://www.yuedu788.com/book/1on7bia/
+- 强取师尊后 https://www.yuedu788.com/book/1on7bi5/
+- 穿为龙傲天发妻后 https://www.yuedu788.com/book/1on7bi4/
+- 仙尊心尖宠，但被魔尊抢了 https://www.yuedu788.com/book/1on7bi1/
+- 末世八年春，游戏降临 https://www.yuedu788.com/book/1on7bhv/
+- 禁止继承限制级雌君 https://www.yuedu788.com/book/1on7bhu/
+- 从1951开始 https://www.yuedu788.com/book/1on7bht/
+- 国运求生：我的金手指是生命树 https://www.yuedu788.com/book/1on7bhs/
+- 恶毒男配只想躺平 https://www.yuedu788.com/book/1on7bhm/
+- 恐游里的邻居们[万人迷] https://www.yuedu788.com/book/1on7bhl/
+- 死遁APP https://www.yuedu788.com/book/1on7bhc/
+- 星露谷，但日本战国 https://www.yuedu788.com/book/1on7bhb/
+- 万人嫌从末世回来了 https://www.yuedu788.com/book/1on7bh9/
+- 我只想上京赶考啊[聊斋] https://www.yuedu788.com/book/1on7bh8/
+- 魔改剧本后我爆火了[娱乐圈] https://www.yuedu788.com/book/1on7bh4/
+- 穿咒术，但杀猴现场 https://www.yuedu788.com/book/1on7bh3/
+- 你让魔王组建勇者小队？ https://www.yuedu788.com/book/1on7bh2/
+- [原神]魔法使恋爱指南 https://www.yuedu788.com/book/1on7bh0/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.yuedu788.com/book/1on7bgv/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.yuedu788.com/book/1on7bgu/
+- 爱情的肯定句 https://www.yuedu788.com/book/1on7bgo/
+- 起初，我只是想找个冤大头 https://www.yuedu788.com/book/1on718c/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.yuedu788.com/book/1on6v37/
+- 上个鬼班[无限] https://www.yuedu788.com/book/1on6qma/
+- 九零重组小家庭 https://www.yuedu788.com/book/1on6k38/
+- 让暴君Alpha怀崽后 https://www.yuedu788.com/book/1on6jes/
+- [足球]足坛人生模拟器 https://www.yuedu788.com/book/1on6ivh/
+- 在卷王和废物之间选择做吉祥物 https://www.yuedu788.com/book/1on68s2/
+- 从维多利亚时代开始 https://www.yuedu788.com/book/1on65o1/
+- 昭暮 https://www.yuedu788.com/book/1on63in/
+- 始乱终弃清冷首辅后 https://www.yuedu788.com/book/1on5vvb/
+- 原配夫人 https://www.yuedu788.com/book/1on5vti/
+- 十九世纪贵族厨房（美食） https://www.yuedu788.com/book/1on5vpf/
+- 星际团宠小人鱼 https://www.yuedu788.com/book/1on5von/
+- 高调装神，猥琐发育 https://www.yuedu788.com/book/1on5om4/
+- 完蛋！被恨孕男包围了！ https://www.yuedu788.com/book/1on5ojq/
+- 食明 https://www.yuedu788.com/book/1on5mju/
+- 诡话第一boss https://www.yuedu788.com/book/1on5jco/
+- 专业女配的自我修养（快穿） https://www.yuedu788.com/book/1on5h9b/
+- 老实人妻，但顶级魅魔 https://www.yuedu788.com/book/1on5gni/
+- [足球]我的游戏存档成真了？！ https://www.yuedu788.com/book/1on5atv/
+- 让你们无剧本可走（快穿） https://www.yuedu788.com/book/1on59gm/
+- 我与龙傲天寿命共享 https://www.yuedu788.com/book/1on58ug/
+- 摄政王家的咸鱼夫郎 https://www.yuedu788.com/book/1on58cr/
+- 如何正确哄睡暴君 https://www.yuedu788.com/book/1on54f7/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.yuedu788.com/book/1on4vpq/
+- 我骗家里的钱养你啊 https://www.yuedu788.com/book/1on4v5g/
+- 死遁的亡夫们都回来了 https://www.yuedu788.com/book/1on4ufr/
+- 死对头又在挑衅我 https://www.yuedu788.com/book/1on4o6e/
+- 沈助理又在隐藏他的超能力 https://www.yuedu788.com/book/1on4n90/
+- 在民俗惊悚片被诸神庇护 https://www.yuedu788.com/book/1on4mll/
+- 韩团绿卡不想忍了 https://www.yuedu788.com/book/1on4kvk/
+- 被天使之王骗婚后[诡秘之主] https://www.yuedu788.com/book/1on4jo9/
+- 咦？我爸爸复活啦 https://www.yuedu788.com/book/1on4ifi/
+- 从童星开始杀穿港娱 https://www.yuedu788.com/book/1on4h10/
+- 同时扮演贵族学院F4和平民校花 https://www.yuedu788.com/book/1on4gc1/
+- 开局绑定郭奉孝，谋定三国风云 https://www.yuedu788.com/book/1on4env/
+- 路人攻了主角攻［快穿］ https://www.yuedu788.com/book/1on4el7/
+- 苏娘子汴京摆摊日常（美食） https://www.yuedu788.com/book/1on4chp/
+- 漂亮女配是万人迷［快穿］ https://www.yuedu788.com/book/1on4a32/
+- 我有一座地下城 https://www.yuedu788.com/book/1on49r8/
+- 阴阳师也可以打网球 https://www.yuedu788.com/book/1on46iq/
+- 和治君只是饭搭子的关系 https://www.yuedu788.com/book/1on4654/
+- 和贵志君是世界第一的好朋友 https://www.yuedu788.com/book/1on44gl/
+- 多梦你一会儿 https://www.yuedu788.com/book/1on44bq/
+- [封神]圣人生欲 https://www.yuedu788.com/book/1on44b3/
+- 如何嫁给当朝首辅 https://www.yuedu788.com/book/1on447g/
+- 卷王后妈，八零养娃 https://www.yuedu788.com/book/1on4320/
+- 在魔法贵族学院当白月光 https://www.yuedu788.com/book/1on420a/
+- 五条老师与他的封建妻子 https://www.yuedu788.com/book/1on41sj/
+- 我187了，你敢见我吗？ https://www.yuedu788.com/book/1on3uv8/
+- 和姐姐的前女友欢愉后 https://www.yuedu788.com/book/1on3rgf/
+- 大唐守军家属 https://www.yuedu788.com/book/1on3k81/
+- 在重生文里考科举 https://www.yuedu788.com/book/1on3jon/
+- 朕也要被强制吗？ https://www.yuedu788.com/book/1on3j6l/
+- [足球]小小鸟堂堂来袭 https://www.yuedu788.com/book/1on3fmp/
+- 妻主风流（女尊） https://www.yuedu788.com/book/1on3erh/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.yuedu788.com/book/1on3e61/
+- 心动嫌疑人 https://www.yuedu788.com/book/1on3df1/
+- 死亡悖论[无限流] https://www.yuedu788.com/book/1on3cuh/
+- 带清冷女主回乡养螃蟹[种田] https://www.yuedu788.com/book/1on3b1n/
+- 这个位面归我了！[经营] https://www.yuedu788.com/book/1on39mp/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.yuedu788.com/book/1on38j8/
+- [崩铁]请给玩家一个准确的血条！ https://www.yuedu788.com/book/1on38ir/
+- 村霸非要入赘受气包 https://www.yuedu788.com/book/1on3890/
+- 清冷丞相怀了死对头的崽 https://www.yuedu788.com/book/1on377a/
+- 被糟蹋的老实人决定反击 https://www.yuedu788.com/book/1on368q/
+- 和山神搭伙开农场的日子 https://www.yuedu788.com/book/1on35t6/
+- 假意逢承 https://www.yuedu788.com/book/1on32ol/
+- 趁她之危 https://www.yuedu788.com/book/1on32i0/
+- 恶犬攻绑定上司的乖狗系统 https://www.yuedu788.com/book/1on3095/
+- 权宋一只统 https://www.yuedu788.com/book/1on2t9e/
+- 爱好和平但狂拆机甲 https://www.yuedu788.com/book/1on2no1/
+- 大瑛弟国 https://www.yuedu788.com/book/1on1qfs/
+- 95美国贵族高中模拟 https://www.yuedu788.com/book/1on1qb5/
+- 我有一座安全城 https://www.yuedu788.com/book/1on1psd/
+- 海岛求生：生活玩家种田囤货 https://www.yuedu788.com/book/1on1p8r/
+- 天幕今天也在直播我搞基建 https://www.yuedu788.com/book/1on1p7v/
+- [娱乐圈]过分美丽的她 https://www.yuedu788.com/book/1on1p5i/
+- 巨物致富：回乡开钓场 https://www.yuedu788.com/book/1on1oph/
+- 我是唯一地上神国 https://www.yuedu788.com/book/1on1omb/
+- 仙门透明人被迫万人迷 https://www.yuedu788.com/book/1on1oib/
+- 老公对不起 https://www.yuedu788.com/book/1on1oep/
+- 寡妇美人模拟器 https://www.yuedu788.com/book/1on1o8a/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.yuedu788.com/book/1on1o0m/
+- 六零之成了卷王的妹妹 https://www.yuedu788.com/book/1on1nvr/
+- 日化人生[科研] https://www.yuedu788.com/book/1on1ntm/
+- 五十年代港城日常 https://www.yuedu788.com/book/1on1nra/
+- 全民求生:从小木屋到魔法农场 https://www.yuedu788.com/book/1on1nr5/
+- 清澈女大的六零年代 https://www.yuedu788.com/book/1on1npr/
+- 直男咒术师的限制级游戏 https://www.yuedu788.com/book/1on1no0/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.yuedu788.com/book/1on1nmj/
+- 成为养成系练习生后 https://www.yuedu788.com/book/1on1ngd/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1371/index.md)
