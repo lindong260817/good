@@ -1,0 +1,184 @@
+
+# 天天书吧-免费言情小说在线阅读|最新最热网络小说大全
+
+更新时间：2026-09-08 03:44:57
+
+天天书吧提供最新最热的网络小说资源，包括但不限于免费言情小说。用户可以享受无广告干扰的阅读体验，支持最新章节更新、全文流畅阅读以及保证内容准确无误的小说阅读服务。 https://www.wnebd.com
+
+## 最新小说
+- 天幕今天也在直播我搞基建 https://www.wnebd.com/book/1fj8ais/
+- 双生子反派的端水抑郁妈[九零] https://www.wnebd.com/book/1fj7es2/
+- 带清冷女主回乡养螃蟹[种田] https://www.wnebd.com/book/1fj7erp/
+- 恐游作精女配求生指南 https://www.wnebd.com/book/1fj7erf/
+- [足球]雏鸟 https://www.wnebd.com/book/1fj7epl/
+- [足球]我的游戏存档成真了？！ https://www.wnebd.com/book/1fj7ep4/
+- 等我吃腻了再倒闭可以吗 https://www.wnebd.com/book/1fj7ep2/
+- 正是冬雪沸腾时 https://www.wnebd.com/book/1fj7eni/
+- ［西幻］RPG就不要谈恋爱了吧！ https://www.wnebd.com/book/1fj7en7/
+- 阴郁残疾炮灰被万人迷后[快穿] https://www.wnebd.com/book/1fj7eli/
+- [综英美]哥谭市民，在线抽卡 https://www.wnebd.com/book/1fj7ele/
+- 死对头又在挑衅我 https://www.wnebd.com/book/1fj7ejk/
+- 夫人每天都在伪装 https://www.wnebd.com/book/1fj7ein/
+- 前妻她肯定会后悔 https://www.wnebd.com/book/1fj7ehn/
+- [足球]拥有分身系统的我靠踢足球建设国家 https://www.wnebd.com/book/1fj7ehb/
+- 在魔法贵族学院当白月光 https://www.wnebd.com/book/1fj7egt/
+- 暗恋的价格是三万块 https://www.wnebd.com/book/1fj7eft/
+- 在卷王和废物之间选择做吉祥物 https://www.wnebd.com/book/1fj7ef8/
+- 我187了，你敢见我吗？ https://www.wnebd.com/book/1fj7eeq/
+- 从1951开始 https://www.wnebd.com/book/1fj7ed7/
+- 上个鬼班[无限] https://www.wnebd.com/book/1fj7ean/
+- 康熙宠妃日常 https://www.wnebd.com/book/1fj7ea7/
+- 如何嫁给当朝首辅 https://www.wnebd.com/book/1fj7e94/
+- 人，今晚土拨鼠站岗 https://www.wnebd.com/book/1fj7e5t/
+- SSS级异种都是我前任 https://www.wnebd.com/book/1fj7e57/
+- 如何正确哄睡暴君 https://www.wnebd.com/book/1fj7e51/
+- 韩团绿卡不想忍了 https://www.wnebd.com/book/1fj7e4v/
+- 日化人生[科研] https://www.wnebd.com/book/1fj7e43/
+- 在年代文里跑运输 https://www.wnebd.com/book/1fj7e42/
+- 八零法医，带全家致富 https://www.wnebd.com/book/1fj7e3u/
+- 路人攻了主角攻［快穿］ https://www.wnebd.com/book/1fj7e39/
+- 烈火焚身[巴黎圣母院] https://www.wnebd.com/book/1fj7e2n/
+- 假意逢承 https://www.wnebd.com/book/1fj7e23/
+- 禁止继承限制级雌君 https://www.wnebd.com/book/1fj7e1d/
+- 全世界名为爱的恶意 https://www.wnebd.com/book/1fj7e18/
+- 村霸非要入赘受气包 https://www.wnebd.com/book/1fj7e08/
+- 恶毒男配只想躺平 https://www.wnebd.com/book/1fj7e07/
+- 你让魔王组建勇者小队？ https://www.wnebd.com/book/1fj7dv2/
+- 炮灰的海外亲戚回国啦！ https://www.wnebd.com/book/1fj7duu/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.wnebd.com/book/1fj7duk/
+- 乖乖女的杂货铺[八零] https://www.wnebd.com/book/1fj7du7/
+- 和治君只是饭搭子的关系 https://www.wnebd.com/book/1fj7ds7/
+- 清穿女回来后[天幕] https://www.wnebd.com/book/1fj7drm/
+- 权宋一只统 https://www.wnebd.com/book/1fj7dr8/
+- 失忆后和死对头有了崽 https://www.wnebd.com/book/1fj7dpt/
+- 我有一座地下城 https://www.wnebd.com/book/1fj7dnq/
+- 二次分化后他怀了死对头的崽 https://www.wnebd.com/book/1fj7dng/
+- 摄政王家的咸鱼夫郎 https://www.wnebd.com/book/1fj7dko/
+- 老公对不起 https://www.wnebd.com/book/1fj7dkj/
+- 恐游里的邻居们[万人迷] https://www.wnebd.com/book/1fj7djq/
+- 魔尊闭关十年连生十一子？！ https://www.wnebd.com/book/1fj7dhq/
+- 国运求生：我的金手指是生命树 https://www.wnebd.com/book/1fj7dgu/
+- 星露谷，但日本战国 https://www.wnebd.com/book/1fj7dfo/
+- [综英美]和亲友群穿哥谭以后 https://www.wnebd.com/book/1fj7dep/
+- 95美国贵族高中模拟 https://www.wnebd.com/book/1fj7dar/
+- 病美人重生日记 https://www.wnebd.com/book/1fj7daq/
+- 和山神搭伙开农场的日子 https://www.wnebd.com/book/1fj7da7/
+- 大唐守军家属 https://www.wnebd.com/book/1fj7da3/
+- 被天使之王骗婚后[诡秘之主] https://www.wnebd.com/book/1fj7d9q/
+- 阴阳师也可以打网球 https://www.wnebd.com/book/1fj7d9j/
+- 清澈女大的六零年代 https://www.wnebd.com/book/1fj7d8l/
+- 仙尊心尖宠，但被魔尊抢了 https://www.wnebd.com/book/1fj7d8d/
+- 全民求生，但剑三 https://www.wnebd.com/book/1fj7d7m/
+- 让你们无剧本可走（快穿） https://www.wnebd.com/book/1fj7d7d/
+- 死亡悖论[无限流] https://www.wnebd.com/book/1fj7d6o/
+- 让霸刀山庄重回忍界之巅[综剑三] https://www.wnebd.com/book/1fj7d6f/
+- 沈助理又在隐藏他的超能力 https://www.wnebd.com/book/1fj7d63/
+- 食明 https://www.wnebd.com/book/1fj7d4t/
+- 朕也要被强制吗？ https://www.wnebd.com/book/1fj7d4m/
+- 五十年代港城日常 https://www.wnebd.com/book/1fj7d3t/
+- 末世八年春，游戏降临 https://www.wnebd.com/book/1fj7d1u/
+- 起初，我只是想找个冤大头 https://www.wnebd.com/book/1fj7d1d/
+- 寡妇美人模拟器 https://www.wnebd.com/book/1fj7d17/
+- 从维多利亚时代开始 https://www.wnebd.com/book/1fj7d0v/
+- 多梦你一会儿 https://www.wnebd.com/book/1fj7d0l/
+- 谁都不爱的和亲公主 https://www.wnebd.com/book/1fj7d03/
+- 漫画取材所引发的修罗场 https://www.wnebd.com/book/1fj7cvc/
+- 浣熊市蝙蝠崽的哥谭居住指南 https://www.wnebd.com/book/1fj7cv5/
+- 逃出金丝笼，我力挽山河开国称帝 https://www.wnebd.com/book/1fj7cuj/
+- 这个位面归我了！[经营] https://www.wnebd.com/book/1fj7cui/
+- 欲和离？夫君他目不识丁 https://www.wnebd.com/book/1fj7cuf/
+- 六零之成了卷王的妹妹 https://www.wnebd.com/book/1fj7cu9/
+- 直男咒术师的限制级游戏 https://www.wnebd.com/book/1fj7cr5/
+- 巨物致富：回乡开钓场 https://www.wnebd.com/book/1fj7cr3/
+- [全职高手]治疗什么的不干了！ https://www.wnebd.com/book/1fj7cqu/
+- 老实人妻，但顶级魅魔 https://www.wnebd.com/book/1fj7cqs/
+- 高调装神，猥琐发育 https://www.wnebd.com/book/1fj7cq9/
+- 我们小区穿末世 https://www.wnebd.com/book/1fj7cpa/
+- 谁说踢球就不能成为名侦探[足球] https://www.wnebd.com/book/1fj7cp4/
+- [洪荒]成为太清妹妹后 https://www.wnebd.com/book/1fj7con/
+- 和贵志君是世界第一的好朋友 https://www.wnebd.com/book/1fj7cnv/
+- 在中世纪做奴隶 https://www.wnebd.com/book/1fj7cmn/
+- 死遁APP https://www.wnebd.com/book/1fj7cmi/
+- 咦？我爸爸复活啦 https://www.wnebd.com/book/1fj7cm4/
+- 我与龙傲天寿命共享 https://www.wnebd.com/book/1fj7cl5/
+- 爱情的肯定句 https://www.wnebd.com/book/1fj7cl1/
+- 苏娘子汴京摆摊日常（美食） https://www.wnebd.com/book/1fj7ckq/
+- ［综英美］蝙蝠崽？我不是啊！ https://www.wnebd.com/book/1fj7ck8/
+- 好心的俄罗斯人 https://www.wnebd.com/book/1fj7ck4/
+- 欲加之罪 https://www.wnebd.com/book/1fj7cjl/
+- 心动嫌疑人 https://www.wnebd.com/book/1fj7cjg/
+- 清冷丞相怀了死对头的崽 https://www.wnebd.com/book/1fj7cir/
+- [足球]小小鸟堂堂来袭 https://www.wnebd.com/book/1fj7ci6/
+- 漂亮女配是万人迷［快穿］ https://www.wnebd.com/book/1fj7cgd/
+- [原神]魔法使恋爱指南 https://www.wnebd.com/book/1fj7cg0/
+- 占有欲Daddy是我老公？ https://www.wnebd.com/book/1fj7ceq/
+- 开局绑定郭奉孝，谋定三国风云 https://www.wnebd.com/book/1fj7cd8/
+- 被糟蹋的老实人决定反击 https://www.wnebd.com/book/1fj7ccu/
+- 国师 https://www.wnebd.com/book/1fj7ccp/
+- 穿咒术，但杀猴现场 https://www.wnebd.com/book/1fj7cca/
+- [足球]足坛人生模拟器 https://www.wnebd.com/book/1fj7cbu/
+- 趁她之危 https://www.wnebd.com/book/1fj7cbt/
+- 星际团宠小人鱼 https://www.wnebd.com/book/1fj7cbb/
+- 我只想上京赶考啊[聊斋] https://www.wnebd.com/book/1fj7cad/
+- 全民求生:从小木屋到魔法农场 https://www.wnebd.com/book/1fj7caa/
+- 在民俗惊悚片被诸神庇护 https://www.wnebd.com/book/1fj7c9g/
+- 昭暮 https://www.wnebd.com/book/1fj7c95/
+- 原配夫人 https://www.wnebd.com/book/1fj7c8n/
+- [封神]圣人生欲 https://www.wnebd.com/book/1fj7c89/
+- 十九世纪贵族厨房（美食） https://www.wnebd.com/book/1fj7c5h/
+- 专业女配的自我修养（快穿） https://www.wnebd.com/book/1fj7c59/
+- 九零重组小家庭 https://www.wnebd.com/book/1fj7c3g/
+- 完蛋！被恨孕男包围了！ https://www.wnebd.com/book/1fj7c38/
+- 强取师尊后 https://www.wnebd.com/book/1fj7c2n/
+- 爱好和平但狂拆机甲 https://www.wnebd.com/book/1fj7c2e/
+- [娱乐圈]过分美丽的她 https://www.wnebd.com/book/1fj7c1u/
+- 始乱终弃清冷首辅后 https://www.wnebd.com/book/1fj7c1l/
+- 从童星开始杀穿港娱 https://www.wnebd.com/book/1fj7c1d/
+- 同时扮演贵族学院F4和平民校花 https://www.wnebd.com/book/1fj7c02/
+- 怨明月不独照 https://www.wnebd.com/book/1fj7c00/
+- 娘娘扶摇直上 https://www.wnebd.com/book/1fj7bve/
+- 死遁的亡夫们都回来了 https://www.wnebd.com/book/1fj7buv/
+- 大瑛弟国 https://www.wnebd.com/book/1fj7bum/
+- 热恋过期需重追 https://www.wnebd.com/book/1fj7bu2/
+- [崩铁]请给玩家一个准确的血条！ https://www.wnebd.com/book/1fj7bsf/
+- 和姐姐的前女友欢愉后 https://www.wnebd.com/book/1fj7bsc/
+- 我是唯一地上神国 https://www.wnebd.com/book/1fj7brc/
+- 仙门透明人被迫万人迷 https://www.wnebd.com/book/1fj7br7/
+- 卷王后妈，八零养娃 https://www.wnebd.com/book/1fj7bqp/
+- 我骗家里的钱养你啊 https://www.wnebd.com/book/1fj7bqk/
+- 成为养成系练习生后 https://www.wnebd.com/book/1fj7bqc/
+- 让暴君Alpha怀崽后 https://www.wnebd.com/book/1fj7bq0/
+- 海岛求生：生活玩家种田囤货 https://www.wnebd.com/book/1fj7boo/
+- 诡话第一boss https://www.wnebd.com/book/1fj7bo1/
+- 魔咒请说普通话[西幻] https://www.wnebd.com/book/1fj7bnh/
+- 万人嫌从末世回来了 https://www.wnebd.com/book/1fj7bna/
+- 妻主风流（女尊） https://www.wnebd.com/book/1fj7bn9/
+- 大佬的漂亮老婆回来带崽了[八零] https://www.wnebd.com/book/1fj7bn0/
+- 穿为龙傲天发妻后 https://www.wnebd.com/book/1fj7bm2/
+- 在重生文里考科举 https://www.wnebd.com/book/1fj7bkq/
+- 魔改剧本后我爆火了[娱乐圈] https://www.wnebd.com/book/1fj7bk4/
+- 我有一座安全城 https://www.wnebd.com/book/1fj7bju/
+- 恶犬攻绑定上司的乖狗系统 https://www.wnebd.com/book/1fj7bj5/
+- 世界伏于她刀下[无限] https://www.wnebd.com/book/1fj7bj1/
+- 五条老师与他的封建妻子 https://www.wnebd.com/book/1fj7bhk/
+- 魔法种田，从退队经营农场开始 https://www.wnebd.com/book/1fj7bhd/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1411/index.md)
+- [最新热点小说](/site1411/newhot.md)
+- [人气小说](/site1411/b111.md)
+- [推荐小说](/site1411/recommend1.md)
+- [推荐小说列表](/site1411/recommend/index.md)
+- [热点小说](/site1411/hot/index.md)
+- [全本小说](/site1411/quanben/index.md)
+- [网站地图](/site1411/sitemap/index.md)
+- [标签](/site1411/tag/index.md)
+- [爱情小说](/site1411/category101/index.md)
+- [武侠小说](/site1411/category102/index.md)
+- [奇幻小说](/site1411/category103/index.md)
+- [仙侠小说](/site1411/category104/index.md)
+- [游戏小说](/site1411/category105/index.md)
+- [传奇小说](/site1411/category106/index.md)
+- [科幻小说](/site1411/category107/index.md)
+- [惊悚小说](/site1411/category109/index.md)
+- [悬疑小说](/site1411/category110/index.md)
